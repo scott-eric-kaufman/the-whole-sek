@@ -89,7 +89,7 @@ function convertToFileName(s) {
 jsdom.env({
 	file: argv.file,
 	scripts: [
-		'http://code.jquery.com/jquery.js'
+		__dirname + '/jquery-3.1.1.min.js'
 	],
 	done: function(errors, window) {
 		var $ = window.$;

@@ -86,21 +86,29 @@ function convertToFileName(s) {
 jsdom.env({
 	file: argv.file,
 	scripts: [
-		'http://code.jquery.com/jquery.js'
+		__dirname + '/jquery-3.1.1.min.js'
 	],
 	done: function(errors, window) {
 		var $ = window.$;
+
+		var foundTitle = false, foundUrl = false;
 
 		// Get, sanitize, and print the actual entry
 		$('link[rel=canonical]').attr('href', function(idx, elem) {
 			console.log('SLUG : ' + convertToFileName(elem.split('www.ginandtacos.com/')[1]));
 		});
 		$('meta[property="og:title"]').attr('content', function(idx, elem) {
-			console.log('## ' + elem);
-			console.log('');
+			if (!foundTitle) {
+				console.log('## ' + sanitize(elem));
+				console.log('');
+			}
+			foundTitle = true;
 		});
 		$('meta[property="og:url"]').attr('content', function(idx, elem) {
-			console.log(' * Originally located at ' + elem);
+			if (!foundUrl) {
+				console.log(' * Originally located at ' + elem);
+			}
+			foundUrl = true;
 		});
 		$('div.entry-content').each(function(idx, elem) {
 			//console.log('IMAGES:');
