@@ -10,10 +10,11 @@ CONTENT := \
 		content/lawyers-guns-and-money/*.md \
 		content/the-valve/*.md \
 		content/salon/*.md \
-		content/acephalous/*.md
+		content/acephalous/*.md \
+		content/miscellaneous/*.md
 
 clean:
-	rm -f VisualRhetoric.*
+	rm -f $(TITLE).*
 
 epub:
 	pandoc -f markdown -t epub3  \
