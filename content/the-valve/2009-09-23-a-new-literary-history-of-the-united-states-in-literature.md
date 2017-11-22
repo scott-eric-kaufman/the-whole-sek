@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/a_new_literary_history_of_the_united_states_in_literature3/
 
-##  Wednesday, September 23, 2009 
+* Wednesday, September 23, 2009 
 
 The publication of [_A New Literary History of the United States_](http://www.amazon.com/exec/obidos/ASIN/0674035941/diesekoschmar-20) will likely strike a few chords familiar to the participants in the debate that followed Rohan’s latest [post](http://www.thevalve.org/go/valve/article/this_week_in_my_classes_revisited_with_some_thoughts_on_j_c_hallman/).  Written neither in the [Emory Elliot mode](http://www.amazon.com/exec/obidos/ASIN/0231058128/diesekoschmar-20)—a history of items both literary and American—nor that of [Sacvan Bercovitch](http://www.amazon.com/exec/obidos/ASIN/052130105X/diesekoschmar-20)—a history all items written by Americans that can be yours for the low, low price of $299.29—editors Greil Marcus and Werner Sollors instead decided to write a cultural history of the United States in a self-consciously literary voice.  As Laura Miller at _Salon_\* [writes](http://www.salon.com/books/review/2009/09/22/literary_history/index.html), the two
 

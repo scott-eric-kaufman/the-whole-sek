@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/some_novel_called_yellow_blue_tibia_or_somesuch/
 
-##  Monday, November 30, 2009 
+* Monday, November 30, 2009 
 
 [![Yellowbluetibia](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0120a6f253da970b-320pi "Yellowbluetibia")](http://www.amazon.com/exec/obidos/ASIN/0575083573/diesekoschmar-20)Let me begin by [agreeing with Kim Stanley Robinson](http://www.newscientist.com/article/mg20327263.200-science-fiction-the-stories-of-now.html?full=true): 
 [T]his year the [Booker] prize should probably go to a science fiction comedy called [_Yellow Blue Tibia_](http://www.amazon.com/exec/obidos/ASIN/0575083573/diesekoschmar-20), by Adam Roberts.

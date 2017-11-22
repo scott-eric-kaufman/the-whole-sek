@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/justifying_comics_as_legitimate_objects_of_study_part_i/
 
-##  Sunday, April 05, 2009 
+* Sunday, April 05, 2009 
 
 Were I to muster a defense of comics as potentially serious objects of rhetorical analysis in, say, [a textbook](http://acephalous.typepad.com/acephalous/2009/04/what-can-blog-do-for-you.html), I would begin by pointing out that while there may not be a ready-made critical apparatus for comics as a genre, there exists a robust tradition of analyzing visual narrative.  Consider Caravaggio’s “Calling of St. Matthew”:
 

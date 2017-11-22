@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/on_the_pitfalls_of_stylistic_uniformity_part_i/
 
-##  Sunday, February 01, 2009 
+* Sunday, February 01, 2009 
 
 I should begin by thanking my [drive-by insult-smith](http://acephalous.typepad.com/acephalous/2009/01/branded-im-a-mcdonalds-level-reader.html) for reminding me what I’d written about Gene Wolfe four years back, because it should’ve been the foundation of the [Updike post](http://www.thevalve.org/go/valve/article/must_we_still_pretend_to_like_john_updike/).  In [that earlier post](http://acephalous.typepad.com/acephalous/2005/09/on_terrible_neo/), I claimed Wolfe suffered from
 

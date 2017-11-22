@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/on_the_origin_of_academic_jargon_part_i/
 
-##  Wednesday, April 19, 2006 
+* Wednesday, April 19, 2006 
 
 As I read [Amardeep](http://www.thevalve.org/go/valve/article/theor/)‘s contribution to the [Spivak](http://www.long-sunday.net/spivak/) [MMTOR](http://crookedtimber.org/2005/07/12/massive-multi-thinker-online-reviews/) (to which I will contribute when time and dissertation committee permit) I had one of _those_ moments.  You know the ones:  
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/avatar_and_the_war_of_genres/
 
-##  Monday, December 21, 2009 
+* Monday, December 21, 2009 
 
 (_The following is a guest post by my friend [Gerry Canavan](http://gerrycanavan.wordpress.com), who had the insane notion that a literary scholar might want to tackle a cultural artifact on literary terms instead of, say, overtly political ones._)
 

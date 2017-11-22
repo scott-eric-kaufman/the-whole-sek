@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_novel_of_purpose_by_way_of_introduction/
 
-##  Friday, April 13, 2007 
+* Friday, April 13, 2007 
 
 No one here needs me to tell them that disciplines are odd beasts, but I will anyway.  Jobs are apportioned on the basis of small slices of time and big swaths of land.  For example, I’m an Americanist.  Practically speaking, this means I can only apply for Americanist jobs.  I’m also a 19th century Americanist, further limiting my possibilities.  These disciplinary demands shape my dissertation—whatever I write, I need to know it can be published in _American Literature_ or _American Literary History_.  (_English Literary History_ claims to publish works on “major works in English and American literature,” but when I opened my latest copy, I was not shocked to find five essays on George O’Brien Wyndham, Earl of Egremont, and one on Nathaniel Hawthorne.)  For a project like mine, such professional imperatives chafe like an angry sea.  How do I write a proper _Americanist_ dissertation about the reception of Anglo- and Continental evolutionary theory?  Do I give the source material—Darwin, Lamarck, Spencer, &amp;c.—short shrift, and focus instead on the aesthetic and moral theories American authors built on it?  But what if those theories are themselves indebted to Anglo- and Continental thought?  (As was the case with Silas Weir Mitchell, whose thought owes more to Keats and Ruskin than Emerson and Howells.)  
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/bolanos_2666_part_i_they_supplied_the_stamp_of_ultraconcrete_canonical_lite/
 
-##  Thursday, November 20, 2008 
+* Thursday, November 20, 2008 
 
 So submits Roberto Bolaño, in the universally praised _[2666](http://www.amazon.com/exec/obidos/ASIN/0374100144/diesekoschmar-20),_ about scholars like me.  He falls prey here to the Robertson Davies’ [romance of academic life](http://www.amazon.com/exec/obidos/ASIN/0140147551/diesekoschmar-20), in which even minor disagreements are elevated to shrieks against creed as red in claw as they are long in the tooth.  Scholars like myself and Bolaño’s “insignificant Serbian critic” argue passionately but ultimately purposelessly, for the “ideas, assertions, denials, [and] doubts” we don’t have are 
 free of any intent to serve as guide, [are] neither pro nor con, just an eye seeking out the tangible elements, not judging them but simply displaying them coldly, archaeology of the facsimile, and, by the same token, of the photocopier. (55)

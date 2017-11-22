@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/whats_wrong_with_reading_comics_quite_a_bit_actually/
 
-##  Tuesday, April 14, 2009 
+* Tuesday, April 14, 2009 
 
 Because late [to the party](http://www.thevalve.org/go/valve/archive/C66/) is better than never, I’m reading Douglas Wolk’s [_Reading Comics_](http://www.amazon.com/exec/obidos/ASIN/0306816164/diesekoschmar-20).  When I’m not [maybe being mocked](http://acephalous.typepad.com/acephalous/2009/04/did-douglas-wolk-just-call-me-a-girl.html), the book is a compelling read.  This is a problem.  Since [tradition dictates](http://www.thevalve.org/go/valve/article/comics_and_canonicity/) picking nits with blurbs, I’ll start with the quotation from the _Los Angeles Times_ printed on the cover:
 

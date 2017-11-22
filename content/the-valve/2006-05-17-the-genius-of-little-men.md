@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_genius_of_little_men/
 
-##  Wednesday, May 17, 2006 
+* Wednesday, May 17, 2006 
 
 From Maurice Thompson, “The Domain of Romance,” _Forum_, November 1889:
 

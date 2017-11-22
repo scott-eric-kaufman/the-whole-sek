@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/how_to_negotiate_the_mla_or_seriously_how/
 
-##  Sunday, November 13, 2005 
+* Sunday, November 13, 2005 
 
 As I browse through the catalogue for the upcoming MLA, I see that there will be a number of unpleasant decisions to be made.  All of them boil down to: “Here or here?”
 

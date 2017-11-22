@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/syllabus_bleg_poetry_social_crisis/
 
-##  Thursday, June 22, 2006 
+* Thursday, June 22, 2006 
 
 As her name suggests, The Little Womedievalist lives in the sparsely populated academic “ghetto” known as “medieval studies.”  (A wonderful place to visit, but I didn’t want to live there.)  Thing is, when medievalists tip-toe into the 15
 th

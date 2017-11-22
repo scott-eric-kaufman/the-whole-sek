@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/caleb_crain_on_academic_criticism_only_not_really/
 
-##  Friday, May 12, 2006 
+* Friday, May 12, 2006 
 
 [Radiating delight](http://acephalous.typepad.com/acephalous/2006/05/bailiff_do_you_.html#more), I read [Caleb Crain](http://www.steamthing.com/2006/05/n1.html#comments)‘s article on “Academic Criticism” in the new [_n+1_](http://www.nplusonemag.com/).  According to the prelude to “American Writing Today: A Symposium,” Crain’s article addresses “the conditions of production of new [academic criticism]; its character and traits; and the figures and creators who have most influenced each field” (63).  
 

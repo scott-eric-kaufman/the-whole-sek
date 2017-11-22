@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/crypto_communisto_conflagration_100_guaranteed_or_happenstance_and_identity/
 
-##  Sunday, June 12, 2005 
+* Sunday, June 12, 2005 
 
 _Sing sweetly, my Muse, of the glorious lull between final drafts and final papers!  Aid me in the completion of posts half-written for months!_
 

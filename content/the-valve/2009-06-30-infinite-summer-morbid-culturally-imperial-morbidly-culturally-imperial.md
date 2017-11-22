@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/infinite_summer_morbid_culturally_imperial_morbidly_culturally_imperial/
 
-##  Tuesday, June 30, 2009 
+* Tuesday, June 30, 2009 
 
 Am I alone in finding the whole idea of [_Infinite Summer_](http://infinitesummer.org/) a little morbid?  The renewed interest in David Foster Wallace’s [_Infinite Jest_](http://www.amazon.com/exec/obidos/ASIN/0316066524/diesekoschmar-20) is an obvious Good Thing—a first step toward popular as well as academic canonization—but having lived through the recent Michael Jackson Media Event, I can’t help but wonder whether the desire to read Wallace’s novel is akin downloading _Thriller_ because Some Important Someone died.  Do I sound like I’m thwacking some straw man with shovel?  Because I’m not:
 

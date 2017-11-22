@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/n1_vs_lit_bloggers/
 
-##  Friday, March 16, 2007 
+* Friday, March 16, 2007 
 
 The lit-blogging community is positively apoplectic about the latest [_n+1_](http://www.nplusonemag.com/).  In “The Intellectual Situation,” [you’ll recall](http://www.long-sunday.net/long_sunday/2007/02/the_intemperate.html#comments), the editors write:
 

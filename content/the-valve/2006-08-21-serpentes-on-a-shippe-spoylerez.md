@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/serpentes_on_a_shippe_spoylerez/
 
-##  Monday, August 21, 2006 
+* Monday, August 21, 2006 
 
 From  [Geoffrey Chaucer Hath a Blog](http://houseoffame.blogspot.com/):
 

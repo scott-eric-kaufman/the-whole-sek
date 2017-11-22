@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/literature_today2/
 
-##  Saturday, July 08, 2006 
+* Saturday, July 08, 2006 
 
 \[_If you have recommendations for “Literature Today,” post them to del.icio.us and tag ‘em “thevalve” or send them to acephalous (@) gmail (.) com._\]
 

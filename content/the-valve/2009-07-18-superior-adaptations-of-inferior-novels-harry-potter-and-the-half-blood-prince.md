@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/superior_adaptations_of_inferior_novels_harry_potter_and_the_half_blood_pri/
 
-##  Saturday, July 18, 2009 
+* Saturday, July 18, 2009 
 
 Reviewing a film based on a book you haven’t read is [always a dicey proposition](http://acephalous.typepad.com/acephalous/2009/03/reading-is-fundamental-with-dummies-like-you-who-needs-the-mentally-disabled.html)—you likely missed or misread the winks and nods aimed at the readers surrounding you—but I think an exception can be made in the case of a film that works _because_ you haven’t read the source material.  So I begin with an admission: I can’t read the _Harry Potter_ novels.  I got through 100 pages of the first three and stopped once I realized that they are, on the whole, terrible; and that when they rise to the level of unsubtle Dickensian grotesquerie ([minus the wit](http://books.google.com/books?id=C60QAAAAYAAJ&amp;dq=editions%!A(MISSING)OCLC1133635&amp;pg=PA22)), they’re merely awful.  But I mostly enjoy the films, which dispense the requisite [infodumps](http://acephalous.typepad.com/acephalous/2009/02/not-infodumps-constellations.html) in digestable bits and—by virtue of being films—relieve J.K. Rowling of the burden of pretending to be [Mervyn Peake](http://www.amazon.com/exec/obidos/ASIN/0879516283/diesekoschmar-20).  
 

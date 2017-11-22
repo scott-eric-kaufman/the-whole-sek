@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_new_republics_open_university/
 
-##  Thursday, August 31, 2006 
+* Thursday, August 31, 2006 
 
 As its [illustrious](http://crookedtimber.org/2006/08/31/open-university/) [competitors](http://hnn.us/blogs/entries/29581.html) for “Most Prestigious Group Blog” have noted, _The New Republic_‘s [Open University](http://www.tnr.com/blog/openuniversity) went online today.  The roster is nothing short of spectacular:
 

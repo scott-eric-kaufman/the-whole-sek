@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/contra_iek/
 
-##  Monday, May 22, 2006 
+* Monday, May 22, 2006 
 
 A friend asks: “How can you talk about women as objects of sacrifice without using Žižek?”  
 

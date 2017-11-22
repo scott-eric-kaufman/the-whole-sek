@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/storming_castles_in_the_air_a_bleg_in_d_minor/
 
-##  Monday, June 20, 2005 
+* Monday, June 20, 2005 
 
 [Edit: Superfluous Swaddling Removed]
 

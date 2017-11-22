@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/some_methods_of_breeding/
 
-##  Thursday, May 28, 2009 
+* Thursday, May 28, 2009 
 
 _This is a guest post by David Mazella, an Associate Professor in the Department of English at the University of Houston, and a co-founder and managing editor of the scholarly blog, [The Long Eighteenth](http://long18th.wordpress.com/).  He is the author of a cultural and conceptual history of cynicism, [**The Making of Modern Cynicism**](http://www.amazon.com/gp/product/product-description/0813926157/ref=dp_proddesc_0/180-0759078-4838518?ie=UTF8&amp;n=283155&amp;s=books) (University of Virginia Press, 2007)._ 
 

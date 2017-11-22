@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/not_infodumps_emconstellations_em/
 
-##  Saturday, February 14, 2009 
+* Saturday, February 14, 2009 
 
 The infodump, as Todd VanDerWerff [points out](http://www.thehousenextdooronline.com/2009/02/bsg-saturdays-season-4-ep-15-no-exit.html), may well be the single generic feature shared by all flavors of science fiction:
 

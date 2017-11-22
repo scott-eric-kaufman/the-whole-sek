@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_rubble_of_a_prolonged_catharsis/
 
-##  Sunday, February 08, 2009 
+* Sunday, February 08, 2009 
 
 Checking up that “proud cock” is two words, not one, so that I might [strut it out](http://acephalous.typepad.com/acephalous/2009/02/dear-acolytes-and-enemies-of-the-late-samuel-huntington-.html#comment-148034077), I came across the entry for “[beast language](http://books.google.com/books?id=wUTP0ZP7yy8C&amp;pg=PA36&amp;vq=beast+language)“ in the _Dictionary of Poetic Terms_.  The diction of the entry is either unconscionably vague or deliciously derisive:
 

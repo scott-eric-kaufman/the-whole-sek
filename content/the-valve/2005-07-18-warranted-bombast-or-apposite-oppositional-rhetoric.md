@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/warranted_bombast_or_apposite_oppositional_rhetoric/
 
-##  Monday, July 18, 2005 
+* Monday, July 18, 2005 
 
 I’m a fan of [_American Literary Scholarship_](http://www.dukeupress.edu/als).  So much so I have a [complete set](http://acephalous.typepad.com/photos/home/home_1.jpg) (atop the shelves on the left).  When the latest edition arrived, I scanned it 1) to check if someone else’s written my dissertation yet and 2) to ensure that my notion of where the field’s headed is more accurate than not.  (For those interested: my dissertation’s still mine and only a minor course-correction’s needed.)  I’ve read all the sections relevent to my work and I have but one complaint: the rhetoric.  
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/observations_on_the_latest_modern_fiction_studies/
 
-##  Tuesday, January 30, 2007 
+* Tuesday, January 30, 2007 
 
 The [Winter 2006](http://muse.jhu.edu/journals/modern_fiction_studies/toc/mfs52.4.html) number of _Modern Fiction Studies_ hit the streets this morning.  This issue is special, devoted to what it calls “graphic narrative,” but which everyone I know calls “funny books.”  _De gustibus_, yes, but accompanied by a strong impulse to legitimize the objects they’re studying.  After all, this is _MFS_, not [_The Journal of Popular Culture_](http://www.msu.edu/~tjpc/).  For the sake of reference, the [previous special issue](http://muse.jhu.edu/journals/modern_fiction_studies/toc/mfs52.2.html) (Summer 2006) was devoted to Toni Morrison, not exactly a marginal figure in contemporary literature.  Reading the [introduction](http://muse.jhu.edu/journals/modern_fiction_studies/v052/52.4chute01.html) and first three essays, I sense that the audience of this issue is _MFS_ readers, not scholars of the works in question.
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/received_wisdom_empson_and_the_new_critics/
 
-##  Monday, November 20, 2006 
+* Monday, November 20, 2006 
 
 [Article #1](http://www.timesonline.co.uk/newspaper/0,,2774-2454013,00.html):
 

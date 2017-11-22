@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/breaking_news_john_cheever_not_remotely_like_a_character_in_a_john_cheever/
 
-##  Sunday, May 03, 2009 
+* Sunday, May 03, 2009 
 
 From “[How Cheever Really Felt About Living in Suburbia](http://www.nytimes.com/2009/05/03/nyregion/connecticut/03cheeverCT.html?pagewanted=1&amp;_r=1),” published in today’s _Times_:
 

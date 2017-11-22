@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_minnesota_review_ns_67/
 
-##  Monday, January 08, 2007 
+* Monday, January 08, 2007 
 
 The [_minnesota review_](http://www.theminnesotareview.org/) has published the [complete contents](http://www.theminnesotareview.org/journal/ns67/index.shtml) of its most recent issue online.  For those who attended and/or read [my talk](http://acephalous.typepad.com/acephalous/2007/01/painstakingly_c.html#more) online and wanted to hear more of Jeffrey Williams’ interviews with [William Spanos](http://www.theminnesotareview.org/journal/ns67/interview_spanos.shtml) and [Toril Moi](http://www.theminnesotareview.org/journal/ns67/interview_moi.shtml), now’s your chance.  This number also includes an interview with a [prominent former blogger](http://www.theminnesotareview.org/journal/ns67/interview_berube.shtml), the [current editorial director of a major university press](http://www.theminnesotareview.org/journal/ns67/interview_zinner.shtml) and an article by everyone’s [favorite historian](http://www.theminnesotareview.org/journal/ns67/burke_timothy_1.shtml).
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/i_have_no_literary_interests_something_else_i_am_made_of_literature/
 
-##  Friday, November 07, 2008 
+* Friday, November 07, 2008 
 
 So wrote Kafka on LF 304 and BrF 444.  No, I don’t know what those mean either.  Princeton only posted Stanley Corngold’s [introduction](http://press.princeton.edu/chapters/s8791.html) to _Franz Kafka: The Office Writings_, so the citations function as cryptic references to private files collected, collated, duplicated and made available to people in the employ of a vast bureaucracy.\*  (Apt, ain’t it?)  Corngold likes to pair the titular quotation with nonce word from Br 384 and L 333: _Schriftstellersein_, which he translates here as “the being of a writer,” but [elsewhere](http://www.mitpressjournals.org/doi/pdf/10.1162/daed.2007.136.2.79?cookieSet=1) [.pdf] as “the condition of being a writer."\*\*  
 

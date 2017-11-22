@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/how_awful_have_these_past_few_months_been_for_contemporary_letters_of_late/
 
-##  Sunday, April 19, 2009 
+* Sunday, April 19, 2009 
 
 Here’s a paragraph from the late David Foster Wallace’s review of the late, [as of today](http://www.telegraph.co.uk/news/obituaries/culture-obituaries/books-obituaries/5183831/JG-Ballard.html), J.G. Ballard’s 1991 collection _War Fever_:
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/ok_and_un_early_champions_of_literalism/
 
-##  Tuesday, April 24, 2007 
+* Tuesday, April 24, 2007 
 
 Adam Roberts thinks [he can find](http://acephalous.typepad.com/acephalous/2007/04/why_all_the_des.html#comment-67424892) better evidence of Jack London’s [mastery of the art of dialogue](http://acephalous.typepad.com/acephalous/2007/04/why_all_the_des.html) than yours truly, a trained Jack London scholar.  He is so very, very wrong.  I now present an excerpt from London’s play [_The First Poet_](http://www.jacklondons.net/writings/TurtlesTasman/first_poet.html), collected in _The Turtles of Tasman_.  The scene:
 

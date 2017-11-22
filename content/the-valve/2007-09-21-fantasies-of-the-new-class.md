@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/fantasies_of_the_new_class/
 
-##  Friday, September 21, 2007 
+* Friday, September 21, 2007 
 
 I know how John [feels](http://examinedlife.typepad.com/johnbelle/2004/01/pmla_the_good_t.html) about _PMLA_, but as David Bergeron wrote in _Shakespeare Quarterly_ some years back, it is “the most prestigious unread journal in our profession.”  Being published in it is cause for celebration.  So put your hands together for my friend Stephen Schryer, whose “Fantasies of the New Class: The New Criticism, Harvard Sociology, and the Idea of the University” \[.[pdf](http://acephalous.typepad.com/fantasies_of_the_new_class.pdf)\] appears in the latest issue.  (In what is quickly [becoming](http://acephalous.typepad.com/acephalous/2007/08/adam-roberts-la.html) a [refrain](http://acephalous.typepad.com/acephalous/2006/09/almost_famous.html), I can’t recommend the acknowledgments highly enough.)  If you fancy the abstract, read the article and, if so inclined, comment on it below.  Stephen will be around to answer any questions you might have.  
 

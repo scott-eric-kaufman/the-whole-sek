@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/i_know_i_know_academic_freedom_but/
 
-##  Tuesday, May 16, 2006 
+* Tuesday, May 16, 2006 
 
 \[_Via [Scott Jaschik](http://insidehighered.com/news/2006/05/16/churchill)_\]
 

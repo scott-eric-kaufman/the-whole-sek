@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/he/
 
-##  Wednesday, September 24, 2008 
+* Wednesday, September 24, 2008 
 
 (_[x-posted](http://acephalous.typepad.com/acephalous/)_.)
 

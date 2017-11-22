@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_intellectual_content_of_academic_blogs_as_imagined_by_our_peers/
 
-##  Tuesday, December 05, 2006 
+* Tuesday, December 05, 2006 
 
 Via [The Corner](http://corner.nationalreview.com):
 

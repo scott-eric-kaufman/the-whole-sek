@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/nick_gillespie_redux_or_reason_beside_the_point/
 
-##  Monday, January 02, 2006 
+* Monday, January 02, 2006 
 
 \[X-posted from The [Acephalous](http://acephalous.typepad.com/) [MLA Round-Up](http://acephalous.typepad.com/acephalous/mla_2005/index.html).\]
 

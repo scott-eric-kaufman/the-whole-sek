@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/because_of_course_jack_london_sucks_harder_than_many_comics_part_ii/
 
-##  Thursday, April 23, 2009 
+* Thursday, April 23, 2009 
 
 (_My commenters [wrote my first response](http://acephalous.typepad.com/acephalous/2009/04/this-post-will-have-been-written-by-my-commenters-all-of-whom-must-contribute-or-risk-pain-of-death.html) to [Bill’s post](http://www.thevalve.org/go/valve/article/academic_respectability_comics/) for me.  They nailed it so accurately posting what I’d originally written seems unnecessary.  I’m neither kidding nor, it seems, necessary.  So in the [likely] event of a [hilariously hi-jinxed] tragedy,_ _**Acephalous** can [and should] live on._)
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/a_philip_roth_mini_seminar/
 
-##  Sunday, August 28, 2005 
+* Sunday, August 28, 2005 
 
 [![Plot_against_america](http://acephalous.typepad.com/acephalous/images/plot_against_america.jpg "Plot_against_america")](http://acephalous.typepad.com/.shared/image.html?/photos/uncategorized/plot_against_america.jpg)For the next few days the Valve will host a mini-seminar on Philip Roth’s [_The Plot Against America_](http://www.amazon.com/exec/obidos/tg/detail/-/0618509283?v=glance).  I kicked around some ideas about [Roth’s ambiguously acknowledged debt to Sinclair Lewis](http://acephalous.typepad.com/acephalous/2005/08/one_quasibloomi.html)‘s [_It Can’t Happen Here_](http://www.amazon.com/exec/obidos/tg/detail/-/0451525825?v=glance) yesterday.  I’ll post a completed version of that post when, well, when I complete it to my satisfaction.  Also, I entreat readers who want to write a substantial response to either the novel or our criticism of it to send me an email.  _You_ could be the Valve’s next “[Guest Author](http://www.thevalve.org/go/valve/archive_guestauthors/).”
 

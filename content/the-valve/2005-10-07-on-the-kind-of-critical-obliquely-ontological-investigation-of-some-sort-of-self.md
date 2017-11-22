@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/on_the_kind_of_critical_obliquely_ontological_investigation_of_some_sort_of/
 
-##  Friday, October 07, 2005 
+* Friday, October 07, 2005 
 
 Two long posts, both concerning theory, both beginning with a quotation of a previous discussion.  Serendipity?  The constitutional inability to resist having the last word?  Doesn’t matter.  Also unimportant: the experiment I concocted whereby I would post this here and ask Mark to post it on [Long Sunday](http://www.long-sunday.net) to see whether the two crowds would treat the material differently in some meaningful way.  But I digress.  (Despite not even having started yet.)  Ahem: [I accused](http://www.thevalve.org/go/valve/article/political_spirituality/#4230) Mark Kaplan of reading [Foucault’s account of historical interest](http://www.long-sunday.net/long_sunday/2005/06/foucault_and_ir.html) naively.  I quoted this bit as proof:
 

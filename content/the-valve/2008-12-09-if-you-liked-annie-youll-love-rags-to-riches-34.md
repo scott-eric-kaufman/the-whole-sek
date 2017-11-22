@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/if_you_liked_emannie_em_youll_love_emrags_to_riches_em/
 
-##  Tuesday, December 09, 2008 
+* Tuesday, December 09, 2008 
 
 Today I learned that as often as I throw around the phrase “Horatio Alger novels,” I’d be hard-pressed to list many works that fit the bill.  There are, of course, novels written by Horatio Alger, but even they only qualify on a technicality.  (Plus, not all of Alger’s novels rely on pluck and luck to drive the narrative.)  Not that his novels weren’t enormously popular, as over 17,000,000 million copies were sold in the 1860s through 1880s.  Nor was their uplifting ideology incidental, as the popularity of C. B. Seymour’s _Self-Made Man_ (1858) and Freeman Hunt’s _Lives of American Merchants_ (1858) attest.  
 

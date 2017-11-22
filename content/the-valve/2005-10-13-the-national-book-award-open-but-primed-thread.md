@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_national_book_award_open_but_primed_thread/
 
-##  Thursday, October 13, 2005 
+* Thursday, October 13, 2005 
 
 Also [announced](http://www.nationalbook.org/nba2005_finalistlist.html) today, the finalists for the National Book Awards:
 

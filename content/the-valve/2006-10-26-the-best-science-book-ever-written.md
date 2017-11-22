@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_best_science_book_ever_written/
 
-##  Thursday, October 26, 2006 
+* Thursday, October 26, 2006 
 
 ...is _a novel_?
 

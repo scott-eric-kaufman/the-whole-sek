@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/combobulated_being_a_play_in_which_we_laugh_at_arrogant_undergraduates/
 
-##  Sunday, December 21, 2008 
+* Sunday, December 21, 2008 
 
 (_In a small classrroom, a young professor is discussing an [R.P. Blackmur essay on Shakespeare’s sonnets](http://www.amazon.com/exec/obidos/ASIN/B001JL0BVW/diesekoschmar-20) with a group of twelve or so students._)
 

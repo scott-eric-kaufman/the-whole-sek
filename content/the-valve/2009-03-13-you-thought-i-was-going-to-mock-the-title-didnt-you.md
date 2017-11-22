@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/you_thought_id_mock_the_title_didnt_you/
 
-##  Friday, March 13, 2009 
+* Friday, March 13, 2009 
 
 Via [_Savage Minds_](http://savageminds.org/2009/03/10/winner-of-the-worst-postmodern-article-title-award/), I came across this article from the July 2008 edition of _Qualitative Inquiry_:
 

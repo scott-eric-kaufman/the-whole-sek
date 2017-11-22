@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/some/
 
-##  Wednesday, September 13, 2006 
+* Wednesday, September 13, 2006 
 
 The new issue of [_Bookforum_](http://www.bookforum.net/) features James Shapiro’s [excellent review](http://www.bookforum.net/shapiro.html) of Ron Rosenbaum’s [_The Shakespeare Wars_](http://www.amazon.com/exec/obidos/ASIN/0375503390/diesekoschmar-20) and Kenneth Gross’s [_Shylock Is Shakespeare_](http://www.amazon.com/exec/obidos/ASIN/0226309770/diesekoschmar-20).   As I noted [last month](http://acephalous.typepad.com/acephalous/2006/08/today_i_finally.html), I’ve come to Shakespeare through the criticism.   Instead of having my love of The Bard desanguinated by years of graduate study, I’ve acquired a taste for the man whose works inspired _Dead Poets Society_ to inspire generations to hazard a thwack at the GRE Subject Exam in Literature in English.[
 

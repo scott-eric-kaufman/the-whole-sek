@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/thanks_to_adam_even_academics_writing_books_about_comics_are_insufferable_e/
 
-##  Tuesday, July 21, 2009 
+* Tuesday, July 21, 2009 
 
 If you hadn’t noticed, one of my esteemed co-bloggers [recently exploded the internet](http://punkadiddle.blogspot.com/2009/07/hugos-2009.html), such that people [are saying](http://whatever.scalzi.com/2009/07/21/on-the-subject-of-to-whom-to-address-your-literary-kvetch/) [things like](http://punkadiddle.blogspot.com/2009/07/hugos-2009.html?showComment=1247957928991#c6979195164012130382):
 

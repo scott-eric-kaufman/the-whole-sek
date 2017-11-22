@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/ra/
 
-##  Monday, July 31, 2006 
+* Monday, July 31, 2006 
 
 Reading zuzu’s [complaint](http://www.feministe.us/blog/archives/2006/07/31/why-do-i-bother/) about the attention a rape inevitably focuses on everyone but the perpetrator reminded me of something I’d drafted a few months back but didn’t post.  At the time, I’d just written [about rape](http://acephalous.typepad.com/acephalous/2006/06/comic_book_rape.html) in 
 comic books

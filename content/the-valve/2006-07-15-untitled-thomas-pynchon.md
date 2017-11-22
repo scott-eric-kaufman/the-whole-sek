@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/untitled_thomas_pynchon/
 
-##  Saturday, July 15, 2006 
+* Saturday, July 15, 2006 
 
 This information shot across my radar a few weeks back, but I didn’t believe it until today.\*  You can now pre-order your very own [Untitled Thomas Pynchon (Hardback)](http://www.amazon.com/exec/obidos/ASIN/159420120X/diesekoschmar-20/).   
 I’m not sure what to make of Amazon’s description (or its purported source):

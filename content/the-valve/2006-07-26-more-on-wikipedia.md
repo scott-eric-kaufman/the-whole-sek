@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/more_on_wikipedia/
 
-##  Wednesday, July 26, 2006 
+* Wednesday, July 26, 2006 
 
 **Wikipedia Celebrates 750 Years Of American Independence**
 

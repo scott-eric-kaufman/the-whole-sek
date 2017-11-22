@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_telos_of_the_back_cover/
 
-##  Wednesday, July 08, 2009 
+* Wednesday, July 08, 2009 
 
 I can imagine no more frustrating a reading experience than the one I just had with Iain M. Banks' _[Excession](http://www.amazon.com/exec/obidos/ASIN/0553575376/diesekoschmar-20)_.  Is it a great novel?  
 

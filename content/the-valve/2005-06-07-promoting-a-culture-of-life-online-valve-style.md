@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/promoting_a_culture_of_life_online_valve_style/
 
-##  Tuesday, June 07, 2005 
+* Tuesday, June 07, 2005 
 
 [Many](http://littleprofessor.typepad.com/the_little_professor/2005/06/well_yessss.html), [many](http://www.danieldrezner.com/archives/002104.html), [many](http://hnn.us/blogs/entries/12320.html) people linked to [the article](http://chronicle.com/jobs/2005/06/2005060601c.htm) in [_The Chronicle of Higher Education_](http://chronicle.com) on “Academic Flame Wars.”  To my mind, Miriam hits the nail on the head when she says “It’s not clear what we’re supposed to learn from this article. That people are sometimes nasty to each other in online environments? That discussion groups aren’t necessarily warm and cuddly? That spending time online can distract you from other pursuits?  I could have sworn that most of us knew these things already.”  As a description of the way people relate online, Mr. Mendelsohn’s account is as accurate as any.  For those impressed by its profundities, well, you and I should have words about the sky (still up), the seas (still water), food (still edible) and television (still unbearable).*  For the rest of you, the real issue in this article is accountability.
 

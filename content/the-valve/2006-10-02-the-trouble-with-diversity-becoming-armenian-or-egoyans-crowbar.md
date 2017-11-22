@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_trouble_with_diversity_becoming_armenian_or_egoyans_crowbar/
 
-##  Monday, October 02, 2006 
+* Monday, October 02, 2006 
 
 For Walter Benn Michaels, “culture” is a comforting fiction based on an unscientific racial logic, an incoherent theory of historical transmission, and a discredited linguistic essentialism.  I’ll leave the last of those arguments to the experts who will show up later this week; I’ll address the first two today—albeit obliquely, through a reading of the Atom Egoyan film [_Next of Kin_](http://www.amazon.com/exec/obidos/ASIN/B00005KCAU/diesekoschmar-20) (1984).  Egoyan seems the perfect foil for Michaels’ account of identity—born in Egypt, raised in Canada, proudly Armenian—and yet, with the notable exception of [_Ararat_](http://www.amazon.com/exec/obidos/ASIN/B00005JLR5/diesekoschmar-20) (2002), his identitarian commitments never drift into uncritical sentimentality.  His obsession with cultural transmission, in particular, his probing of the _means_ by which memories intrude into the present moment, prevents such drift.  
 

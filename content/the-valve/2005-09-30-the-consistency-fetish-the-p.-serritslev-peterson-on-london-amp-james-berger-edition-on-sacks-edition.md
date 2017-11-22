@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_consistency_fetish_the_p_serritslev_peterson_on_london_james_berger_edi/
 
-##  Friday, September 30, 2005 
+* Friday, September 30, 2005 
 
 Per Serritslev Peterson’s “Jack London’s Medusa of Truth” (_Philosophy and Literature_ 26.1) challenges our ideas about the notoriously eclectic and idiosyncratic philosophical thought of Jack London, a.k.a. “The Boy Socialist,” a.k.a. “The Adolescent Nietzschean,” a.k.a. “The College Spencerian,” a.k.a. “The Middle-Aged Nietzschean Socialist,” a.k.a. “The Forty Year-Old Jungian.”  London bounced from one hermetically-sealed-but-internally-coherent philosophical system to another for most of his short life; still, Peterson insists that London’s critics misconstrue the nature of his philosophical questing.  [_career-threatening dangling participle removed from previous sentence_ -ed.] So he gathers London’s little truthlets and declares
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/a_literary_carnival_or_do_i_already_waste_enough_of_your_time/
 
-##  Saturday, July 09, 2005 
+* Saturday, July 09, 2005 
 
 A very short post to ask a very simple question:
 

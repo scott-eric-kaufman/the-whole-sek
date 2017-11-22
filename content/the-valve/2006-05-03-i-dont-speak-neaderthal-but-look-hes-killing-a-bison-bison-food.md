@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/i_dont_speak_neaderthal_but_look_hes_killing_a_bison_bison_food/
 
-##  Wednesday, May 03, 2006 
+* Wednesday, May 03, 2006 
 
 Charles Piller, from today’s [_LA Times_](http://www.latimes.com/business/la-fi-forever3may03,0,6513414.story):
 

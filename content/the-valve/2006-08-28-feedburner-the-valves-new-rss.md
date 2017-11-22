@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/feedburner_the_valves_new_rss/
 
-##  Monday, August 28, 2006 
+* Monday, August 28, 2006 
 
 Since I’ve started reading blogs via RSS, I’ve noticed something about ours:
 

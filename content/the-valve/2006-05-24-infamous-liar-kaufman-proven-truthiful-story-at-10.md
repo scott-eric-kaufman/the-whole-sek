@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/infamous_liar_kaufman_proven_truthful_story_at_10/
 
-##  Wednesday, May 24, 2006 
+* Wednesday, May 24, 2006 
 
 _Scott Eric Kaufman boards a flight to Houston, TX.  He stumbles into his aisle seat and opens his backpack.  He pulls a stack of papers from it.  Because he needs new glasses, the name “McCann” is emblazoned in 14 point font across the top of first page.  Across the aisle sits a svelte young man clad all in black reading a Vintage International paperback.  He glances at Scott, then at the stack, then returns to his book.  The plane taxies down the runway and takes off._
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/theorys_empire_activity_elsewhere/
 
-##  Wednesday, July 13, 2005 
+* Wednesday, July 13, 2005 
 
 A quick update on posts about _Theory’s Empire_ that aren’t up on this site.  First, there’s [Mr. Berube](http://www.michaelberube.com/index.php/weblog/engine_trouble/)‘s contribution on the same Bauerlein article Jonathan discusses below.  (Why that particular article’s such a lightning rod should be the mandatory topic of the next post written about it.)  Then there’s [Tim Burke](http://weblogs.swarthmore.edu/burke/?p=60)‘s discussion of Theory’s cultural moment and how _Theory’s Empire_ confronts its legacy.  Finally, there’s [Scott Eric Kaufman](http://acephalous.typepad.com/acephalous/2005/07/theorys_empire__2.html)‘s discussion of the now infamous “erudition exchange” and how it’s led a little boy astray in the wide, wide academic wilderness.  (Not to ruin the ending, but...he dies.)
 

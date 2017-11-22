@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/im_fairly_certain_they_mean_that_as_a_compliment/
 
-##  Thursday, February 05, 2009 
+* Thursday, February 05, 2009 
 
 Via _[io9](http://io9.com/5147328/discover-the-king-of-high+concept-science-fiction-storytelling)_, I learn that one of our authors “deserves more literary fame as a post-modern trickster.”  I wonder who [that could be](http://www.tor.com/index.php?option=com_content&amp;view=blog&amp;id=13275)?  (I also learned that I’m about [three novels behind](http://www.amazon.com/gp/search?ie=UTF8&amp;keywords=adam%!r(MISSING)oberts&amp;tag=diesekoschmar-20&amp;index=books&amp;linkCode=ur2&amp;camp=1789&amp;creative=9325)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1).  I blame the dissertation.)
 

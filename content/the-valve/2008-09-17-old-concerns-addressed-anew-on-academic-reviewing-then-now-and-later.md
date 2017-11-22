@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/old_concerns_addressed_anew_on_academic_reviewing_then_now_and_later/
 
-##  Wednesday, September 17, 2008 
+* Wednesday, September 17, 2008 
 
 As I [mentioned yesterday](http://www.thevalve.org/go/valve/article/meet_the_new_boss_same_as_the_old_boss/), the new issue of _American Literary History_ addresses the limitations of the modern academic book review.  To my mind, there are two fundamental problems with contemporary reviews.  The first is [the form’s conceit](http://acephalous.typepad.com/acephalous/2007/03/oscar_wilde_and.html):
 

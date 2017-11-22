@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/whither_the_valve/
 
-##  Tuesday, February 27, 2007 
+* Tuesday, February 27, 2007 
 
 Off discussing and/or composing posts about Very Important Literary Things:
 

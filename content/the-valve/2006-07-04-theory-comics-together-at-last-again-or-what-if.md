@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/theory_comics_together_at_last_again_or_what_if/
 
-##  Tuesday, July 04, 2006 
+* Tuesday, July 04, 2006 
 
 \[_X-posted to [Acephalous](http://acephalous.typepad.com/).  The [reason](http://acephalous.typepad.com/acephalous/2006/05/how_do_i_know_d.html) for the “again” above, if you’re curious._\]
 

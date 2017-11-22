@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/tur/
 
-##  Friday, August 04, 2006 
+* Friday, August 04, 2006 
 
 \[_X-posted from [Acephalous](http://acephalous.typepad.com/acephalous/2006/08/continuing_with.html)_\]
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/how_not_to_use_emtheorys_empire_em/
 
-##  Friday, November 21, 2008 
+* Friday, November 21, 2008 
 
 Scanning through the critical literature on Kafka—the dissertation finished, I’m free to [pursue old ideas](http://acephalous.typepad.com/acephalous/2008/11/i-have-no-liter.html)—I run into an essay which uses _Theory’s Empire_ in the very manner the anthology’s critics assumed everyone would.  I will, however, Google-proof my exasperation by replacing all mentions of Derrida and things Derridean with cognates of the word carrot.  The essay begins:
 

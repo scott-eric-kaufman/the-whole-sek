@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/don_draper_as_an_unraptured_emma_bovary/
 
-##  Friday, January 15, 2010 
+* Friday, January 15, 2010 
 
 (_[x-posted](http://acephalous.typepad.com/acephalous/2010/01/don-draper-as-an-unraptured-emma-bovary.html) [twice-over](http://lefarkins.blogspot.com/2010/01/don-draper-as-unraptured-emma-bovary.html) because this is the closest I’ve come to actual literary analysis, as opposed to comp-rhet material, in ages.  As you might can tell, I’ve had some difficulties thinking of myself as a proper literary scholar of late, and have absented myself from these parts because of it.  What can I say—other than when the profession refuses to treat you like what it trained you to be, you stop thinking of yourself in its terms.  But enough of that.  Here, have a post!_)
 

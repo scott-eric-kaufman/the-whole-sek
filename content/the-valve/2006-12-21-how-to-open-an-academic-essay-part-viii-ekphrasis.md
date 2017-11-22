@@ -4,7 +4,7 @@
 
 &lt;&lt; [Weird Monster Issue!](http://www.thevalve.org/go/valve/article/weird_monster_issue/) | [Front Page](http://www.thevalve.org/go/valve/) | [Vanity Publishing](http://www.thevalve.org/go/valve/article/vanity_publishing/) &gt;&gt;
 
-##  Thursday, December 21, 2006 
+* Thursday, December 21, 2006 
 
 ### How to Open an Academic Essay, Part VIII: Ekphrasis
 

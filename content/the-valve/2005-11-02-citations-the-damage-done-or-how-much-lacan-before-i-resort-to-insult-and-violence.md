@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/c/
 
-##  Wednesday, November 02, 2005 
+* Wednesday, November 02, 2005 
 
 A critic establishes trust with his or her readers by citational proxy.  Who cites and is cited by whom means everything when evaluating contemporary criticism.  So when I run across an article about Nella Larsen’s _Passing_ which cites seven works by Jacques Lacan, three by Freud, ten glosses of Lacan _but only five citations from the rich critical history of Larsen’s novel_, I hardly need to read the article to know that I do not trust this critic’s ability to evaluate his or her sources.  (All that talk of gazing and yet so myopic.  Sigh.)  A critic who don’t know _merde_ from _cirage à chaussures_ (that sounds so much snappier in English) cannot expect the majority of readers to consider the points he or she forwards with the seriousness befitting academic discourse . . . and by "the majority of readers," I only mean "all those who don’t share the critic’s supremely constricted set of assumptions."  
 

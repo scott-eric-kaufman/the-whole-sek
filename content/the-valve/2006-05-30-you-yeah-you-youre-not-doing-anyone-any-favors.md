@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/
 
-##  Tuesday, May 30, 2006 
+* Tuesday, May 30, 2006 
 
 **Alternate Title: And People Think _Our_ Comment Threads Are Nasty?**
 

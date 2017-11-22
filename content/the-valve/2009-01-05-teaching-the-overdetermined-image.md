@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_overdetermined_image/
 
-##  Monday, January 05, 2009 
+* Monday, January 05, 2009 
 
 As anyone who teaches funny books or films knows, the task of convincing students that the scene before them is anything other than incidental would try Job’s patience.  You show them a panel from the surprisingly awful _Superman and Batman vs. Aliens and Predator_ like, say, this
 

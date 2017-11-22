@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/same_senseless_ramblings_slightly_bigger_stage_or_intellectual_investments/
 
-##  Thursday, June 02, 2005 
+* Thursday, June 02, 2005 
 
 First, I’d like to thank John for the invite.  I’m still 100%!c(MISSING)ommitted to writing all my usual nonsense at my [place](http://acephalous.typepad.com), but now I have a venue for some of my more serious prattle, like…
 

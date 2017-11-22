@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/multiple_media_extravaganzas_or_losing_buffy_i_dont_think_so/
 
-##  Saturday, November 19, 2005 
+* Saturday, November 19, 2005 
 
 _When I composed this on Friday I didn’t even consider cross-posting it here, but given the recent discussion below, I’ve realized there may be an audience for it.  I warn you: It is silly, and not a party to the tone I typically employ here, but since changes are in the air . . ._ 
 

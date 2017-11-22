@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/theorys_empire_quick_hits/
 
-##  Tuesday, July 26, 2005 
+* Tuesday, July 26, 2005 
 
 Behold!  Yet another exercise in the fine art of the semi-topical link!  I’ve penned two of them: [the first](http://acephalous.typepad.com/acephalous/2005/07/superadequate_s.html) responds to [Sean’s comment](http://www.thevalve.org/go/valve/article/theorys_empire_ersatz_theoretical_ecumenicalism_criticism_qua_criticism/#2276) on the value of structural homologies with a discussion of the Charleses Darwin and Babbage, Robert Chambers and _monstrous_ births.  [The second](http://acephalous.typepad.com/acephalous/2005/07/not_bedazzled_b.html) is bi-semi-topical: it looks back to the issues [I raised](http://www.thevalve.org/go/valve/article/theorys_empire_ersatz_theoretical_ecumenicalism_criticism_qua_criticism/) about _Theory’s Empire_ by looking forward to the issues I will raise about _The Literary Wittgenstein_.
 

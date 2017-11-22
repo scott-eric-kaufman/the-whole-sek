@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/arguments_about_higher_eclecticism_as_illustrated_by_two_paintings_with_one/
 
-##  Wednesday, April 26, 2006 
+* Wednesday, April 26, 2006 
 
 \[_What follows is a version of my initial response to the Spivak event.  It seemed inappropriate earlier.  I lacked the time to edit my complaints constructively last week, and still do.  But I post them nonetheless, if only to deflate some preposterous claims forwarded elsewhere.  I hide it all below the fold since it likely bores the lot of you.  That said, it contains many pretty pictures, which we can discuss in isolation from the silly words which surround them.  This will, however, be my final word on the matter._\]
 

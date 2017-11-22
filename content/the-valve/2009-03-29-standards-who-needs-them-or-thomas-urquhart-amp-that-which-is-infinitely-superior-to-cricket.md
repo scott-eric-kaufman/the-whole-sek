@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/standards_who_needs_them_or_thomas_urquhart_that_which_is_infinitely_superi/
 
-##  Sunday, March 29, 2009 
+* Sunday, March 29, 2009 
 
 Teaching composition exclusively leads to (1) a greater appreciation for the pedestrian complexity of correctly subordinated clauses and (2) a bone-tiredness for the unmerited praise of student peer reviews.  As someone with a penchant for paragraph-length sentences, I find (1) wholly salutary; but (2) irks me endlessly.  Why?  In one of my undergraduate History of the English Language course, the professor handed out slips of paper on which he had written a single sentence and told everyone to decipher what it meant, because he wanted us to present the sentence and the paraphrase to the class in ten minutes.  My sentence read:
 

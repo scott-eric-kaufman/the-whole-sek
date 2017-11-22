@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/what_i_can_and_cant_say_about_jenny_davidsons_breeding/
 
-##  Friday, May 29, 2009 
+* Friday, May 29, 2009 
 
 They say that when you’re writing a dissertation, every cultural artifact you consume because grist in its conceptual mill—and they are correct.  Because when you’re writing a dissertation, everything seems relevant.  So even though I’m courting cliché by saying it, I’m going to say it anyway: everything in Jenny Davidson’s [_Breeding_](http://www.amazon.com/exec/obidos/ASIN/0231138784/diesekoschmar-20) seems relevant to my research.  Why?  
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/on_singular_double_issues_and_various_confusions_about_academic_publishing/
 
-##  Sunday, September 18, 2005 
+* Sunday, September 18, 2005 
 
 This barely rises above the level of legitimate post, but I’m curious as to why the [Project Muse](http://muse.jhu.edu/) mailer sent me an email this evening containing both these entries:
 

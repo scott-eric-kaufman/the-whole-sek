@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/sa/
 
-##  Sunday, June 18, 2006 
+* Sunday, June 18, 2006 
 
 Yesterday I found a search for “[f\*\*k act theory](http://www.google.com/search?q=fuck+act+theory)“ in my logs.  I sat back, imagined how disappointed the poor soul who scoured the known Internet for some [ABC](http://www.stupid.com/stat/ABCG.html) “F**k Act Theory” must’ve felt after his search proved fruitless, and decided to save others from a similar fate.  I composed [the first](http://acephalous.typepad.com/acephalous/2006/06/fuck_act_theory.html) and [second installment](http://acephalous.typepad.com/acephalous/2006/06/fuck_act_theory_1.html) of a planned nine-part series I call “Towards a History of F**k Act Theory.”  Because blogging, even academic blogging, is _all about keeping the customer satisfied_.  That said, I’d be interested in other, similar projects inspired by log oddities.  We ought to keep a running tab on the subjects Google demands we address.  
 

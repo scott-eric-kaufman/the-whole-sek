@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/con/
 
-##  Tuesday, September 30, 2008 
+* Tuesday, September 30, 2008 
 
 Presented by HumaniTech and the UCI Humanities Center on Friday, 24 October 2008 in [135 HIB](http://maps.google.com/maps?f=q&amp;hl=en&amp;geocode=&amp;q=humanities+instructional+building,+irvine,+ca&amp;ie=UTF8&amp;ll=33.648554,-117.843795&amp;spn=0.001451,0.002843&amp;t=h&amp;z=19&amp;iwloc=A).  The whole day looks fascinating, but this panel should be a thing of great and terrible profundity:
 

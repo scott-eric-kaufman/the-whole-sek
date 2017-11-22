@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/upcoming_book_event_lionel_trillings_emthe_journey_abandoned_the_unfinished/
 
-##  Tuesday, September 02, 2008 
+* Tuesday, September 02, 2008 
 
 On Wednesday, _The Valve_ will begin hosting a book event on Lionel Trilling’s [_The Journey Abandoned: The Unfinished Novel_](http://www.amazon.com/exec/obidos/ASIN/0231144504/diesekoschmar-20).  Stephen Schryer ([previously discussed](http://www.thevalve.org/go/valve/article/fantasies_of_the_new_class/)) will moderate.  Stephen is the author of “Mary Mccarthy’s Field Guide to Us Intellectuals: Tradition and Modernization Theory in Birds of America” ([_Modern Fiction Studies_ 53.4](http://muse.jhu.edu/journals/modern_fiction_studies/v053/53.4schryer.html)) and “Fantasies of the New Class: The New Criticism, Harvard Sociology, and the Idea of the University” ([_PMLA_ 122.2](http://www.mlajournals.org/toc/pmla/2007/122/3)).  
 

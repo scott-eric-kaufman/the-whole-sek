@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/mo/
 
-##  Friday, January 27, 2006 
+* Friday, January 27, 2006 
 
 When the Students for a Democratic Society announced it would be convening this summer for the first time since 1969, my jaw hit the floor.  Did [Paul Buhle](http://mrzine.monthlyreview.org/buhle150106.html) suddenly decide that the New Left and its ideological children weren’t _visibly_ impotent enough?  Could he choose a more inappropriate moment to revive the New Left obsession with symbolic politics?  
 

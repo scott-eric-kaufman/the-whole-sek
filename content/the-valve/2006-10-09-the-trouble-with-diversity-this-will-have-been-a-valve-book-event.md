@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_trouble_with_diversity_this_will_have_been_a_valve_book_event/
 
-##  Monday, October 09, 2006 
+* Monday, October 09, 2006 
 
 Although posts on other topics will begin appearing now, [_The Trouble With Diversity_](http://www.amazon.com/exec/obidos/ASIN/080507841X/diesekoschmar-20) event it not quite finished yet.  We still have a few contributors whose choked schedules have prevented them from participating.  Also, as noted previously, Walter Benn Michaels will be responding to the posts and comments in the coming weeks.    
 

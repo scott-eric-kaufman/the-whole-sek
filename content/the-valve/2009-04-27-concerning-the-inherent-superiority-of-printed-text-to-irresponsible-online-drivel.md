@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/concerning_the_inherent_superiority_of_printed_text_to_irresponsible_online/
 
-##  Monday, April 27, 2009 
+* Monday, April 27, 2009 
 
 Is it absolutely necessary for the image gracing the cover of the most recent issue _of_ _the official mouthpiece of my professional organization_ to depict something that, when seen on my desk by a colleague from another department, compelled her to ask where [a viper fish would even get a detachable penis to whack off against a shrimp-wielding toucan](http://www.mlajournals.org/action/showLargeCover?issue=40002160)? Do other departments not laugh at us enough already?
 

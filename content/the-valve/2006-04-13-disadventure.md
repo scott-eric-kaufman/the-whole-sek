@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/dis/
 
-##  Thursday, April 13, 2006 
+* Thursday, April 13, 2006 
 
 \[_By [popular demand](http://acephalous.typepad.com/acephalous/2006/04/disadventure.html#comment-16123332), x-posted from [Acephalous](http://acephalous.typepad.com/acephalous/2006/04/disadventure.html)_.\]
 

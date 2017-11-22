@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/pla/
 
-##  Tuesday, December 12, 2006 
+* Tuesday, December 12, 2006 
 
 ### Plagiarism? What Plagiarism? or, STOP BLOGGING, YOU ENABLERS!
 

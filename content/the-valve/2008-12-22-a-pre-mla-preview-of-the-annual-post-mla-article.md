@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/a_pre_mla_preview_of_the_annual_post_mla_article/
 
-##  Monday, December 22, 2008 
+* Monday, December 22, 2008 
 
 Every year more than 10,000 literature scholars gather at the end of December for the convention of the Modern Language Association, the 124th of which begins next week in San Fransisco.
 

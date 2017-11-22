@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/folk_cohesion_the_anti_intellectualism_of_identitarian_politics_and_theoret/
 
-##  Wednesday, June 29, 2005 
+* Wednesday, June 29, 2005 
 
 Two quick notes:
 

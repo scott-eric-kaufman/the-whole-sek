@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/w/
 
-##  Sunday, January 22, 2006 
+* Sunday, January 22, 2006 
 
 \[_X-posted all the way [home](http://acephalous.typepad.com/)._\]
 

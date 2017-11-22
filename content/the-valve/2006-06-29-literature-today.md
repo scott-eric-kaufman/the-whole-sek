@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/today_in_literature/
 
-##  Thursday, June 29, 2006 
+* Thursday, June 29, 2006 
 
 \[_If people find such link-dumps pointless, or if they annoy, I’ll take it elsewhere.  It’s simply another way to consolidate, via re-write, what I do daily anyway._\]
 

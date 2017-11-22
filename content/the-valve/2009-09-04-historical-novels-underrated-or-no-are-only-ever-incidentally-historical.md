@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/historical_novels_underrated_or_no_are_only_ever_incidentally_historical/
 
-##  Friday, September 04, 2009 
+* Friday, September 04, 2009 
 
 In the comments to Eric Rauchway’s post about [underrated historical novels](http://edgeofthewest.wordpress.com/2009/09/02/best-underrated-historical-novel/), I [pointed out](http://edgeofthewest.wordpress.com/2009/09/02/best-underrated-historical-novel/#comment-52406) that there is a problem with talking about the “historical novel” as a self-evident genre.  I did not, however, go into much detail as to why, because I covered the topic on my qualifying exams and the less said about that experience the better.  But since Eric [asked so nicely](http://edgeofthewest.wordpress.com/2009/09/02/best-underrated-historical-novel/#comment-52407), I will oblige and show you why this discussion’s so painfully tangled.
 

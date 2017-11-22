@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/this_sandworm_anon_let_flee_a_fart_as_gret_as_it_hadde_ben_a_thundir_dent/
 
-##  Wednesday, October 08, 2008 
+* Wednesday, October 08, 2008 
 
 On this day in 1920, Frank Herbert Jr. was born.  Herbert devoted six years to “researching” what would become the [most popular science fiction novel of all time](http://www.amazon.com/exec/obidos/ASIN/0441172717/diesekoschmar-20). I’ve always wondered what counts as “research” when writing a novel.  I can understand the need for writers of hard science fiction to familiarize themselves with the ins and outs of a particular field, but for someone like Herbert, wouldn’t “world-building” more accurately describe his efforts?  I say this because Herbert describes a world in which the mysticism and magic have replaced science and technology.
 

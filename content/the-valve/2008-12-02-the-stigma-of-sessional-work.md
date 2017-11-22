@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_stigma_of_sessional_work/
 
-##  Tuesday, December 02, 2008 
+* Tuesday, December 02, 2008 
 
 Given [how lovely the market is this year](http://academiccog.blogspot.com/2008/12/movement-on-wiki.html), I wonder how faculty who earned tenure in the ‘50s and ‘60s and ‘70s will respond to up-and-coming scholars who slummed as adjuncts or lecturers during the Great Recession of the December 2007 and Counting.  Will they convince themselves they marketed their wares when the state of the nation was equally bleak?  
 

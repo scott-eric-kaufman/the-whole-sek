@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/notes_from_the_mla_part_i/
 
-##  Wednesday, January 03, 2007 
+* Wednesday, January 03, 2007 
 
 [Horace](http://delightandinstruct.blogspot.com/) [writes](http://delightandinstruct.blogspot.com/2007/01/meeting-bloggers-at-mla.html):
 

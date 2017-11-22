@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/c1/
 
-##  Sunday, April 23, 2006 
+* Sunday, April 23, 2006 
 
 [Official Stamp O’ Approval](http://acephalous.typepad.com/iapprove.mp3) [.mp3]
 

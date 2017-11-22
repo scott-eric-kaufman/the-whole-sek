@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/festivus_or_the_other_holiday_born_of_high_modernism/
 
-##  Thursday, August 10, 2006 
+* Thursday, August 10, 2006 
 
 While noodling around Wikipedia last night, I discovered that not only did I share [my birthday](http://en.wikipedia.org/wiki/December_23) with a visionaries (Nostradamus, Joseph Smith), politicians (Helmut Schmidt, “[Dan Quayle’s Brain](http://en.wikipedia.org/wiki/William_Kristol)“), famous singers (Bruce Hornsby, Victoria Williams, Eddie Vedder) and a Corey (Haim)—but that it falls on [Festivus](http://en.wikipedia.org/wiki/Festivus).  Reading this detailed account of the origin of and rituals associated with a fictional holiday, I learned, to my surprise, that not only is it _not_ a fictional holiday, but that it’s _based on a work of high modernism_.  Can you guess which one from the following description?  ([Video is also available](http://www.youtube.com/watch?v=uGvut4zr1HI).)
 

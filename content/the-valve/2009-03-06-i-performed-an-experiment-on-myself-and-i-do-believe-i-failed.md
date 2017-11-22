@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/i_performed_an_experiment_on_myself_and_i_do_believe_i_failed/
 
-##  Friday, March 06, 2009 
+* Friday, March 06, 2009 
 
 A friend sent me the text of a recent _WSJ_ editorial entitled “Will This Crisis Produce a ‘Gatsby’?”  I’ll link to it later—for now I want to recreate my bad-faith reading experience in all its glory.  My first reaction was to the title, even though I know authors never write their own titles.  But this one seemed sufficiently troublesome to warrant criticism.  I wrote:
 

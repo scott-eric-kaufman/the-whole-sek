@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/justifying_comics_as_legitimate_objects_of_study_part_ii_hell_stalks_on_fou/
 
-##  Tuesday, April 07, 2009 
+* Tuesday, April 07, 2009 
 
 I concluded the previous post with a nod to William Blake as someone who explored the word-picture relationship and I will get to that, but first I should clarify a few issues I raised without fully addressing yesterday:
 

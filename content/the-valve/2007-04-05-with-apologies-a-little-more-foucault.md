@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/with_apologies_a_little_more_foucault/
 
-##  Thursday, April 05, 2007 
+* Thursday, April 05, 2007 
 
 A few more brief notes about the discussion of Foucault are in order.  Far from being tired, [as Alex suggests](http://jeestunautre.wordpress.com/2007/04/05/forget-foucault/), I think we should have [more such conversations](http://acephalous.typepad.com/acephalous/2007/02/the_sharp_repor.html), and more frequently.  As serious scholars, we should not concede the floor to [sad spectacles of transparent cronyism](http://www.long-sunday.net/long_sunday/2007/04/regarding_the_s.html), nor should we brook the claim that a frequently cited work—one whose title often appears to the immediate right of words like “seminal” and “magesterial”—is [near-juvenalia](http://www.thevalve.org/go/valve/article/the_warden_will_see_you_now_mr_foucault/#15151).  Critics of _Madness and Civilization_ are not members of a committee maliciously conspiring to torpedo the career of a promising graduate student, but members of a scholarly community which (ideally) can discuss the relative merits of a work considered important.  
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/reader_response_and_the_editorial_experience_or_to_them_no_to_me/
 
-##  Monday, December 19, 2005 
+* Monday, December 19, 2005 
 
 \[_X-posted from [Acephalous](http://acephalous.typepad.com/)._\]
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/free_hegel_criticism_stop_selling_blue_jeans/
 
-##  Monday, November 13, 2006 
+* Monday, November 13, 2006 
 
 The first half of the title comes from a joke that made the rounds in the [sabermetric](http://en.wikipedia.org/wiki/Sabermetrics) community long before Michael Lewis’ [_Moneyball_](http://www.amazon.com/exec/obidos/ASIN/0393324818/diesekoschmar-20) had been turned into an [allegory](http://www.tnr.com/blog/openuniversity?pid=47179) [of](http://www.tnr.com/blog/openuniversity?pid=47179) [departmental](http://www.tnr.com/blog/openuniversity?pid=47792) [hiring](http://www.tnr.com/blog/openuniversity?pid=47953) [practices](http://prawfsblawg.blogs.com/prawfsblawg/2005/09/entry_level_hir.html).\*  The idea was that sabermetric critics knew better than scouts, coaches, managers and general managers who should be on the field in a baseball game.  Some players possessed skills—in particular, the ability to get on base—that sabermetricians thought criminally undervalued, so members of the sabermetric community would demand the “release” of these players via sarcastic email, newsgroup and BBS campaigns to “Free Such-and-Such!”  Sure, Such-and-Such may clog the basepaths and be a butcher in the field, but his ability to get on base at a .390 clip—almost four times per ten plate appearances—means he contributes .31 more runs per game than that athletic-looking fellow over there.  
 

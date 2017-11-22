@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/octavia_butler_rip/
 
-##  Monday, February 27, 2006 
+* Monday, February 27, 2006 
 
 [Octavia Butler](http://seattlepi.nwsource.com/books/260959_butlerobit26ww.html") died on Friday.  I’ve written a [couple](http://acephalous.typepad.com/acephalous/2005/11/faith_in_noveli.html) of [appreciations](http://acephalous.typepad.com/acephalous/2005/12/readerresponse_.html) in the past, but they’re entirely inadequate.  As is anything I could write now.  Wow.  I’m in shock.  This is my first favorite author to die on me.  
 

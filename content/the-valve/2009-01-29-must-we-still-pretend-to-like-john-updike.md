@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/must_we_still_pretend_to_like_john_updike/
 
-##  Thursday, January 29, 2009 
+* Thursday, January 29, 2009 
 
 For the moment, I’m going to pretend I’ve never read an entire novel by John Updike and judge his literary legacy on the basis of one paragraph [singled out](http://bighollywood.breitbart.com/bshapiro/2009/01/28/john-updikes-dead-do-we-still-have-to-pretend-to-like-his-books/) as representative of the awfulness of his prose.  The passage, we are told, typifies his habit “vacillat[ing] from the tedious to the atrocious,” scoring “somewhere between Thomas Hardy and Kate Chopin on the soporific scale,” and reads thus:
 

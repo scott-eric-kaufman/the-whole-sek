@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/congratulations_adam/
 
-##  Monday, September 21, 2009 
+* Monday, September 21, 2009 
 
 On occasion, it’s an honor [not even to be nominated](http://www.guardian.co.uk/books/2009/sep/18/science-fiction-booker-prize):
 

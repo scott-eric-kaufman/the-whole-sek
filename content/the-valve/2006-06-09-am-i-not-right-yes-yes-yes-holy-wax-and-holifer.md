@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/am_i_not_right_yes_yes_yes_holy_wax_and_holifer/
 
-##  Friday, June 09, 2006 
+* Friday, June 09, 2006 
 
 [Some people](http://waxbanks.typepad.com/), as well as [some others](http://theworldsforgottenboy.blogspot.com/), write prose which shames me.  Not into silence, mind you, but into considering it.  Any [_Wake_](http://www.amazon.com/exec/obidos/ASIN/0141181265/diesekoschmar-20) partisans—as well as all you [Roland McHugh](http://www.amazon.com/exec/obidos/ASIN/0801841909/diesekoschmar-20) groupies—will appreciate Waxbank’s [exagmination round his factification for incamination](http://waxbanks.typepad.com/blog/2006/06/the_working_wak.html) of Joyce’s “Work in Progress.”  That post will also interest those who—like this hobbled fool—have recently read Russell Hoban’s impressive [_Riddley Walker_](http://www.amazon.com/exec/obidos/ASIN/0253212340/diesekoschmar-20).  Outside of M. John Harrison’s [_The Course of the Heart_](http://www.amazon.com/exec/obidos/ASIN/1892389975/diesekoschmar-20), I can’t think of another book which has stuck to my (limited) critical faculties like smooth [_arachis hypogaea_](http://en.wikipedia.org/wiki/Peanut) paste.
 

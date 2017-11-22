@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/don_dra/
 
-##  Monday, January 18, 2010 
+* Monday, January 18, 2010 
 
 Let me open with a quick clarification about [the previous _Mad Men_ post](http://www.thevalve.org/go/valve/article/don_draper_as_an_unraptured_emma_bovary/).  As to the purview of self-fashioning, we all do it.  In blog terms, you know me as [this guy](http://acephalous.typepad.com/acephalous/2007/12/unbelievable-th.html), _i.e._ the one who [caught those students](http://acephalous.typepad.com/acephalous/2005/11/my_morning.html), made that [other one extremely uncomfortable](http://acephalous.typepad.com/acephalous/2007/03/and_yet_i_still.html), is [frequently victimized by the library](http://acephalous.typepad.com/acephalous/2007/10/cashier.html), hid [his cancer from his wife](http://acephalous.typepad.com/acephalous/2007/12/how-sek-hid-can.html), etc.  Those are the stories I tell about myself to explain myself to myself.  To quote Gertrude Stein from [_Everybody’s Autobiography_](http://www.amazon.com/exec/obidos/ASIN/1878972081/diesekoschmar-20):
 

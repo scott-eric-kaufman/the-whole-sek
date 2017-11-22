@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/since_i_hear_crickets_or_worst_office_hour_ever/
 
-##  Wednesday, November 30, 2005 
+* Wednesday, November 30, 2005 
 
 I would have made this a contest, but that would seem uncouth since [I would certainly win](http://acephalous.typepad.com/acephalous/2005/11/my_morning.html).  Who wants to play a rigged game?  
 

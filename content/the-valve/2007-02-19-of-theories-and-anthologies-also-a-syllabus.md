@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/of_theories_and_anthologies_also_a_syllabus/
 
-##  Monday, February 19, 2007 
+* Monday, February 19, 2007 
 
 A brief conversation with Jeffrey Williams and Vincent Leitch at the MLA haunts all [my talk](http://acephalous.typepad.com/acephalous/2007/02/in_which_i_shar.html) of theories and anthologies:
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/theory_friday_in_which_our_hero_discusses_the_merits_of_his_heroism_and_fin/
 
-##  Thursday, August 04, 2005 
+* Thursday, August 04, 2005 
 
 What can I say?  I want to be like [Mike](http://www.michaelberube.com/index.php).
 

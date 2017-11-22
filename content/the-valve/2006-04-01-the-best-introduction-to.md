@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/th/
 
-##  Saturday, April 01, 2006 
+* Saturday, April 01, 2006 
 
 **Important: Please leave comments and/or suggestions in [here](http://acephalous.typepad.com/acephalous/2006/04/temporary_comme.html) for the time being.  The Valve is currently having difficulties with updating posts, and as this post is designed to be updated frequently, well, that causes some problems.  I will update that list until The Valve cooperates, then I’ll resume updating here.**
 

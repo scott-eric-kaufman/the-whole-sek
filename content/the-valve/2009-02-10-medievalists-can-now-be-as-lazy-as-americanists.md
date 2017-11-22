@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/medievalists_can_now_be_as_lazy_as_americanists/
 
-##  Tuesday, February 10, 2009 
+* Tuesday, February 10, 2009 
 
 Via [Jeremy](http://readin.com/blog/), I [learn](http://www.physorg.com/news153499567.html) that the UCLA-based [Catalog of Digitized Medieval Manuscripts](http://manuscripts.cmrs.ucla.edu/) went live recently.  
 

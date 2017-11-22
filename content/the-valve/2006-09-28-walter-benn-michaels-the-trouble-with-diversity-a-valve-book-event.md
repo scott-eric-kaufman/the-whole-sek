@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/walter_benn_michaels_the_trouble_with_diversity_a_valve_book_event/
 
-##  Thursday, September 28, 2006 
+* Thursday, September 28, 2006 
 
 Starting on Monday, October 2nd, the Valve will play host to a discussion of Walter Benn Michaels’ [_The Trouble With Diversity_](http://www.amazon.com/exec/obidos/ASIN/080507841X/diesekoschmar-20).  Several Valve regulars will participate, as will a number of prominent scholars from outside the discipline.  Dr. Michaels has graciously agreed to respond to posts and comments.  If you have read _The Trouble With Diversity_ or [the first chapter](http://www.prospect.org/web/printfriendly-view.ww?id=11864), recently published in [_The American Prospect_](http://www.prospect.org/), and would like to participate, contact [me](http://www.thevalve.org/go/valve/archive_author/sekaufman/Scott%!E(MISSING)ric%!K(MISSING)aufman) with your proposal.  
 

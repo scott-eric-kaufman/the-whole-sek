@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/meet_the_new_boss_same_as_the_old_boss/
 
-##  Monday, September 15, 2008 
+* Monday, September 15, 2008 
 
 This place looks familiar.  But maybe it’s me.  Last time I was here, [as Adam kindly noted](http://www.thevalve.org/go/valve/article/doctor_in_the_valve/), I was a bit different.  When I took my leave in May 2007, I wrote:
 

@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/how_the_marx_brothers_embark_or_steven_knapps_literary_interest_and_its_imp/
 
-##  Monday, August 22, 2005 
+* Monday, August 22, 2005 
 
 In the earlier version of this post I impatiently criticized arguments I had yet to establish, the result being a brazenly inaccurate or deeply stupid account of the argument Knapp forwards in _Literary Interest_.  I promise no assumptions’ll be prodded until _after_ I proffer his argument _in toto_.  
 

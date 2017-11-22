@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/sexy_historicism/
 
-##  Monday, March 06, 2006 
+* Monday, March 06, 2006 
 
 Below the fold you’ll find a _rough_ draft of a talk [I’ll be giving tomorrow night](http://acephalous.typepad.com/acephalous/2006/02/come_see_the_he.html).  The occasion is a production of Tennessee Williams’ [_Orpheus Descending_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0451525124%!F(MISSING))![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1) by the UCI Theater Department.  The topic—that is, _my_ topic, as this is a roundtable—is to present an historicist account of the play.  Only not really.  I’m supposed to inform the largely undergraduate audience what sorts of questions an historicist would ask . . . and to make historicism seem “sexy.”  So I tried.  Did I succeed?
 

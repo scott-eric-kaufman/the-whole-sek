@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/271_two_hundred_and_seventy_one_notes_from_a_novel_i_dont_remember_reading/
 
-##  Tuesday, March 17, 2009 
+* Tuesday, March 17, 2009 
 
 271 notes (two hundred and seventy-one) from a novel I don’t remember reading.\*
 

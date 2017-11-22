@@ -2,7 +2,7 @@
 
  * Originally posted at http://www.thevalve.org/go/valve/article/its_always_already_been_the_end_of_epic_film/
 
-##  Sunday, January 04, 2009 
+* Sunday, January 04, 2009 
 
 Whether he knows it or not—and “he” being Adam Kotsko, I’ll bet he knows it—[this _Weblog_ post](http://heteronomy.wordpress.com/2009/01/03/the-end-of-the-epic-film/) is less about the formal fit between epic and the television serial than the relation of film to the episodic form.  I know that sounds backwards—what with MOVIES! being PRESENTED! on SCREENS! the SIZE! of WYOMING!—but the compounded facts of run time and the modern American attention span necessitate we consider film the proper realm of the self-contained episode.  Even films which promise sequels announce their completion in terms of whatever _-ology_ they embrace.  
 
