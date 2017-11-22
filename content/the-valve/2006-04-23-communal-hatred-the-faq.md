@@ -10,7 +10,7 @@ Like it or not, we have become a community.  We may not like each other very mu
 
 **Aeroplanes, the Boarding of** **_v._** An [insidious](http://www.thevalve.org/go/valve/article/hix_dixerit_quispiam_or_you_must_try_again_until_you_get_it_right_part_mcxv/#5920) tactic designed to allow the boardee more time to respond cleverly to entries posted in distant time zones.
 
-**Holbo, John _n._** An analytic blowhard who [puffs fish](http://examinedlife.typepad.com/johnbelle/2005/01/clueless_in_aca_1.html) and [butchers anyone who complains](http://www.google.com/url?sa=t&amp;ct=res&amp;cd=1&amp;url=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.thevalve.org%!F(MISSING)go%!F(MISSING)valve%!F(MISSING)article%!F(MISSING)334&amp;ei=S_ZKRLwloaxhvKGc7Qc&amp;sig2=pSpGeoqZILQ5IS22cRsO_A).  
+**Holbo, John _n._** An analytic blowhard who [puffs fish](http://examinedlife.typepad.com/johnbelle/2005/01/clueless_in_aca_1.html) and [butchers anyone who complains](http://www.google.com/url?sa=t&ct=res&cd=1&url=http%3A%2F%2Fwww.thevalve.org%2Fgo%2Fvalve%2Farticle%2F334&ei=S_ZKRLwloaxhvKGc7Qc&sig2=pSpGeoqZILQ5IS22cRsO_A).
 
 **Kaufman, Scott the Eric of** **_n._** Confused, narcissistic graduate student who sympathizes with all folks regardless of scholarly orientation, discovers strangers in his office, thinks too much about things evolutionary and feels really, really old.
 

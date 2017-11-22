@@ -70,11 +70,11 @@ Because 2) he spent tedious years perfecting the placement of every word on ever
 
 [![CRAZYEVILBEAST](http://acephalous.typepad.com/.a/6a00d8341c2df453ef01156f006ab0970c-500pi "CRAZYEVILBEAST")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef01156f006ab0970c-pi)
 
-Is it just me or does the wittle kitty wook hungry?  Is this maybe just what Blake’s contemporaries thought tigers looked like?  Not according to Thomas Bewick’s _[General History of Quadrupeds](http://books.google.com/books?id=mUoJAAAAQAAJ&amp;printsec=frontcover&amp;dq=%!A(MISSING)+General+History+of+Quadrupeds%!&(MISSING)amp;ei=H8XaSerrGJqGkASdr4X1Ag#PPA186,M1)_ (1794):
+Is it just me or does the wittle kitty wook hungry?  Is this maybe just what Blake’s contemporaries thought tigers looked like?  Not according to Thomas Bewick’s _[General History of Quadrupeds](http://books.google.com/books?id=mUoJAAAAQAAJ&printsec=frontcover&dq=%22A+General+History+of+Quadrupeds%22&ei=H8XaSerrGJqGkASdr4X1Ag#PPA186,M1)_ (1794):
 
 [![Historyoftigers](http://acephalous.typepad.com/.a/6a00d8341c2df453ef01156f0085f4970c-500pi "Historyoftigers")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef01156f0085f4970c-pi)
 
-“Fierce without provocation” and “cruel without necessity” sounds more like a proper FIRE TYGER! than what Blake [burned onto his plates](http://books.google.com/books?id=R6M_AAAAYAAJ&amp;pg=PA14&amp;dq=%!w(MISSING)illiam+blake%!+(MISSING)%!r(MISSING)elief+etching%!&(MISSING)amp;ei=BsbaSYTwHJuskASs-fX6Ag&amp;client=firefox-a#PPA31,M1).  What accounts for the difference?  Before I answer that, I want to let those big cats above stare from your screen for a while.  In fact, how about I flip that tiger around so you can do a closer comparison:
+“Fierce without provocation” and “cruel without necessity” sounds more like a proper FIRE TYGER! than what Blake [burned onto his plates](http://books.google.com/books?id=R6M_AAAAYAAJ&pg=PA14&dq=%22william+blake%22+%22relief+etching%22&ei=BsbaSYTwHJuskASs-fX6Ag&client=firefox-a#PPA31,M1).  What accounts for the difference?  Before I answer that, I want to let those big cats above stare from your screen for a while.  In fact, how about I flip that tiger around so you can do a closer comparison:
 
 [![Twotigers](http://acephalous.typepad.com/.a/6a00d8341c2df453ef01156f00aac9970c-320wi)](http://acephalous.typepad.com/.a/6a00d8341c2df453ef01156f00aac9970c-pi) 
 

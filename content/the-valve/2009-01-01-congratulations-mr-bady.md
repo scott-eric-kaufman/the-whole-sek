@@ -4,7 +4,7 @@
 
 * Thursday, January 01, 2009 
 
-[Aaron](http://www.thevalve.org/go/valve/archive_author/abady/Aaron%!B(MISSING)ady) nabbed the [2008 Cliopatria Award](http://hnn.us/blogs/entries/20359.html#2008clios) for “Best Writer.”  I say “nabbed,” but in truth, he earned it—I wouldn’t have asked him to contribute if I didn’t think he’d land us swag.  Congratulations to Aaron and all the winners:
+[Aaron](http://www.thevalve.org/go/valve/archive_author/abady/Aaron%20Bady) nabbed the [2008 Cliopatria Award](http://hnn.us/blogs/entries/20359.html#2008clios) for “Best Writer.”  I say “nabbed,” but in truth, he earned it—I wouldn’t have asked him to contribute if I didn’t think he’d land us swag.  Congratulations to Aaron and all the winners:
 
 **Best Group Blog:** [The Edge of the American West](http://edgeofthewest.wordpress.com/)
 

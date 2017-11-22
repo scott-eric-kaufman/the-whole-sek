@@ -19,7 +19,7 @@ Better to talk about this ACTANT report, what with its careful assessment and re
 By [Jonathan Goodwin](http://jgoodwin.net) on 05/17/06 at 03:07 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/i_know_i_know_academic_freedom_but/#9299)
 []()
 
-No kidding.  I read the ACTA earlier \[[.pdf](http://www.goacta.org/whats_new/How%!M(MISSING)any%!W(MISSING)ard%!C(MISSING)hurchills.pdf)\] and was _stunned_, alright, merely _disappointed_, okay, actually _relieved_ by its tendentiousness.  To wit:
+No kidding.  I read the ACTA earlier \[[.pdf](http://www.goacta.org/whats_new/How%20Many%20Ward%20Churchills.pdf)\] and was _stunned_, alright, merely _disappointed_, okay, actually _relieved_ by its tendentiousness.  To wit:
 
 By this, we do not mean to suggest that issues of alleged plagiarism, dubious claims of ethnicity, or inadequate credentials—problems specific to Ward Churchill—apply broadly to all academics. What we do mean to suggest is that the extremist rhetoric and tendentious opinion for which Churchill is infamous can be found on campuses across America.
 

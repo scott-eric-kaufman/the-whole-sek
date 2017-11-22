@@ -4,7 +4,7 @@
 
 * Tuesday, May 26, 2009 
 
-Odd as it may seem, I want to kick off this book event _not_ by discussing the book’s argument—I’ll address that on Friday—but by focusing on its form.  Consider [page 44](http://books.google.com/books?id=7P4lD6wDhkUC&amp;dq=%!j(MISSING)enny+davidson%!+(MISSING)breeding&amp;printsec=frontcover&amp;source=bl&amp;ots=ejqlCr4_Zn&amp;sig=uYvWsZv766WVKw84UKFVphBozDQ&amp;hl=en&amp;ei=q-4aSo6ZBor8swPX6KnBCA&amp;sa=X&amp;oi=book_result&amp;ct=result&amp;resnum=9#PPA44,M1):
+Odd as it may seem, I want to kick off this book event _not_ by discussing the book’s argument—I’ll address that on Friday—but by focusing on its form.  Consider [page 44](http://books.google.com/books?id=7P4lD6wDhkUC&dq=%22jenny+davidson%22+breeding&printsec=frontcover&source=bl&ots=ejqlCr4_Zn&sig=uYvWsZv766WVKw84UKFVphBozDQ&hl=en&ei=q-4aSo6ZBor8swPX6KnBCA&sa=X&oi=book_result&ct=result&resnum=9#PPA44,M1):
 
 ![image](http://www.thevalve.org/uploads/44.jpg)
 

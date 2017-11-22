@@ -244,7 +244,7 @@ The Mets win. 
 
 You are in a study with a laptop.  
 
-It is dark out.  You are likely to be eaten by a [grue](http://en.wikipedia.org/wiki/Grue_%!m(MISSING)onster%!)(MISSING).
+It is dark out.  You are likely to be eaten by a [grue](http://en.wikipedia.org/wiki/Grue_%28monster%29).
 
 
 > WHAT?

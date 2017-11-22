@@ -112,9 +112,9 @@ _Note: All categories and/or periods contain all the problems inherent to catego
 
 *   Russian Formalism:
 
-*   1922: [_Reading 1922: Return to the  Scene of the Modern_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0195151631)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Michael North
+*   1922: [_Reading 1922: Return to the  Scene of the Modern_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0195151631), Michael North
 
-*   The Jazz Age: [_Terrible Honesty_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0374524629)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Ann Douuglas
+*   The Jazz Age: [_Terrible Honesty_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0374524629), Ann Douuglas
 
 *   The Harlem Renaissance:
 
@@ -122,33 +122,33 @@ _Note: All categories and/or periods contain all the problems inherent to catego
 
 *   The Beats:
 
-*   The New York Intellectuals: [_The New York Intellectuals: The Rise and Decline of the Anti-Stalinist Left from the 1930’2 to the 1980’s_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0807841692)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Alan Wald
+*   The New York Intellectuals: [_The New York Intellectuals: The Rise and Decline of the Anti-Stalinist Left from the 1930’s to the 1980’s_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0807841692), Alan Wald
 
-*   Southern Agrarian: [_The Cultural Politics of the New Criticism_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0521416523)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Mark Jancovich
+*   Southern Agrarian: [_The Cultural Politics of the New Criticism_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0521416523), Mark Jancovich
 
-*   New Criticism: [_The New Apologists for Poetry_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0837197872)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Murray Krieger
+*   New Criticism: [_The New Apologists for Poetry_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0837197872), Murray Krieger
 
-*   Phenomenological: [_Truth and Method_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)082647697X)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Hans-George Gadamer
+*   Phenomenological: [_Truth and Method_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F082647697X), Hans-George Gadamer
 
-*   Geneva School: [_Critics of Consciousness_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0674177509)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1)s, Sarah Lawall
+*   Geneva School: [_Critics of Consciousness_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0674177509), Sarah Lawall
 
-*   Structuralism: [_Structuralist Poetics_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0415289890)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Jonathan Culler
+*   Structuralism: [_Structuralist Poetics_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0415289890), Jonathan Culler
 
-*   French Structuralism: [_History of Structuralism_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=external-search%!F(MISSING)search-type=ss%!i(MISSING)ndex=blended%!k(MISSING)eyword=history%!o(MISSING)f%!s(MISSING)tructuralism%!f(MISSING)rancois%!d(MISSING)osse)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1) I &amp; II, Francoise Dosse
+*   French Structuralism: [_History of Structuralism_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=external-search%3Fsearch-type=ss%26index=blended%26keyword=history%20of%20structuralism%20francois%20dosse) I &amp; II, Francoise Dosse
 
 *   Freudian Psychoanalytic:
 
-*   Lacanian Psychoanalytic: [_Jacques Lacan and the Adventure of Insight_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0674471210)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Shoshana Felman
+*   Lacanian Psychoanalytic: [_Jacques Lacan and the Adventure of Insight_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0674471210), Shoshana Felman
 
 *   Bloomian:
 
 *   Post-Structural:
 
-*   Deconstructive: [_Deconstructive Criticism: An Advanced Introduction_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0231054726)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Vincent Leitch
+*   Deconstructive: [_Deconstructive Criticism: An Advanced Introduction_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0231054726), Vincent Leitch
 
-*   Marxist: [_Considerations on Western Marxism_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)090230867X)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Perry Anderson
+*   Marxist: [_Considerations on Western Marxism_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F090230867X), Perry Anderson
 
-*   Frankfurt School: [_The Dialectical Imagination_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0520204239)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Martin Jay
+*   Frankfurt School: [_The Dialectical Imagination_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0520204239), Martin Jay
 
 *   Rhizomatic:
 
@@ -156,19 +156,19 @@ _Note: All categories and/or periods contain all the problems inherent to catego
 
 *   Reception Theory:
 
-*   Reader-Response Theory: [_Interpretive Conventions: The Reader in the Study of American Fiction_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0801414768)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Steven Mailloux
+*   Reader-Response Theory: [_Interpretive Conventions: The Reader in the Study of American Fiction_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0801414768), Steven Mailloux
 
-*   Foucauldian: [_Saint Foucault_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0195111273)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), David Halperin
+*   Foucauldian: [_Saint Foucault_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0195111273), David Halperin
 
 *   First-Wave Feminist:
 
-*   Second-Wave Feminist: [_Around 1981: Academic Feminist Literary Theory_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0415901901)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Jane Gallop
+*   Second-Wave Feminist: [_Around 1981: Academic Feminist Literary Theory_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0415901901), Jane Gallop
 
 *   Third-Wave Feminist:
 
 *   Post-Colonial:
 
-*   New Historicist: [_New Historicism and Other Old-Fashioned Topics_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0691015074)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Brook Thomas
+*   New Historicist: [_New Historicism and Other Old-Fashioned Topics_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0691015074), Brook Thomas
 
 *   Cultural Studies:
 
@@ -178,7 +178,7 @@ _Note: All categories and/or periods contain all the problems inherent to catego
 
 *   African American:
 
-*   Asian American: [_Reading Asian American Literature: From Necessity to Extravagance_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;tag=diesekoschmar-20&amp;camp=1789&amp;creative=9325&amp;path=http%!A(MISSING)%!F(MISSING)%!F(MISSING)www.amazon.com%!F(MISSING)gp%!F(MISSING)product%!F(MISSING)0691015414)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1), Sau-Ling Cynthia Wong
+*   Asian American: [_Reading Asian American Literature: From Necessity to Extravagance_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0691015414), Sau-Ling Cynthia Wong
 
 *   Chicano/Chicana:
 

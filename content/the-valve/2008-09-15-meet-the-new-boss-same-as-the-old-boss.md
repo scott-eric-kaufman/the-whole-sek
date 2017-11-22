@@ -6,7 +6,7 @@
 
 This place looks familiar.  But maybe it’s me.  Last time I was here, [as Adam kindly noted](http://www.thevalve.org/go/valve/article/doctor_in_the_valve/), I was a bit different.  When I took my leave in May 2007, I wrote:
 
-[T]his is the probably the last substantive post you’ll see from me here until sometime in 2008.  I’ve explained why [over here](http://acephalous.typepad.com/acephalous/2007/05/why_i_did_it_an.html), but I’m sure it’s no mystery why someone in the final push to finish his dissertation doesn’t have time to write formal posts.  I’ll still be blogging research notes and uninspired parodies over at _[Acephalous](http://acephalous.typepad.com/)_, however, so I hope you’ll stop by.  If not, I’ll see you when _[Battlestar Galactica](http://www.amazon.com/gp/search?ie=UTF8&amp;keywords=Battlestar%!G(MISSING)alactica&amp;tag=diesekoschmar-20&amp;index=dvd&amp;linkCode=ur2&amp;camp=1789&amp;creative=9325)_ returns.
+> [T]his is the probably the last substantive post you’ll see from me here until sometime in 2008.  I’ve explained why [over here](http://acephalous.typepad.com/acephalous/2007/05/why_i_did_it_an.html), but I’m sure it’s no mystery why someone in the final push to finish his dissertation doesn’t have time to write formal posts.  I’ll still be blogging research notes and uninspired parodies over at _[Acephalous](http://acephalous.typepad.com/)_, however, so I hope you’ll stop by.  If not, I’ll see you when [_Battlestar Galactica_](http://www.amazon.com/gp/search?ie=UTF8&keywords=Battlestar%20Galactica&tag=diesekoschmar-20&index=dvd&linkCode=ur2&camp=1789&creative=9325) returns.
 
 Since it _is_ 2008, I suppose I didn’t technically lie—but I did accept the editorial reins back in February and, if I’m not mistaken, tomorrow’s Halloween.  (As a friend recently told me, you’re three months from finishing your dissertation for two years, then you’re done.)  Although I haven’t been around, I haven’t been absent either.  Joe and I have recruited new contributors; I’ve processed new memberships (for “people” whose email addresses don’t have Russian domains); I’ve moderated comments (by “people” who don’t offer deep discounts on sin); and I’ve arranged book events (like the Trilling one, which I arranged for someone else to moderate, and Rohan’s “Summer Reading Project” on _Adam Bede_, which I’m stealing credit for because it turned out so well people _complained_ about the Trilling). 
 
@@ -22,8 +22,6 @@ In short, _The Journey Abandoned_ event was different by design—but it’s not
 *   Listen to John, who [just wrote](http://www.thevalve.org/go/valve/article/bob_steins_unified_field_theory_of_publishing_in_the_networked_era/): “Obviously we here at the Valve wisely stage these books events. Good on us. We should find time to do more of that.”  I’ve already lined up three.  The first will be on Caroline Levine’s _[Provoking Democracy: Why We Need the Arts](http://www.amazon.com/exec/obidos/ASIN/1405159278/diesekoschmar-20)_; the second, [Jenny Davidson](http://jennydavidson.blogspot.com/)‘s [_Breeding: A Partial History of the Eighteenth Century_](http://www.amazon.com/exec/obidos/ASIN/0231138784/diesekoschmar-20); the third, Mark McGurl’s _The Program Era : Postwar Fiction in the System of Higher Education_.  
 
 I hope you stick around.
-
-\[T\]his is the probably the last substantive post you'll see from me here until sometime in 2008.  I've explained why [over here](http://acephalous.typepad.com/acephalous/2007/05/why_i_did_it_an.html), but I'm sure it's no mystery why someone…"
 
 ---
 

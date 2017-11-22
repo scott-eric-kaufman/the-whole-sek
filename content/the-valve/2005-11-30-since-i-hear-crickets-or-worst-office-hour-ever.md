@@ -6,7 +6,7 @@
 
 I would have made this a contest, but that would seem uncouth since [I would certainly win](http://acephalous.typepad.com/acephalous/2005/11/my_morning.html).  Who wants to play a rigged game?  
 
-Since we have an abundance of good will brimming around here, I thought I would take advantage of it by suggesting we discuss matters we all must face regardless of theoretical orientation.  I mean, who hasn’t walked in on undergraduates having se...I mean, I think we all have had issues with inappropriate undergraduate behavior.  Why not vent a little, since 90%!o(MISSING)f the people who read this are marking papers as I type?  
+Since we have an abundance of good will brimming around here, I thought I would take advantage of it by suggesting we discuss matters we all must face regardless of theoretical orientation.  I mean, who hasn’t walked in on undergraduates having se...I mean, I think we all have had issues with inappropriate undergraduate behavior.  Why not vent a little, since 90% of the people who read this are marking papers as I type?  
 
 Also, since we’re all concerned about the impact of Google on our careers, I want to invite everyone to vent anonymously.  Are you logged in?  Log out!  Cut loose!  There is no lonelier time in the quarter/semester than that last week, so I invite you to join the community of the lonely and share your desperation.  
 
