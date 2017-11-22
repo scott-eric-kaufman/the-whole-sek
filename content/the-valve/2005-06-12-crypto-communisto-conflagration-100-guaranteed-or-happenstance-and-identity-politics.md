@@ -20,8 +20,6 @@ _Harken, all Muses, to the many offenses I commit!  Make certain my stupidities
 
 ---
 
-### Comments
-
 No comment thread on alternate history novels should go without a mention of PKD’s _The Man In the High Castle_, the greatest alternate history book.  (Can I actually write “greatest” on a blog devoted to contemporary literary criticism?  Oh well.)  PKD easily evades the tiresome argument over whether historical processes might easily be different, and what might cause them to be different, by two overlapping techniques; first, by having several of his characters independently discover that their world is not the real world, second, by having the _I Ching_ as a narrative theme, incorporating a symbol that combines randomness with supposed inescapible destiny, and thus traversing the whole range of historical theories.
 
 By  on 06/13/05 at 09:09 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/crypto_communisto_conflagration_100_guaranteed_or_happenstance_and_identity/#1767)

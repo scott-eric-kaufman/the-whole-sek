@@ -18,8 +18,6 @@ _As usual, if there are any posts I missed, email me and I’ll rectify the situ
 
 ---
 
-### Comments
-
 James Wood, last seen commenting at [The Reading Experience](http://noggs.typepad.com/the_reading_experience/2005/07/james.html), says _Get Real_ over at [The New Republic](http://www.tnr.com/doc.mhtml?i=20050801&s=wood080105&pt=QE8NLDvY9Yct3CsrY/2Lhm==) 
 
 By  on 07/27/05 at 09:01 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/theorys_empire_quick_hits/#2789)

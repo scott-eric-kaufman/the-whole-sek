@@ -12,8 +12,6 @@ Would the idea of a carnival that collected the best blogging about literature a
 
 ---
 
-### Comments
-
 I think it’s a great idea, but wouldn’t the Valve be the perfect starting host for such a thing, given its stated ambitions & the stated ambitions of the ALSC?
 
 By [Ray Davis](http://www.pseudopodium.org/) on 07/10/05 at 03:24 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/a_literary_carnival_or_do_i_already_waste_enough_of_your_time/#2231)

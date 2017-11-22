@@ -30,8 +30,6 @@ If you’d rather discuss a couple of specific essays that use psychoanalysis in
 
 ---
 
-### Comments
-
 This is a good [article](http://www.clas.ufl.edu/ipsa/journal/2004_holland08.shtml) to read if you’re interested in the actual scientific status of psychoanalysis.
 
 By [Jonathan](http://jgoodwin.net) on 06/02/05 at 12:31 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/same_senseless_ramblings_slightly_bigger_stage_or_intellectual_investments/#1515)

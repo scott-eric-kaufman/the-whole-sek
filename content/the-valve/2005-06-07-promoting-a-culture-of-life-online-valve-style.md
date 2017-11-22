@@ -22,8 +22,6 @@ The problems that Mr. Mendelsohn identifies with the listserv format are the res
 
 ---
 
-### Comments
-
 [http://www.mcsweeneys.net/2005/5/16stoeckel.html](http://www.mcsweeneys.net/2005/5/16stoeckel.html)
 
 By  on 06/07/05 at 09:28 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/promoting_a_culture_of_life_online_valve_style/#1666)

@@ -24,8 +24,6 @@ Identity understood as in large part folk cohesiveness and cultural particularit
 
 ---
 
-### Comments
-
 Benn Michaels sounds more and more like Stanley Fish, and not just because he has been delivering the same polemic for more than 10 years. 
 
 Three thoughts:

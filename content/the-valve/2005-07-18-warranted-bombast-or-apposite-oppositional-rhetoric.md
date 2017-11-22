@@ -24,8 +24,6 @@ Now, I’m compelled to note that I’m satisfied with the direction of the fiel
 
 ---
 
-### Comments
-
 Scott, you’re right on about such rhetoric, but of course, it’s not just a factor in academic writing/speech.  Politicos also tend to conflate any forms of distinction with “apartheid,” just as any time someone makes a decision with which one disagrees, one calls the other “fascist” or makes a Hitler reference.  Orwell or “thought police” are pulled out whenever anyone has a problem with someone else’s speech (i.e., any discussion of FIRE results in some FIRE supporter equating a university’s decision not to allow white students to follow around black students chanting “I hate niggers” with Orwellian thought control).  
 
 Likewise, when many academics describe their projects, they are forced into hyperbole.  Christian Moraru’s otherwise interesting *Rewriting* claims to be the first book-length study of American fictions’ processes of rewriting, a patently untrue claim.  But I don’t think that’s Moraru talking; it’s the pressures of the discipline.

@@ -24,8 +24,6 @@ fell to castle-building as he rode along. It was evident that he had a very larg
 
 ---
 
-### Comments
-
 Pretty broad Scott.  Do you want wholly imaginary cities?  
 
 Ehrenrang in _The Left Hand of Darkness_ certainly felt very real to me, when I read it first as a teenager.  I’d never seen snow, nor a building more than two hundred years old.

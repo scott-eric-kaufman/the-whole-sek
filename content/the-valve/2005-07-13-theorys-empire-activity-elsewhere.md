@@ -16,8 +16,6 @@ _If I’ve missed any of the other articles, it’s entirely out of malice.  St
 
 ---
 
-### Comments
-
 Don’t forget [John McGowan](http://www.mcgowans3.com/2005/07/theorys-empire). He was a reader for the volume when it was under consideration at a different press.
 
 By [Amardeep](http://www.lehigh.edu/~amsp/blog.html) on 07/13/05 at 10:54 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/theorys_empire_activity_elsewhere/#2350)
