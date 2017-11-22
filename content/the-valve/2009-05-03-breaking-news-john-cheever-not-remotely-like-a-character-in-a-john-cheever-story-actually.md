@@ -4,7 +4,7 @@
 
 * Sunday, May 03, 2009 
 
-From “[How Cheever Really Felt About Living in Suburbia](http://www.nytimes.com/2009/05/03/nyregion/connecticut/03cheeverCT.html?pagewanted=1&amp;_r=1),” published in today’s _Times_:
+From “[How Cheever Really Felt About Living in Suburbia](http://www.nytimes.com/2009/05/03/nyregion/connecticut/03cheeverCT.html?pagewanted=1&_r=1),” published in today’s _Times_:
 
 [His] writings suggest that he seemed to take a jaundiced view of so manicured and lovely a setting.
 
@@ -50,7 +50,7 @@ Cheever lived in Connecticutt.  Why the hell shouldn’t the Connecticutt desk 
 
 This paragraph makes a good case that Cheever’s life in the suburbs wasn’t as bad as the life of Cheever’s characters in the suburbs:
 
-[Mrs. Cheever remembered, with some bitterness, that her husband wrote a story, “An Educated American Woman,” that seemed to be modeled on her, about a suburban wife so preoccupied with civic organizations and a book she is writing on Flaubert that the story ends tragically, with the woman’s son dying in the care of a neglectful babysitter. Mrs. Cheever, in tears, suggested she did not mind the echoes of her own life, but was upset that “he had the woman leave her sick child.”](http://www.nytimes.com/2009/05/03/nyregion/connecticut/03cheeverCT.html?pagewanted=1&amp;_r=1)
+[Mrs. Cheever remembered, with some bitterness, that her husband wrote a story, “An Educated American Woman,” that seemed to be modeled on her, about a suburban wife so preoccupied with civic organizations and a book she is writing on Flaubert that the story ends tragically, with the woman’s son dying in the care of a neglectful babysitter. Mrs. Cheever, in tears, suggested she did not mind the echoes of her own life, but was upset that “he had the woman leave her sick child.”](http://www.nytimes.com/2009/05/03/nyregion/connecticut/03cheeverCT.html?pagewanted=1&_r=1)
 
 Cheever is pretty clearly drama queening things up.  And, it worked.  He’s famous.  But, you can’t really be surprised that his negligent-homicide-free life in the suburbs was better than the lives of his characters in his stories.
 

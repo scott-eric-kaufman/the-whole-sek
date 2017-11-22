@@ -47,7 +47,7 @@ jcarr, you make a damn fine point about poetry and, in so doing, remind me how m
 
 Point being, it’s convenient that the Donne sonnet lacks the representational equivalent of the Columbus diary entry.  Makes the homology that easier to make.  But I’m not sure this addresses  your question, however; but it’s a fine one, and one I wish I knew how to answer better than I have.
 
-Finally, I don’t mind inviting philosophical debates.  However, I’m not sure how you’re reading “read” there in such a way that’ll it invite unnecessarily philosophical debates.  All I mean to say is that all works are received by readers in the moment they read them, and that that moment may be a week after publication or two thousands years.  (And, of course, that that difference matters, necessitates an accounting of one’s own identitarian commitments, &amp;c.  Or those of a critic whose work on the work of literature was written 50 years ago, &amp;c.  If it weren’t for all these damns _et ceterae_ I may have already finished my dissertation.
+Finally, I don’t mind inviting philosophical debates.  However, I’m not sure how you’re reading “read” there in such a way that’ll it invite unnecessarily philosophical debates.  All I mean to say is that all works are received by readers in the moment they read them, and that that moment may be a week after publication or two thousands years.  (And, of course, that that difference matters, necessitates an accounting of one’s own identitarian commitments, &c.  Or those of a critic whose work on the work of literature was written 50 years ago, &c.  If it weren’t for all these damns _et ceterae_ I may have already finished my dissertation.
 
 By [Scott Eric Kaufman](http://acephalous.typepad.com) on 03/06/06 at 09:18 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/sexy_historicism/#7963)
 []()
@@ -98,23 +98,23 @@ This part is interesting:
 
 _An historicist must be on intimate terms with his or her chosen moment of composition.  This requires exhaustive study of both the primary sources produced during that moment and the secondary ones written about it._  
 
-Presumably scholars also need to know about things, written by previous generations, that  their author &amp; that author’s cohort were still absorbing in that chosen moment?
+Presumably scholars also need to know about things, written by previous generations, that  their author & that author’s cohort were still absorbing in that chosen moment?
 
 _Historicism has become increasingly popular in literature departments because its appeal is inherently literary._ 
 
-The “inherently literary” bit caught my eye...largely because I don’t get it, I guess.  Literariness, to me, is a sort of synonym for intertextuality - a function of the inheritance &amp; the renovation of form.  A diachronic effect as opposed to the synchronic scenario depicted in your bit about the chosen moment of composition.  Not, of course, that we can have one without the other, but you seem to be saying that the “moment” trumps the tradition in terms of the formation of investigatable literariness.
+The “inherently literary” bit caught my eye...largely because I don’t get it, I guess.  Literariness, to me, is a sort of synonym for intertextuality - a function of the inheritance & the renovation of form.  A diachronic effect as opposed to the synchronic scenario depicted in your bit about the chosen moment of composition.  Not, of course, that we can have one without the other, but you seem to be saying that the “moment” trumps the tradition in terms of the formation of investigatable literariness.
 
 By  on 03/07/06 at 02:13 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/sexy_historicism/#7975)
 []()
 
 I forgot to write the main thing I wanted to say, which is only to observe that this question of sexiness - Historicism: Hot or Not? - reminds me of a lot of things I’ve read lately on librarians’ blogs reporting a resurgence of that whole erotic fascination with libraries, archives, and catalogues.  It seems to be about librarians taking off their glasses etc etc etc, as you might expect, but it also apparently has to do with the current craze for research, clue-hunting, systems, and cataloguing, a la user-created tags, 43 Things, and so forth.  (Maybe the Da Vinci Code also.)  
 
-So perhaps the image of the scholar rummaging in archives just _is_ a turn-on, not in need of any extra saucing up.  Then again this is a conversation librarians seem to be having about &amp; amongst themselves so there may be an element of wishful thinking going on there.
+So perhaps the image of the scholar rummaging in archives just _is_ a turn-on, not in need of any extra saucing up.  Then again this is a conversation librarians seem to be having about & amongst themselves so there may be an element of wishful thinking going on there.
 
 By  on 03/07/06 at 02:24 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/sexy_historicism/#7976)
 []()
 
-_Presumably scholars also need to know about things, written by previous generations, that their author &amp; that author’s cohort were still absorbing in that chosen moment?_
+_Presumably scholars also need to know about things, written by previous generations, that their author & that author’s cohort were still absorbing in that chosen moment?_
 
 You presume correctly.
 
@@ -132,7 +132,7 @@ Hope the talk goes/went well.
 By [Kenneth Rufo](http://ghostinthewire.org/) on 03/07/06 at 03:36 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/sexy_historicism/#7987)
 []()
 
-Ken, thanks for the comment, but as I’ve just returned from the talk, I’m a little bushed.  Needless to say, I agree with you.  The moment represented is always fraught with contingency in ways that the moments of composition and reception aren’t.  Alright, that’s not true, but the complexities the productive and receptive moments are managable, whereas those of the representative spiral into absurdity.  And because I’m primarily a literary scholar, I’m interested in the warpedness of the moment represented most of all; so, in my dissertation, I’m interested in how investments in particular systems of human evolution and progress inflect the representation of a particular moment, &amp;c.
+Ken, thanks for the comment, but as I’ve just returned from the talk, I’m a little bushed.  Needless to say, I agree with you.  The moment represented is always fraught with contingency in ways that the moments of composition and reception aren’t.  Alright, that’s not true, but the complexities the productive and receptive moments are managable, whereas those of the representative spiral into absurdity.  And because I’m primarily a literary scholar, I’m interested in the warpedness of the moment represented most of all; so, in my dissertation, I’m interested in how investments in particular systems of human evolution and progress inflect the representation of a particular moment, &c.
 
 Like I said, I’m a little on the exhausted side, but you’re right; had I had more than 15 minutes to speak I would’ve pressed that point.  The equivalence was pedagogical more than anything else.  That said, I’d love to continue this conversation in a more serious vein tomorrow, since it’s central to my dissertation and I love little more than cribbing off people smarter than me.
 

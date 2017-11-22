@@ -19,7 +19,7 @@ Meanwhile, the author is up to his usual business. Characters stop what they’r
 
 Let the reader decide, let the reader beware. Good luck.
 
-\* I was burned by _Time_ in 1997.  Some fool wrote a feature about the publication of [_Mason &amp; Dixon_](http://www.amazon.com/exec/obidos/ASIN/0312423209/diesekoschmar-20), [_The Gospel According to the Son_](http://www.amazon.com/exec/obidos/ASIN/0345434080/diesekoschmar-20), and the “forthcoming” Salinger novel. 
+\* I was burned by _Time_ in 1997.  Some fool wrote a feature about the publication of [_Mason & Dixon_](http://www.amazon.com/exec/obidos/ASIN/0312423209/diesekoschmar-20), [_The Gospel According to the Son_](http://www.amazon.com/exec/obidos/ASIN/0345434080/diesekoschmar-20), and the “forthcoming” Salinger novel. 
 
 Spanning the period between the Chicago World's Fair of 1893 and the years just after World War I, this novel moves from the labor troubles in Colorado to turn-of-the-century…"
 
@@ -30,9 +30,9 @@ Scott, thanks so much for this heads-up.  Can I confess that I got a bit sad se
 By  on 07/15/06 at 01:21 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/untitled_thomas_pynchon/#10552)
 []()
 
-He’s not that old, is he?  He’s only 69 or 70, I think.  Plus, he’s “known” to sit on nearly completed material for decades.  That’s if you put faith in the rumor that _Mason &amp; Dixon_ was completed, if minus a final polish, before he “hastily” (by his standards) cobbled _Vineland_ together.  That said, I wish he’d pull a Vollmann and crank out three 995 page novels every year for the next ten, instead of one every ten years.  
+He’s not that old, is he?  He’s only 69 or 70, I think.  Plus, he’s “known” to sit on nearly completed material for decades.  That’s if you put faith in the rumor that _Mason & Dixon_ was completed, if minus a final polish, before he “hastily” (by his standards) cobbled _Vineland_ together.  That said, I wish he’d pull a Vollmann and crank out three 995 page novels every year for the next ten, instead of one every ten years.  
 
-You know what we should do?  A _M &amp; D_ or _Vineland_ reading group.  I haven’t read _Vineland_ since, well, ‘97, in preparation for _M &amp; D_.  (Because really, what I need now is _more_ on my plate.  But “more fun,” I think I could handle that.)
+You know what we should do?  A _M & D_ or _Vineland_ reading group.  I haven’t read _Vineland_ since, well, ‘97, in preparation for _M & D_.  (Because really, what I need now is _more_ on my plate.  But “more fun,” I think I could handle that.)
 
 By [Scott Eric Kaufman](http://acephalous.typepad.com) on 07/15/06 at 02:17 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/untitled_thomas_pynchon/#10553)
 []()
@@ -47,7 +47,7 @@ Not quite.  We’d still invoke _tons_ of literary theory to justify our positi
 By [Scott Eric Kaufman](http://acephalous.typepad.com) on 07/15/06 at 05:35 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/untitled_thomas_pynchon/#10555)
 []()
 
-I organized a *GR* group and, a year later, a *M&amp;D* group at Penn.  A Valve event on Pynchon could be great: just imagine a graphic layout featuring Time Magazine’s photo of MPs cramming sausage down the throat of The Rocket Man.
+I organized a *GR* group and, a year later, a *M&D* group at Penn.  A Valve event on Pynchon could be great: just imagine a graphic layout featuring Time Magazine’s photo of MPs cramming sausage down the throat of The Rocket Man.
 
 By  on 07/16/06 at 01:36 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/untitled_thomas_pynchon/#10556)
 []()

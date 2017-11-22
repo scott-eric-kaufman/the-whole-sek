@@ -6,7 +6,7 @@
 
 \[_If people find such link-dumps pointless, or if they annoy, I’ll take it elsewhere.  It’s simply another way to consolidate, via re-write, what I do daily anyway._\]
 
-This week on Bill Moyer’s [Faith &amp; Reason](http://www.pbs.org/moyers/): Salman Rushdie.  (Check local listings.)  Future episodes to include Martin Amis, Margaret Atwood, Mary Gordon, David Grossman, Colin McGinn, Richard Rodriguez, Anne Provoost, Will Power and Jeanette Winterson.
+This week on Bill Moyer’s [Faith & Reason](http://www.pbs.org/moyers/): Salman Rushdie.  (Check local listings.)  Future episodes to include Martin Amis, Margaret Atwood, Mary Gordon, David Grossman, Colin McGinn, Richard Rodriguez, Anne Provoost, Will Power and Jeanette Winterson.
 
 [Complaints against clumsy literary erotica mount](http://www.macleans.ca/culture/books/article.jsp?content=20060701_129904_129904).  
 

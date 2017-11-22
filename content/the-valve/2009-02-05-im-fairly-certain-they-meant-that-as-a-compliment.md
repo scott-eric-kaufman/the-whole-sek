@@ -4,7 +4,7 @@
 
 * Thursday, February 05, 2009 
 
-Via _[io9](http://io9.com/5147328/discover-the-king-of-high+concept-science-fiction-storytelling)_, I learn that one of our authors “deserves more literary fame as a post-modern trickster.”  I wonder who [that could be](http://www.tor.com/index.php?option=com_content&amp;view=blog&amp;id=13275)?  (I also learned that I’m about [three novels behind](http://www.amazon.com/gp/search?ie=UTF8&keywords=adam%20roberts&tag=diesekoschmar-20&index=books&linkCode=ur2&camp=1789&creative=9325). I blame the dissertation.)
+Via _[io9](http://io9.com/5147328/discover-the-king-of-high+concept-science-fiction-storytelling)_, I learn that one of our authors “deserves more literary fame as a post-modern trickster.”  I wonder who [that could be](http://www.tor.com/index.php?option=com_content&view=blog&id=13275)?  (I also learned that I’m about [three novels behind](http://www.amazon.com/gp/search?ie=UTF8&keywords=adam%20roberts&tag=diesekoschmar-20&index=books&linkCode=ur2&camp=1789&creative=9325). I blame the dissertation.)
 
 ---
 

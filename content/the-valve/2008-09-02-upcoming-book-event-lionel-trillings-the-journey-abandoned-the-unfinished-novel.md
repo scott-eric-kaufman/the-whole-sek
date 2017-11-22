@@ -8,7 +8,7 @@ On Wednesday, _The Valve_ will begin hosting a book event on Lionel Trilling’s
 
 Contributors will include Miriam Burstein, Eugene Goodheart, John Holbo, Michael Kimmage, Joseph Kugelmass, Sean McCann, Mark Shechner, Michael Szalay, and Harvey Teres.
 
-For those unfamiliar with Trilling’s work or know him only as a critic, the first 140 pages of his other novel, [_The Middle of the Journey_](http://books.google.com/books?id=J54Qog0wxsIC&amp;printsec=frontcover&amp;dq=inauthor:Lionel+inauthor:Trilling&amp;ei=B3K9SImUKJHcsgOlld3qBw&amp;sig=ACfU3U25GHn6cp1dciCdfdtaScYacRltWg#PPA65,M1) is available online.  
+For those unfamiliar with Trilling’s work or know him only as a critic, the first 140 pages of his other novel, [_The Middle of the Journey_](http://books.google.com/books?id=J54Qog0wxsIC&printsec=frontcover&dq=inauthor:Lionel+inauthor:Trilling&ei=B3K9SImUKJHcsgOlld3qBw&sig=ACfU3U25GHn6cp1dciCdfdtaScYacRltWg#PPA65,M1) is available online.  
 
 ---
 
@@ -24,7 +24,7 @@ By [Scott Eric Kaufman](http://acephalous.typepad.com) on 09/02/08 at 07:25 PM |
 
 For those of you interested in Walter Landor, on whome Trilling bases his main character, you might want to check out Iain Sinclair’s wonderful novel-like thing, *Landor’s Tower, or the Imaginary Conversations*.  Sinclair may very well be England’s best living writer, and he is certainly one of its greatest living stylists.  I’ve written that line about 1023 times on this blog, and I stand by it.
 
-[http://www.amazon.com/Landors-Tower-Conversations-Iain-Sinclair/dp/1862074887/ref=sr_1_1?ie=UTF8&amp;s=books&amp;qid=1220398089&amp;sr=1-1](http://www.amazon.com/Landors-Tower-Conversations-Iain-Sinclair/dp/1862074887/ref=sr_1_1?ie=UTF8&amp;s=books&amp;qid=1220398089&amp;sr=1-1)
+[http://www.amazon.com/Landors-Tower-Conversations-Iain-Sinclair/dp/1862074887/ref=sr_1_1?ie=UTF8&s=books&qid=1220398089&sr=1-1](http://www.amazon.com/Landors-Tower-Conversations-Iain-Sinclair/dp/1862074887/ref=sr_1_1?ie=UTF8&s=books&qid=1220398089&sr=1-1)
 
 By  on 09/02/08 at 07:32 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/upcoming_book_event_lionel_trillings_emthe_journey_abandoned_the_unfinished/#22174)
 []()

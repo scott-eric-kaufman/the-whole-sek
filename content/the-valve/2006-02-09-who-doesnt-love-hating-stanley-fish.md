@@ -50,7 +50,7 @@ By [Scott Eric Kaufman](http://acephalous.typepad.com) on 02/10/06 at 12:56 AM |
 
 I meant mine as a complement. And I, for one, assumed the ‘to wit’ was intended to function as an example of what you were criticizing. That is, I assumed it was advertent. 
 
-I quite agree about Fish. It would be interesting to write an essay about the ubiquity of the Hope-Tipping gambit in criticism. I quote from Stephen Potter’s “Lifemanship” (which I’ve posted about before on J&amp;B, if you care to go search): 
+I quite agree about Fish. It would be interesting to write an essay about the ubiquity of the Hope-Tipping gambit in criticism. I quote from Stephen Potter’s “Lifemanship” (which I’ve posted about before on J&B, if you care to go search): 
 
 “In Newstatesmaning the critic must always be on top of, or better than, the person criticised. Sometimes the critic will be of feeble and mean intelligence. The subject of his criticism may be a man of genius. Yet he must get on top. How? the layman asks.
 

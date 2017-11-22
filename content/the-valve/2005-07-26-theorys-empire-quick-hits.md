@@ -20,7 +20,7 @@ _As usual, if there are any posts I missed, email me and I’ll rectify the situ
 
 ### Comments
 
-James Wood, last seen commenting at [The Reading Experience](http://noggs.typepad.com/the_reading_experience/2005/07/james.html), says _Get Real_ over at [The New Republic](http://www.tnr.com/doc.mhtml?i=20050801&amp;s=wood080105&amp;pt=QE8NLDvY9Yct3CsrY/2Lhm==) 
+James Wood, last seen commenting at [The Reading Experience](http://noggs.typepad.com/the_reading_experience/2005/07/james.html), says _Get Real_ over at [The New Republic](http://www.tnr.com/doc.mhtml?i=20050801&s=wood080105&pt=QE8NLDvY9Yct3CsrY/2Lhm==) 
 
 By  on 07/27/05 at 09:01 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/theorys_empire_quick_hits/#2789)
 []()
@@ -30,7 +30,7 @@ But does he mention our TE event? No?
 By [Jonathan](http://jgoodwin.net) on 07/27/05 at 09:55 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/theorys_empire_quick_hits/#2791)
 []()
 
-Today’s WSJ Leisure&amp;Arts includes [Mich St’s] James Seaton’s review of Thoery’s Empire. Mostly nonnoteworthy; the most cogent bit:
+Today’s WSJ Leisure&Arts includes [Mich St’s] James Seaton’s review of Thoery’s Empire. Mostly nonnoteworthy; the most cogent bit:
 
 “A sign that things may be changing is ‘Theory’s Empire,’ edited by Daphne Patai and Will Corral. Its 47 contributors patiently dissect all aspects of Theory, from its putative grounding in the ideas of Ferdinand de Saussure (1857-1913) to the practical effects—say, in India—of the postcolonial (’poco’) branch of Theiry, which does so much to denigrate logic and reason.
 

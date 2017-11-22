@@ -216,7 +216,7 @@ By  on 05/31/06 at 02:00 PM | [Permanent link to this comment](http://www.theval
 
 Intebyionakism is, I feel, a more appropriate term for the position Goldstein takes on interpretive strategy. “Intentionalism” implies a coherent theory with a history of thought behind it. I realize that the extent to which we privilege “intent” and even the way we define “intent” are up for debate in literary studies, but Goldstein’s ideas on it are not partaking in those debates. Hence, intebyionakism. 
 
-By the way, when you write “I find the lazy correspondence—between an intentionalist position and Goldstein’s conservative politics—Thersites and his lot consider commonplace inaccurate, offensive and intellectually dishonest,” I think you’re wrong--I think “"intentionalism"” as Goldstein spells it out is a politically motivated way of reading. To me it signifies a desire to be mastered &amp; led (Foucault’s definition of fascism). But you don’t have to take my word for it:
+By the way, when you write “I find the lazy correspondence—between an intentionalist position and Goldstein’s conservative politics—Thersites and his lot consider commonplace inaccurate, offensive and intellectually dishonest,” I think you’re wrong--I think “"intentionalism"” as Goldstein spells it out is a politically motivated way of reading. To me it signifies a desire to be mastered & led (Foucault’s definition of fascism). But you don’t have to take my word for it:
 
 Feel free to skip the intentionalism debate.  But because it informs a lot of my political thinking—and because there are others here who enjoy it—I don’t think we’ll see an end to it any time soon. 
 
@@ -773,7 +773,7 @@ _[A]ll interpretation is based upon authorial intention—whether or not the par
 
 If I read you correctly, your idea is that even schools that _explicitly reject_ authorial intention as a basis for making meaning secretly rely on “intentionalist” notions, and this is because they assume that they’re interpreting texts, which, you claim to have shown, are by definition intentionally created. By your logic: if you’re reading a text, you are (even if inadvertantly) an intentionalist. This is truly magical.
 
-I personally like to think of meaning-as-flow which isn’t owned by anyone (author, reader, text) but which moves as we interact with texts in the manner of D&amp;G’s desiring machines. Charles Bernstein in this fashion calls for a “criticism of desire: sowing, not reaping.”
+I personally like to think of meaning-as-flow which isn’t owned by anyone (author, reader, text) but which moves as we interact with texts in the manner of D&G’s desiring machines. Charles Bernstein in this fashion calls for a “criticism of desire: sowing, not reaping.”
 
 By  on 06/01/06 at 01:09 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/#9597)
 []()
@@ -782,7 +782,7 @@ Scattered thoughts:
 
 I claimed above that meaning is not an essence but a flow. This is admittedly somewhat radical, but nevertheless has no bearing on whether “intentionalism” is flawed.
 
-It occurs to me that “meaning,” even as an essence as you conceive it, Jeff, cannot be owned, neither by an author nor by anyone else.  This is because language isn’t owned. This is to say that a literary “speech act” (parole) is entirely dependeny upon language (langue). Langue is public, shared, and has no origin. Since “intent” is conveyed in language (as you insist) it seems to me that the “meaning” of a literary speech act is necessarily located beyond the author. You seem to think that calling a text a “speech act” autmatically means that you get to think of a text as originating with one discrete, authorial subject who owns the text’s meaning, yet speech act though a text may be, it remains entirely dependent upon a larger, shared public system. You address Saussaure in your notes (pp.2, 3, 18, &amp; 19) but never on this point; you state merely that Derrida has misrepresented (!) his thinking about signs. Nevertheless, it seems to me that this fundamental insight of Saussure at the very least problematizes where we can even locate authorial intent.
+It occurs to me that “meaning,” even as an essence as you conceive it, Jeff, cannot be owned, neither by an author nor by anyone else.  This is because language isn’t owned. This is to say that a literary “speech act” (parole) is entirely dependeny upon language (langue). Langue is public, shared, and has no origin. Since “intent” is conveyed in language (as you insist) it seems to me that the “meaning” of a literary speech act is necessarily located beyond the author. You seem to think that calling a text a “speech act” autmatically means that you get to think of a text as originating with one discrete, authorial subject who owns the text’s meaning, yet speech act though a text may be, it remains entirely dependent upon a larger, shared public system. You address Saussaure in your notes (pp.2, 3, 18, & 19) but never on this point; you state merely that Derrida has misrepresented (!) his thinking about signs. Nevertheless, it seems to me that this fundamental insight of Saussure at the very least problematizes where we can even locate authorial intent.
 
 This whole debate, I notice, has been conducted at a theoretical level. I continue to wonder happens to “intentionalism” when confronted with, say, L=A=N=G=U=A=G=E or dada poetry, Tender Buttons, Finnegans Wake, Ionesco’s “ANGEPAIN,” lyric poetry, or the hundreds of less experimental texts that obviate our attempts to reconstruct their (or their authors’) meanings. I feel we can all agree that each of these modes of literary discourse has different, even competing notions of the meaning of its own “meaning.” Why do we need “intentionalism” to make a universal claim about what all literary meaning aspires to?
 
@@ -1334,7 +1334,7 @@ By  on 06/02/06 at 02:47 PM | [Permanent link to this comment](http://www.theval
 
 The following is another example intent and reception.  It’s rather humorous:
 
-There is a convenience store chain in the MidWest named “Cum &amp; Go.”  (Think of a 7-11.)
+There is a convenience store chain in the MidWest named “Cum & Go.”  (Think of a 7-11.)
 
 Now, for people who have not grown up with these stores, some of us were rather taken aback by the name.  (When I first saw one of these stores I wondered if it was a porn store.)  
 
@@ -1450,9 +1450,9 @@ Thank you very much.
 By  on 06/03/06 at 12:46 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/#9654)
 []()
 
-{i}There is a convenience store chain in the MidWest named “Cum &amp; Go.” (Think of a 7-11.){/i}
+{i}There is a convenience store chain in the MidWest named “Cum & Go.” (Think of a 7-11.){/i}
 
-Actually, the stores are “Kum &amp; Go” 
+Actually, the stores are “Kum & Go” 
 
 {i}Should we dismiss the audience response as a bunch of dirty-minded perverted people?  (Heh, perhaps so.){/i}
 
@@ -1517,7 +1517,7 @@ My suggestion to the moderator is to delete or edit any comment that pertains to
 By  on 06/03/06 at 01:15 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/#9662)
 []()
 
-Wendy: You beat me to the **K**um &amp; Go correction.
+Wendy: You beat me to the **K**um & Go correction.
 
 The following silly little anecdote probably proves some part of someone’s point, but I’m too confused now to be sure:
 
@@ -1548,11 +1548,11 @@ By  on 06/04/06 at 03:51 AM | [Permanent link to this comment](http://www.theval
 
 I don’t think that either of John’s counterexamples is the knockout blow to Knapp and Michaels he believes they are.
 
-Take the chess example: “But don’t you have to know they intend to make a chess move? Actually, no. You just need to know that it is written in algebraic chess notation.” But “knowing that it is written in algebraic chess notation” requires knowing the writer’s intention; unless, that is, you take “being written in algebraic chess notation” to be synonymous with “being something that could be interpreted as being algebraic chess notation,” which is, of course, the very move that K &amp; M reject.
+Take the chess example: “But don’t you have to know they intend to make a chess move? Actually, no. You just need to know that it is written in algebraic chess notation.” But “knowing that it is written in algebraic chess notation” requires knowing the writer’s intention; unless, that is, you take “being written in algebraic chess notation” to be synonymous with “being something that could be interpreted as being algebraic chess notation,” which is, of course, the very move that K & M reject.
 
-To be sure, Sean anticipates this objection and responds: “I think I see how in this particular case that objection doesn’t have force since if we stipulate that a computer randomly generates combinations in chess notation, the sentences will be meaningful and there won’t be an intention generating them.” But this is ambiguous. If the computer is programmed to generate only combinations is chess notation, then there is intention there: i.e., the programmer’s. If, on the other hand, the computer is merely programmed to spew out random strings of characters, and by some strange chance they all happen to be legal chess notation, then K &amp; M can still argue that they have no meaning: they just look like algebraic chess notation, but aren’t really.
+To be sure, Sean anticipates this objection and responds: “I think I see how in this particular case that objection doesn’t have force since if we stipulate that a computer randomly generates combinations in chess notation, the sentences will be meaningful and there won’t be an intention generating them.” But this is ambiguous. If the computer is programmed to generate only combinations is chess notation, then there is intention there: i.e., the programmer’s. If, on the other hand, the computer is merely programmed to spew out random strings of characters, and by some strange chance they all happen to be legal chess notation, then K & M can still argue that they have no meaning: they just look like algebraic chess notation, but aren’t really.
 
-With the madlibs example, you and your wife both intended to produce English, and therefore language; so I would think that K &amp; M would have no problems calling it language, even though they would deny it a meaning.
+With the madlibs example, you and your wife both intended to produce English, and therefore language; so I would think that K & M would have no problems calling it language, even though they would deny it a meaning.
 
 By [Adam Stephanides](http://completelyfutile.blogspot.com/) on 06/04/06 at 11:56 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/#9668)
 []()
@@ -1584,7 +1584,7 @@ Alice didn’t think that proved it at all: however she went on. “And how do y
 By  on 06/04/06 at 01:36 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/#9669)
 []()
 
-Yes, that puts my uncertainty more precisely, Adam.  But aren’t the mad-lib and the computer example at odds.  K &amp; M would accept that the mad lib is language, but deny that is has meaning, except that imputed by a reader.  But in your clarification of the computer example, the programmer is in the same position as John and Belle, no?  A programmer intends for a computer to randomly generated sentences, but intends no single sentence.  Nevertheless, the single sentences generated have determinate meanings, which are not the product of the reader, no?  
+Yes, that puts my uncertainty more precisely, Adam.  But aren’t the mad-lib and the computer example at odds.  K & M would accept that the mad lib is language, but deny that is has meaning, except that imputed by a reader.  But in your clarification of the computer example, the programmer is in the same position as John and Belle, no?  A programmer intends for a computer to randomly generated sentences, but intends no single sentence.  Nevertheless, the single sentences generated have determinate meanings, which are not the product of the reader, no?  
 
 But isn’t that only the case in an artificial language where each term can be stipulated to have only one reference or use?  In natural langauge where that’s never (?) the case, there’s no determinate meaning without intention, no?
 
@@ -1616,7 +1616,7 @@ Anybody else feel like we’re in a David Lodge novel?
 By  on 06/05/06 at 01:09 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/#9687)
 []()
 
-Adam and Sean, I don’t really have a lot to add to my old post, which anticipates and at least tries to answer precisely the objections you make to it. (Predictably, these are the things K&amp;M will say. I can see that.) The question isn’t whether there is intention involved in, say, doing a madlib. Yes, of course. The things don’t write themselves. The question is whether it’s the right sort. Suppose the computer spews out Nd5 - knight to d5. What makes ‘Nd5’ mean knight to d5 - rather than, say, bishop to b3, or ‘I’d like a rum and coke’. Well, obviously there must have been at least some primordial investment of intentionality. Someone, at some point in the past, had to think something and intend something in order for there to be any language of any sort at all. This is not in dispute in the debate over intentionalism. The question is whether in every case - every meaningful token instantiation of Nd5 - the ONLY thing that keeps that token from meaning nothing, or ‘bishop to b5’, or ‘I’d like a rum and coke’, is the psychic fact of the actual producer of the token intending to mean, by ‘Nd5’, knight to d5.
+Adam and Sean, I don’t really have a lot to add to my old post, which anticipates and at least tries to answer precisely the objections you make to it. (Predictably, these are the things K&M will say. I can see that.) The question isn’t whether there is intention involved in, say, doing a madlib. Yes, of course. The things don’t write themselves. The question is whether it’s the right sort. Suppose the computer spews out Nd5 - knight to d5. What makes ‘Nd5’ mean knight to d5 - rather than, say, bishop to b3, or ‘I’d like a rum and coke’. Well, obviously there must have been at least some primordial investment of intentionality. Someone, at some point in the past, had to think something and intend something in order for there to be any language of any sort at all. This is not in dispute in the debate over intentionalism. The question is whether in every case - every meaningful token instantiation of Nd5 - the ONLY thing that keeps that token from meaning nothing, or ‘bishop to b5’, or ‘I’d like a rum and coke’, is the psychic fact of the actual producer of the token intending to mean, by ‘Nd5’, knight to d5.
 
 Let me try again my theology analogy. All Christians believe that God created the universe. Some Christians are occasionalists. They believe that God must recreate the universe in every instant. Other Christians think the universe can sort of cruise on the reality it inherits from the previous instant. God can, in principle, kick back and let the system run on its own steam. Now, regarding language, everyone believes that intentionality created language. But some people - Knapp and Michaels (and Fish and a couple others) - are, in effect, occasionalists about intention. They do not accept that a sentence like ‘Nd5’ can have, as it were, a semantic inheritance in virtue of conventions for language use. They are strongly committed to the claim that ‘Nd5’ cannot mean what it does in virtue of more or less settled uses for ‘N’, ‘d’, and ‘5’, which are - at this point - specifiable quite precisely, in compete independence of any acccount of the original intentional investment. (There is a reason why programming computers to ‘read’ chess notation does not involve teaching them to model the intentions of their adversary. That information simply is not necessary, as it would be to teach them to ‘read’ English.)
 
@@ -1687,7 +1687,7 @@ Yes - that bothered me too, in supporting such a simplistic cause and effect.
 By  on 06/05/06 at 02:33 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/#9705)
 []()
 
-Thanks, John.  I agree that the chess computer example is fatal to K &amp; M and Fish’s strongest claim--that an unintended utterance isn’t language and has no meaning.  
+Thanks, John.  I agree that the chess computer example is fatal to K & M and Fish’s strongest claim--that an unintended utterance isn’t language and has no meaning.  
 
 What I’m puzzling over, perhaps needlessly, is whether a less strong, but I think more important claim is equally challenged--that there is such a thing as reading that is not reading for intention.  Yes, certainly, in the sense of recognizing syntax.  And, yes, certainly in artificial languages.  But is there in natural languages?  The fact that intentions are as cloudy as utterances doesn’t, I think, resolve that question--since the issue isn’t whether a question is easy to resolve but where you look to resolve it or what you aim to do in trying resolve it.  The reason it matters that public codes are inherently ambiguous, I think, is, in other words, not that ambiguity is itelf the problem, but that ambiguity demands interpretation and interpretation seems to demand an effort to determine intention.  
 
@@ -1720,7 +1720,7 @@ Please, proceed.
 By  on 06/05/06 at 09:17 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/#9711)
 []()
 
-Wimsatt and Beardsley published on the intentional fallacy in 1954.* When I was an undergraduate in the late 60s I encountered the example of the Lord’s Prayer showing up inscribed in the sand on a deserted island &amp; I have no idea how old the example was at that time. De Man’s “Form and Intent in the American New Criticism” was published in 1966. Is there anything new in this line of argumentation or is it all a matter of seeing how small we can make the heads of the pins on which we invite these metaphysical angels to dance?
+Wimsatt and Beardsley published on the intentional fallacy in 1954.* When I was an undergraduate in the late 60s I encountered the example of the Lord’s Prayer showing up inscribed in the sand on a deserted island & I have no idea how old the example was at that time. De Man’s “Form and Intent in the American New Criticism” was published in 1966. Is there anything new in this line of argumentation or is it all a matter of seeing how small we can make the heads of the pins on which we invite these metaphysical angels to dance?
 
 *http://faculty.smu.edu/nschwart/seminar/Fallacy.htm
 
@@ -1744,7 +1744,7 @@ If the message written on the paper is “He isn’t here”, it certainly has m
 
 So from my point of view, mad libs have meaning but no reference.  Chess notations have meaning, but they have reference only if the game context is known.  Fiction has the apparatus of reference, but decontextualized from the real world and recontextualized to serve an aesthetic rather than referential function.
 
-Judging by what’s been written in this thread, when K &amp; M, or Jeff, talk about “meaning”, they really mean “reference”.  To determine the referential value of a message, if any, it makes sense to privilege the speaker’s intention, because the point of referential communication is for the speaker to communicate the message to the addressee.  Of course, the same doesn’t necessarily hold in the case of aesthetic rather than referential interpretations.
+Judging by what’s been written in this thread, when K & M, or Jeff, talk about “meaning”, they really mean “reference”.  To determine the referential value of a message, if any, it makes sense to privilege the speaker’s intention, because the point of referential communication is for the speaker to communicate the message to the addressee.  Of course, the same doesn’t necessarily hold in the case of aesthetic rather than referential interpretations.
 
 By  on 06/06/06 at 12:01 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/#9730)
 []()
@@ -1806,7 +1806,7 @@ The ‘as if’ point is also supposed to be well handled by the computer chess 
 
 In brief response to Jeff: you are proposing that, since we are interesting in what the speech act is all about - i.e. what someone is doing by means of some sentence - then of course we are going to think about ‘intentions’. But this isn’t really the issue in the intentionalism debate. Knapp and Michaels are actually trying to argue that it is quite literally impossible NOT to read for intentions. Their argumenbt is supposed to be a PROOF that “what we are after from a text as speech act, when we claim to wish to interpret it, is what that originary agency was referencing—or, to put it in terms I’ve been using, what was the original meaning created at the point when the signifiers became signs.” So we can’t use the latter claim as a premise, in effect, or as a limiting condition on the scope of the alleged proof. 
 
-It may seem picky to insist on this, but it’s rather important. I suspect that Jeff is actually advancing a MUCH weaker thesis than K &amp; M. (That’s a good thing, since weakness is strength, in a case like this. But it’s confusing to have K &amp; M’s arguments tangled up with defense of a thesis they are actually determined to refute as TOO weak.)
+It may seem picky to insist on this, but it’s rather important. I suspect that Jeff is actually advancing a MUCH weaker thesis than K & M. (That’s a good thing, since weakness is strength, in a case like this. But it’s confusing to have K & M’s arguments tangled up with defense of a thesis they are actually determined to refute as TOO weak.)
 
 By [John Holbo](http://examinedlife.typepad.com/johnbelle/) on 06/07/06 at 02:49 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/youre_not_doing_anyone_any_favors/#9771)
 []()

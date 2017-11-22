@@ -1,4 +1,4 @@
-## Syllabus Bleg: Poetry &amp; Social Crisis
+## Syllabus Bleg: Poetry & Social Crisis
 
  * Originally posted at http://www.thevalve.org/go/valve/article/syllabus_bleg_poetry_social_crisis/
 
@@ -52,7 +52,7 @@ Agee and Evans, selections from “Let Us Now Praise Famous Men”; background r
 
 “Introduction” from The Penguin Book of First World War Poetry, ed. and intro by Jon Silkin (on reserve). [Though we won’t be covering all of the poets discussed in Silkin’s intro, this will outline a number of the critical questions and issues we want to ask about the poems we will be reading during weeks 4 and 5.]
 
-**Weeks 4 &amp; 5 (War, Rebellion, Unrest, Protest)**
+**Weeks 4 & 5 (War, Rebellion, Unrest, Protest)**
 
 Michael Drayton, “The Battle of Agincourt”  (ERP 261)
 
@@ -74,7 +74,7 @@ Charles Hamilton Sorley – “When You See Millions of the Mouthless Dead”
 
 Edward Thomas – “A Private” 
 
-**Weeks 6 &amp; 7 (Pandemics, Poverty and Famine; mortality &amp; carpe diem poems)**
+**Weeks 6 & 7 (Pandemics, Poverty and Famine; mortality & carpe diem poems)**
 
 Lydgate
 
@@ -88,7 +88,7 @@ The 1918 Influenza pandemic, and poetic response
 
 The Irish Potato Famine, and poetic response
 
-**Weeks 8 &amp; 9 (Crises of conscience)**
+**Weeks 8 & 9 (Crises of conscience)**
 
 Fulke Greville
 
@@ -116,7 +116,7 @@ By [Adam Roberts](http://adamroberts.com) on 06/23/06 at 03:43 AM | [Permanent l
 
 All in English? This is kind of fun…
 
-War, rebellion, protest, social unrest &amp;c: Wordsworth “French Revolution as it Appeared to Enthusiasts at its Commencement”; Geoffrey Hill, “September Song”; Dylan Thomas “A Refusal to Mourn the death by Fire of a Child in London”; Allen Ginsberg “Howl”; Randall Jarrell “The Truth”; HD “Trilogy” (The Walls Do Not Fall?); Keith Douglas, “How To Kill”; Muriel Rukeyser “The Dead”; Les Murray “The Conquest”
+War, rebellion, protest, social unrest &c: Wordsworth “French Revolution as it Appeared to Enthusiasts at its Commencement”; Geoffrey Hill, “September Song”; Dylan Thomas “A Refusal to Mourn the death by Fire of a Child in London”; Allen Ginsberg “Howl”; Randall Jarrell “The Truth”; HD “Trilogy” (The Walls Do Not Fall?); Keith Douglas, “How To Kill”; Muriel Rukeyser “The Dead”; Les Murray “The Conquest”
 
 The AIDS pandemic: Thom Gunn, “Lament”; Mark Doty, “Atlantis”
 

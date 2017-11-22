@@ -110,7 +110,7 @@ By [Tim](http://huh.34sp.com/) on 01/28/06 at 05:02 AM | [Permanent link to this
 
 _Early SDS was pretty thoughtful, realistic, amd hopeful. But the combined impacts of the Vietnam War (a Democratic war supported by most liberals) and the drug culture ruined everything. SDS 1967-69 was pretty bad but by that time the Port Huron Statement was ancient history._
 
-Yes. And the distinction between people who thought of themselves as “political” revolutionaries and those who thought of themselves as “cultural” revolutions (i.e. hippies) was real into the 70s and beyond. Different people, different social networks, different clothes, different reading. Some people switched back and forth and some predominantly political people dropped acid, not to mention inhaling, but the differences remained real &amp; there was a certain amount of distance between the two.
+Yes. And the distinction between people who thought of themselves as “political” revolutionaries and those who thought of themselves as “cultural” revolutions (i.e. hippies) was real into the 70s and beyond. Different people, different social networks, different clothes, different reading. Some people switched back and forth and some predominantly political people dropped acid, not to mention inhaling, but the differences remained real & there was a certain amount of distance between the two.
 
 There were all those conversations about how the women’s movement would breach the gap between these two through “the personal is political.”
 
@@ -1096,7 +1096,7 @@ Emerson’s
 
 “The New Deal “nanny-state” Kesey viciously mocked in One Flew Over the Cuckoo’s Nest, for example, or organized labor in Sometimes a Great Notion"
 
-“drug culture” as a phrase, like “hippy” as a term, was a media creation, though there may be some weight to the idea of the media itself even then being little more than a lab assistant in a much larger and very well-funded R&amp;D facility. 
+“drug culture” as a phrase, like “hippy” as a term, was a media creation, though there may be some weight to the idea of the media itself even then being little more than a lab assistant in a much larger and very well-funded R&D facility. 
 
 Certainly there was eventually something that could be called a “drug culture”, just as there was something that could have been and is called the “hippy” movement.
 
@@ -1493,7 +1493,7 @@ Be curious, Scott, to hear just what you think Kristeva is saying there (not, of
 By [Matt](http://pasaudela.blogspot.com) on 01/30/06 at 05:49 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/mo/#7112)
 []()
 
-The H-1960s listserv is having a [parallel conversation](http://h-net.msu.edu/cgi-bin/logbrowse.pl?trx=lx&amp;list=H-1960s&amp;user=&amp;pw=&amp;month=0601) of interest about the late New Left and the Weatherman.  In particular, I’m struck by [this statement](http://h-net.msu.edu/cgi-bin/logbrowse.pl?trx=vx&amp;list=H-1960s&amp;month=0601&amp;week=e&amp;msg=L+9M/xcDbVOJqKEkmWBzAw&amp;user=&amp;pw=):
+The H-1960s listserv is having a [parallel conversation](http://h-net.msu.edu/cgi-bin/logbrowse.pl?trx=lx&list=H-1960s&user=&pw=&month=0601) of interest about the late New Left and the Weatherman.  In particular, I’m struck by [this statement](http://h-net.msu.edu/cgi-bin/logbrowse.pl?trx=vx&list=H-1960s&month=0601&week=e&msg=L+9M/xcDbVOJqKEkmWBzAw&user=&pw=):
 
 There’s a second Weatheridea that, even if it sounded very weird coming from the mouths of people for whom political strategy was, let us say, not a strong point, I find
 
@@ -1584,7 +1584,7 @@ By [xyxxyxyxyxyxyx](http://yahoo.com,) on 01/30/06 at 11:53 PM | [Permanent link
 By [Bill Benzon](http://new-savanna.blogspot.com/) on 01/31/06 at 08:54 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/mo/#7129)
 []()
 
-[New York Times obit for Coretta Scott King.](http://www.nytimes.com/2006/01/31/national/31cnd-coretta.html?ei=5094&amp;en=435a2f7d3bf7b954&amp;hp=&amp;ex=1138770000&amp;partner=homepage&amp;pagewanted=all TARGET=coretta)
+[New York Times obit for Coretta Scott King.](http://www.nytimes.com/2006/01/31/national/31cnd-coretta.html?ei=5094&en=435a2f7d3bf7b954&hp=&ex=1138770000&partner=homepage&pagewanted=all TARGET=coretta)
 
 By [Bill Benzon](http://new-savanna.blogspot.com/) on 01/31/06 at 10:15 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/mo/#7130)
 []()
@@ -1601,7 +1601,7 @@ McCarthy had a career before ‘68; it was after he bombed that campaign that it
 By  on 01/31/06 at 08:10 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/mo/#7134)
 []()
 
-H-1960 informs that Yippie cofounder [Stew Albert](http://stewa.blogspot.com) is [gone](http://www.oregonlive.com/news/oregonian/index.ssf?/base/news/1138677918136310.xml&amp;coll=7).
+H-1960 informs that Yippie cofounder [Stew Albert](http://stewa.blogspot.com) is [gone](http://www.oregonlive.com/news/oregonian/index.ssf?/base/news/1138677918136310.xml&coll=7).
 
 By [nnyhav](http://nnyhav.blogspot.com) on 01/31/06 at 11:41 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/mo/#7136)
 []()
@@ -1732,7 +1732,7 @@ Point taken, Jonathan.
 By  on 02/12/06 at 10:16 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/mo/#7438)
 []()
 
-Sean, you &amp; Szalay didn’t creep me out, although I’m still trying to figure out whether and where I disagree with you and whether the possible disagreement is interesting enough to write about. The potential finality of the guest issue was what creeped me out. As you may have gathered, I don’t like apocalypse.
+Sean, you & Szalay didn’t creep me out, although I’m still trying to figure out whether and where I disagree with you and whether the possible disagreement is interesting enough to write about. The potential finality of the guest issue was what creeped me out. As you may have gathered, I don’t like apocalypse.
 
 And I’m sorry if it seemed as if the first quote came from anyone but the editors of the magazine. I should have attributed.
 

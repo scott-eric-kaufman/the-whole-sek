@@ -10,7 +10,7 @@ Via [_Savage Minds_](http://savageminds.org/2009/03/10/winner-of-the-worst-postm
 
 I know everyone wants to cry Sokal and loose the hounds of sense, but the title is what the title is.  I’m more curious about this:
 
-I was fortunate to be mentored by Corrine Glesne, an absolutely wonderful ethnographer (Busier et al., 1997; Glesne, 1989, 1998, 2003; Martin &amp; Glesne, 2002).
+I was fortunate to be mentored by Corrine Glesne, an absolutely wonderful ethnographer (Busier et al., 1997; Glesne, 1989, 1998, 2003; Martin & Glesne, 2002).
 
 Do my eyes deceive me, or are those citations meant to substantiate _the absolute wonderfulness of Corrine Glesne_?  Is this a cheap scheme to up the number of times people are cited in professional indexes?  If so, how is it nobody’s—_wait a minute_.  I just had an idea.  
 

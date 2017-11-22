@@ -26,7 +26,7 @@ Bill, on the other hand, makes a valuable emendation to his short (and sympathet
 
 It is certainly possible to compose an oral style presentation and write it down.
 
-Without wishing to gauge my own success, this is what I tried to do. In fact, I was pleased to have the freedom to write the sort of suggestive first paragraph (about Bahktin, Derrida, etc.) that works _better_ as the prelude to a Q&amp;A session, than it does merely read.
+Without wishing to gauge my own success, this is what I tried to do. In fact, I was pleased to have the freedom to write the sort of suggestive first paragraph (about Bahktin, Derrida, etc.) that works _better_ as the prelude to a Q&A session, than it does merely read.
 
 By [Joseph Kugelmass](http://kugelmass.wordpress.com/) on 11/13/06 at 09:58 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/free_hegel_criticism_stop_selling_blue_jeans/#12921)
 []()

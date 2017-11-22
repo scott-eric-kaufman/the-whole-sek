@@ -75,13 +75,13 @@ By  on 04/06/07 at 11:00 PM | [Permanent link to this comment](http://www.theval
 
 Against my instincts, I’ve been meaning to write something responsible after having carefully reading Scull and the various Valve posters. But instinct won. 
 
-Before all this happened, my attitude toward M&amp;C (and the Foucault-Derrida controversy rising from it) was “?!?”. Most of M&amp;C seemed pedestrian, whereas the ending seemed provocative but overdone, so I basically ignored it. The stuff I liked was The History of Sexuality, Discipline and Punish, Power/Knowledge, and (with reservations) The Order of Things. (Not the Archeology of Knowledge, BTW, which IMHO was a regrettable descent into methodologism). These all strike me as fruitful major works, head and shoulders above toehr supposedly-similar works. 
+Before all this happened, my attitude toward M&C (and the Foucault-Derrida controversy rising from it) was “?!?”. Most of M&C seemed pedestrian, whereas the ending seemed provocative but overdone, so I basically ignored it. The stuff I liked was The History of Sexuality, Discipline and Punish, Power/Knowledge, and (with reservations) The Order of Things. (Not the Archeology of Knowledge, BTW, which IMHO was a regrettable descent into methodologism). These all strike me as fruitful major works, head and shoulders above toehr supposedly-similar works. 
 
-But now after Scull, if I grant that M&amp;C maybe wasn’t so good (as I’ve thought all along), I’m an acolyte trying to preserve Foucault’s inviolability? Come on.
+But now after Scull, if I grant that M&C maybe wasn’t so good (as I’ve thought all along), I’m an acolyte trying to preserve Foucault’s inviolability? Come on.
 
 There seems to be a subtext here saying that this is only the beginning, and that all of Foucault’s works are similarly vulnerable. Foucault shouldn’t be above criticism, but I don’t think that more Scull would be very illuminating. 
 
-I pity the fool who lives in a world where nothing of Foucault’s can be criticized and where M&amp;C is regarded as a solid authority. But thank God (should He exist) I don’t live in that world, if it exists.
+I pity the fool who lives in a world where nothing of Foucault’s can be criticized and where M&C is regarded as a solid authority. But thank God (should He exist) I don’t live in that world, if it exists.
 
 By [John Emerson](http://www.idiocentrism.com) on 04/08/07 at 08:29 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/with_apologies_a_little_more_foucault/#15219)
 []()

@@ -56,7 +56,7 @@ By [John Emerson](http://www.ideocentrism.com/theory.htm) on 07/14/05 at 02:32 A
 
 Here’s an oblique look at Theory on the way up:
 
-[http://www.acsu.buffalo.edu/&amp;#x7E;bjackson/englishdept.htm](http://www.acsu.buffalo.edu/&amp;#x7E;bjackson/englishdept.htm)
+[http://www.acsu.buffalo.edu/&#x7E;bjackson/englishdept.htm](http://www.acsu.buffalo.edu/&#x7E;bjackson/englishdept.htm)
 
 The article is about the English Department of SUNY Buffalo as it was in the late 60s and early 70s. It was an important Theory Site back then, and an interesting place to be. The article is written by Bruce Jackson, a folklorist and documentary film-maker and photographer (and whatever else) who was there at the time, and still. Jackson is a bona-fide skeptic about Theory, as am I.
 

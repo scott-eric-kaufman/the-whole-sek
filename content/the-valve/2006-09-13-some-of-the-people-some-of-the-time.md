@@ -32,7 +32,7 @@ I don’t necessarily disagree; however, I wonder what it suggests about his ide
 
 * * *
 
-[1]() You have to love ETS’s question-begging [description of the test](http://www.ets.org/portal/site/ets/menuitem.1488512ecfd5b8849a77b13bc3921509/?vgnextoid=ed952d3631df4010VgnVCM10000022f95190RCRD&amp;vgnextchannel=6ef946f1674f4010VgnVCM10000022f95190RCRD):
+[1]() You have to love ETS’s question-begging [description of the test](http://www.ets.org/portal/site/ets/menuitem.1488512ecfd5b8849a77b13bc3921509/?vgnextoid=ed952d3631df4010VgnVCM10000022f95190RCRD&vgnextchannel=6ef946f1674f4010VgnVCM10000022f95190RCRD):
 
 The committee that develops the test is aware of the limitations of the multiple-choice format, particularly for testing competence in literary study. An examination of this kind provides no opportunity for the student to formulate a critical response or support a generalization, and, inevitably, it sacrifices depth to range of coverage. However, in a national testing program designed for a wide variety of students with differing preparations, the use of a large number of short, multiple-choice questions has proved to be the most effective and reliable way of providing a fair and valid examination.
 

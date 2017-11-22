@@ -1,4 +1,4 @@
-## Theory &amp; Comics, Together At Last (Again); or, What If…?
+## Theory & Comics, Together At Last (Again); or, What If…?
 
  * Originally posted at http://www.thevalve.org/go/valve/article/theory_comics_together_at_last_again_or_what_if/
 

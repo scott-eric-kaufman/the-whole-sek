@@ -26,7 +26,7 @@ Very Terry Pratchett.
 By [Adam Roberts](http://adamroberts.com) on 11/21/08 at 08:40 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/how_not_to_use_emtheorys_empire_em/#23080)
 []()
 
-But surely know-nothing denunciations of Theory, Derrida, carrots &amp; etc. didn’t begin with the publication of Theory’s Empire.
+But surely know-nothing denunciations of Theory, Derrida, carrots & etc. didn’t begin with the publication of Theory’s Empire.
 
 In fact it was already a venerable tradition by the time TE was published.
 

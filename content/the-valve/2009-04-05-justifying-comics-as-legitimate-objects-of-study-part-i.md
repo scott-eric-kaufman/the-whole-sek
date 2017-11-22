@@ -8,7 +8,7 @@ Were I to muster a defense of comics as potentially serious objects of rhetorica
 
 ![Cvggo_calling](http://acephalous.typepad.com/.a/6a00d8341c2df453ef01156fea34fe970b-500pi "Cvggo_calling")   
 
-I present the whole painting here so you can see what occupies the center of the painting.  ([Many reproductions](http://images.google.com/images?q=caravaggio+calling+of+matthew&amp;oe=utf-8&amp;rls=org.mozilla:en-US:official&amp;client=firefox-a&amp;um=1&amp;ie=UTF-8&amp;sa=N&amp;hl=en&amp;tab=wi) of “The Calling” crop the upper third off.  I will too to save bandwidth below.)  If we assume that the eye of the viewer is drawn to the center, it becomes evident that Caravaggio didn’t intend his static painting to be experienced as such.  We light first on the boy’s eyes and follow them:
+I present the whole painting here so you can see what occupies the center of the painting.  ([Many reproductions](http://images.google.com/images?q=caravaggio+calling+of+matthew&oe=utf-8&rls=org.mozilla:en-US:official&client=firefox-a&um=1&ie=UTF-8&sa=N&hl=en&tab=wi) of “The Calling” crop the upper third off.  I will too to save bandwidth below.)  If we assume that the eye of the viewer is drawn to the center, it becomes evident that Caravaggio didn’t intend his static painting to be experienced as such.  We light first on the boy’s eyes and follow them:
 
 ![Caravaggio-the-calling-of-saint-matthew01](http://acephalous.typepad.com/.a/6a00d8341c2df453ef01156fea87cf970b-500pi "Caravaggio-the-calling-of-saint-matthew01")
 

@@ -1,4 +1,4 @@
-## The Consistency Fetish: The P. Serritslev Peterson on London &amp; James Berger Edition on Sacks Edition
+## The Consistency Fetish: The P. Serritslev Peterson on London & James Berger Edition on Sacks Edition
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_consistency_fetish_the_p_serritslev_peterson_on_london_james_berger_edi/
 

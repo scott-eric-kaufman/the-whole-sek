@@ -1,4 +1,4 @@
-## Warranted Bombast? Or, Apposite &amp; Oppositional Rhetoric
+## Warranted Bombast? Or, Apposite & Oppositional Rhetoric
 
  * Originally posted at http://www.thevalve.org/go/valve/article/warranted_bombast_or_apposite_oppositional_rhetoric/
 

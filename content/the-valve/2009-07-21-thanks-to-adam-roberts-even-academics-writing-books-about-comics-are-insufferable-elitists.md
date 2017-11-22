@@ -77,7 +77,7 @@ Let’s bracket off the usual Punch-and-Judy antics of academics v. the public o
 
 I’m more interested in the driving force of Adam’s particular valuations of good and mediocre SF (and by implication other fictional) work. Namely, as I read it, the first and primary quality of good work is its aesthetic novelty, its sense of individual distinctiveness from other work, its originality. 
 
-This is a pretty distinctively modernist &amp; romantic way to value artistic or cultural work. This is not to say it’s wrong, but it is to say that it is maybe a more particular and less intuitive argument about what makes for good culture than the critics who implicitly or explicitly rely upon tend to think. 
+This is a pretty distinctively modernist & romantic way to value artistic or cultural work. This is not to say it’s wrong, but it is to say that it is maybe a more particular and less intuitive argument about what makes for good culture than the critics who implicitly or explicitly rely upon tend to think. 
 
 It is a view that has a lot of influence still in contemporary culture, and isn’t limited to cultural critics, but it does tend to be especially pronounced among folks who have an especially intense interest in and knowledge about a particular cultural subsystem, genre, school or work, what have you. It’s also an especially strong assumption about good and bad work among critics who have very strong reputational or professional capital invested in critical knowledge about a field or genre of cultural work. 
 

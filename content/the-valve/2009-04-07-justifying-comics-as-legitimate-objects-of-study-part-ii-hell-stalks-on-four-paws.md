@@ -28,13 +28,13 @@ On what wings dare he aspire?
 
 What the hand dare seize the fire? 
 
-And what shoulder, &amp; what art. 
+And what shoulder, & what art. 
 
 Could twist the sinews of thy heart? 
 
 And when thy heart began to beat, 
 
-What dread hand? &amp; what dread feet? 
+What dread hand? & what dread feet? 
 
 What the hammer? what the chain? 
 
@@ -78,9 +78,9 @@ Is it just me or does the wittle kitty wook hungry?  Is this maybe just what Bl
 
 [![Twotigers](http://acephalous.typepad.com/.a/6a00d8341c2df453ef01156f00aac9970c-320wi)](http://acephalous.typepad.com/.a/6a00d8341c2df453ef01156f00aac9970c-pi) 
 
-If the warp and woof of Blake’s poem evokes the bottom tiger, why did he etch the top one below the text?  Because, as seemingly everyone since [David Erdman (1954) argues](http://books.google.com/books?id=i0tEKFEbXRAC&amp;pg=PA196&amp;dq=&amp;num=100&amp;as_brr=3&amp;ei=Ga7aSdPxB4jMkATF8N2rAw&amp;client=firefox-a#PPA196,M1), Blake may be borrowing the rhetorical excesses in the poem from the French Revolution-inspired panic that swept across England.  If we buy that reading of the poem, the relation of the hyperbolic text to the hypotropic tiger is evident: Blake was satirizing those who proclaimed The End Is Nigh by showing them what the dread tiger actually looked like.  Not that this is the only legitimate reading of the poem, but the advantage it has over its word-based competitors is that it treats the work in its entirety.
+If the warp and woof of Blake’s poem evokes the bottom tiger, why did he etch the top one below the text?  Because, as seemingly everyone since [David Erdman (1954) argues](http://books.google.com/books?id=i0tEKFEbXRAC&pg=PA196&dq=&num=100&as_brr=3&ei=Ga7aSdPxB4jMkATF8N2rAw&client=firefox-a#PPA196,M1), Blake may be borrowing the rhetorical excesses in the poem from the French Revolution-inspired panic that swept across England.  If we buy that reading of the poem, the relation of the hyperbolic text to the hypotropic tiger is evident: Blake was satirizing those who proclaimed The End Is Nigh by showing them what the dread tiger actually looked like.  Not that this is the only legitimate reading of the poem, but the advantage it has over its word-based competitors is that it treats the work in its entirety.
 
-If I seem to be backdooring authorial intent—Blake intended his words to be read on this plate and above this image—let me put your mind at ease: I’m actually doing something far more devious.  I’m claiming that the words absent the picture are meaningless nothings; that they are no more words than [Miraculous Wordsworth on a Beach](http://www.jstor.org/view/00931896/ap040032/04a00080/0) [_JSTOR_] is words.  They appear meaningful because these words combine into grammatical sentences under the aegis of a rigorous rhyme scheme, but just as a person kicking a ball is not necessarily playing soccer, words that make sense are not necessarily meaningful.  For the actions of the person kicking the ball to be meaningful, they need context: referees, rules, other players, &amp;c.  Similarly, for the words Blake etched onto the plate to be meaningful, they too require the context provided by the image of the FIRE TYGER!  The whole plate constitutes a single and singular _text_.  To analyze one without the other would be akin to kicking a ball into a tree and insisting you’ve won the World Cup, because any interpretation of the words absent the image is an analysis of a poem that only exists in your head.
+If I seem to be backdooring authorial intent—Blake intended his words to be read on this plate and above this image—let me put your mind at ease: I’m actually doing something far more devious.  I’m claiming that the words absent the picture are meaningless nothings; that they are no more words than [Miraculous Wordsworth on a Beach](http://www.jstor.org/view/00931896/ap040032/04a00080/0) [_JSTOR_] is words.  They appear meaningful because these words combine into grammatical sentences under the aegis of a rigorous rhyme scheme, but just as a person kicking a ball is not necessarily playing soccer, words that make sense are not necessarily meaningful.  For the actions of the person kicking the ball to be meaningful, they need context: referees, rules, other players, &c.  Similarly, for the words Blake etched onto the plate to be meaningful, they too require the context provided by the image of the FIRE TYGER!  The whole plate constitutes a single and singular _text_.  To analyze one without the other would be akin to kicking a ball into a tree and insisting you’ve won the World Cup, because any interpretation of the words absent the image is an analysis of a poem that only exists in your head.
 
 (The soccer analogy would be my nod to textbook language and logic.  It needs work.)
 

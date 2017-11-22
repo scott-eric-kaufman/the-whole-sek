@@ -14,7 +14,7 @@ Before I could return _[The Damnation of Theron Ware](http://www.amazon.com/exec
 
 The resulting note wheel is as lovely as it is meaningless, because I remember absolutely nothing about _The Damnation of Theron Ware._ From my notes, I can _almost_ reconstruct why I read it:
 
-Theron enjoys the “primitive” pleasures of Catholic picnics; contrast to earlier (235-6) image of it as orderly machine; no, from sociological &amp; intellectual perspective it’s orderly, from internal is 
+Theron enjoys the “primitive” pleasures of Catholic picnics; contrast to earlier (235-6) image of it as orderly machine; no, from sociological & intellectual perspective it’s orderly, from internal is 
 primitive
 
 If only I knew the antecedent of “it” I might be able to reconstruct my reason for reading the book. Am I the only one for whom [the Five Year Rule](http://acephalous.typepad.com/acephalous/2005/06/a_very_unfunny_.html) applies? (And do I _really_ want that question answered?)

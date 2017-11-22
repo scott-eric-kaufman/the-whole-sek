@@ -134,7 +134,7 @@ _Note: All categories and/or periods contain all the problems inherent to catego
 
 *   Structuralism: [_Structuralist Poetics_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=http%3A%2F%2Fwww.amazon.com%2Fgp%2Fproduct%2F0415289890), Jonathan Culler
 
-*   French Structuralism: [_History of Structuralism_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=external-search%3Fsearch-type=ss%26index=blended%26keyword=history%20of%20structuralism%20francois%20dosse) I &amp; II, Francoise Dosse
+*   French Structuralism: [_History of Structuralism_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&tag=diesekoschmar-20&camp=1789&creative=9325&path=external-search%3Fsearch-type=ss%26index=blended%26keyword=history%20of%20structuralism%20francois%20dosse) I & II, Francoise Dosse
 
 *   Freudian Psychoanalytic:
 

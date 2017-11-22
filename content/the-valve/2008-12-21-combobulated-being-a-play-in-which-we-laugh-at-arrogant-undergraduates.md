@@ -46,7 +46,7 @@ I still don’t know what Blackmur meant--nor why my rabbi conspired with The Fu
 
 \* The other lesson?  Never trust the Jews.
 
-\*\* Not that scholars have written much about this.  The only exception I can think of is [about] (http://books.google.com/books?id=IFWnCdWieOcC&amp;pg=PA8&amp;lpg=PA8&amp;dq=foreshadowing+serial+literature&amp;source=web&amp;ots=7IRHHNYG9S&amp;sig=dldjtUWeI2yueX0ZvG5qeYBhVEc)_[Buffy](http://books.google.com/books?id=IFWnCdWieOcC&amp;pg=PA8&amp;lpg=PA8&amp;dq=foreshadowing+serial+literature&amp;source=web&amp;ots=7IRHHNYG9S&amp;sig=dldjtUWeI2yueX0ZvG5qeYBhVEc)--_but that might be because I only dipped my toe in Dickensian waters.  (Work on Wharton’s serialized novels focuses on how she altered the plot or how she mimicked James, so even though I should’ve encountered something about it researching my Wharton chapter, I didn’t.)
+\*\* Not that scholars have written much about this.  The only exception I can think of is [about] (http://books.google.com/books?id=IFWnCdWieOcC&pg=PA8&lpg=PA8&dq=foreshadowing+serial+literature&source=web&ots=7IRHHNYG9S&sig=dldjtUWeI2yueX0ZvG5qeYBhVEc)_[Buffy](http://books.google.com/books?id=IFWnCdWieOcC&pg=PA8&lpg=PA8&dq=foreshadowing+serial+literature&source=web&ots=7IRHHNYG9S&sig=dldjtUWeI2yueX0ZvG5qeYBhVEc)--_but that might be because I only dipped my toe in Dickensian waters.  (Work on Wharton’s serialized novels focuses on how she altered the plot or how she mimicked James, so even though I should’ve encountered something about it researching my Wharton chapter, I didn’t.)
 
 ---
 
@@ -63,7 +63,7 @@ By  on 12/21/08 at 11:22 PM | [Permanent link to this comment](http://www.theval
 
 I took one class on Dickens, loved it, but in it I was specifically warned off the Ackroyd.  (I did my “major author” requirement on him, and had to read the Forster for that.  As you might expect, it didn’t give me much insight into literary technique.)  
 
-I do, however, know the friend in the revision question was the infamous Edward Bulwer-Lytton, so I’m tempted to think, well, I’m not sure what.  Yes, Dickens was driven by the almighty ... pound (so much for my alliteration), but he was, shall we say, obstinate at times with regard to how his work would be received by the public.  (The whole internal conflict between appealing to the audience he had vs. creating the audience he desired, &amp;c.)
+I do, however, know the friend in the revision question was the infamous Edward Bulwer-Lytton, so I’m tempted to think, well, I’m not sure what.  Yes, Dickens was driven by the almighty ... pound (so much for my alliteration), but he was, shall we say, obstinate at times with regard to how his work would be received by the public.  (The whole internal conflict between appealing to the audience he had vs. creating the audience he desired, &c.)
 
 All that said, I’m an Americanist, so my lack of familiarity with Dickens isn’t merely to be acknowledged, it’s to be celebrated.  (We have our own literature, don’t you know?  Just don’t mind all those stories about piers and Little Nell...)
 

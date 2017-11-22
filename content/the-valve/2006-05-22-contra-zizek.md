@@ -73,7 +73,7 @@ Tom, I’m not entirely sure why he wants this information, only that in the cou
 
 From the time I posted to the time Rodney produced the Girard reference.  Which isn’t to say that your questions aren’t productive, Tom; in a larger context, they certainly are.  _Pace_ Adam K., why certain problems become critical commonplaces fascinates me, even if I’m no more able to answer them than he is.  What’s the allure of a given idea?  Is it pure utility, and if so, in the service of what?  
 
-One of the things I’ve noticed as I think more about the idea of Higher Eclecticism is that there are two distinct practioners, one of whom doesn’t deserve the label.  There’s the “thinker” who wants to find philosophical materials for the house he was going to build anyway; then there’s the thinker who wants to experiment with materials to see what kind of house he could build were he to employ bricks here, stone there, MDF everywhere, &amp;c. 
+One of the things I’ve noticed as I think more about the idea of Higher Eclecticism is that there are two distinct practioners, one of whom doesn’t deserve the label.  There’s the “thinker” who wants to find philosophical materials for the house he was going to build anyway; then there’s the thinker who wants to experiment with materials to see what kind of house he could build were he to employ bricks here, stone there, MDF everywhere, &c. 
 
 But I’m now guilty of derailing my own thread.  Please, more on women as objects of sarcifice, thank you very much.
 

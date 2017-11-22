@@ -4,7 +4,7 @@
 
 * Sunday, February 08, 2009 
 
-Checking up that “proud cock” is two words, not one, so that I might [strut it out](http://acephalous.typepad.com/acephalous/2009/02/dear-acolytes-and-enemies-of-the-late-samuel-huntington-.html#comment-148034077), I came across the entry for “[beast language](http://books.google.com/books?id=wUTP0ZP7yy8C&amp;pg=PA36&amp;vq=beast+language)“ in the _Dictionary of Poetic Terms_.  The diction of the entry is either unconscionably vague or deliciously derisive:
+Checking up that “proud cock” is two words, not one, so that I might [strut it out](http://acephalous.typepad.com/acephalous/2009/02/dear-acolytes-and-enemies-of-the-late-samuel-huntington-.html#comment-148034077), I came across the entry for “[beast language](http://books.google.com/books?id=wUTP0ZP7yy8C&pg=PA36&vq=beast+language)“ in the _Dictionary of Poetic Terms_.  The diction of the entry is either unconscionably vague or deliciously derisive:
 
 Theoretically, it _seems_ the language of the poem moves backward from conceptual words to an intelligence of pure sound utterance that calls attention to the form, meaning, and derivation of the word.  The form is _probably_ meant to be experienced more than intellectually understood, an experience that _presumably_ links the reader with his own senses and the animal origins of language.
 

@@ -102,7 +102,7 @@ By [Josh](http://heymako.typepad.com) on 02/01/07 at 03:06 AM | [Permanent link 
 
 I’ve just finished a book chapter about nineteenth century novels published and reissued in illustrated editions.  Sequential pictorial narrative was already pretty sophisticated (in the English literary context, anyway) by the 1840s.
 
-A few of the 1890s books I looked at were illustrated with pictures quite clearly derived from &amp; influenced by ukiyo-e, Bill.
+A few of the 1890s books I looked at were illustrated with pictures quite clearly derived from & influenced by ukiyo-e, Bill.
 
 By  on 02/01/07 at 05:57 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/observations_on_the_latest_modern_fiction_studies/#14257)
 []()

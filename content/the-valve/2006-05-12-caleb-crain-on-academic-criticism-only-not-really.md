@@ -8,9 +8,9 @@
 
 It didn’t; it didn’t; and it didn’t.  
 
-The article’s evident confusion  may be the product of Crain (or the _n+1_ editors) deciding that “Academic Criticism” signals some particular body of work with addressable conditions of production, characters and traits, &amp;c.  It obviously does, only Crain doesn’t address _that_.  He reduces it to the small and vanishing genre of single-author studies.  To wit:
+The article’s evident confusion  may be the product of Crain (or the _n+1_ editors) deciding that “Academic Criticism” signals some particular body of work with addressable conditions of production, characters and traits, &c.  It obviously does, only Crain doesn’t address _that_.  He reduces it to the small and vanishing genre of single-author studies.  To wit:
 
-In the past few years I have become a fan—something I never dared in high school.  In love with Belle &amp; Sebastian, Ben Kweller, the Decemberists, and Sufjan Stevens, I have visited band websites and subscribed to band listservs.  [More evidence of fandom.]  I have learned about loseless file codecs in order to trade live shows.  [Even _more_ evidence of fandom.]  I have listened to songs recorded by one of my beloveds before he came up with his distinctive sound—befoe he was any good, in fact—and I have treasured them because they are, after all, his.  [_Even more_.]  I have found obscure, probably unintentional parallels between the lyrics of one beloved’s songs and those of another and I have wondered about my beloveds’ personal lives and inspected their songs for hints of autobiography.  If a love of mine sings a song of another musician,  I buy that musician’s album too, and try to like it.
+In the past few years I have become a fan—something I never dared in high school.  In love with Belle & Sebastian, Ben Kweller, the Decemberists, and Sufjan Stevens, I have visited band websites and subscribed to band listservs.  [More evidence of fandom.]  I have learned about loseless file codecs in order to trade live shows.  [Even _more_ evidence of fandom.]  I have listened to songs recorded by one of my beloveds before he came up with his distinctive sound—befoe he was any good, in fact—and I have treasured them because they are, after all, his.  [_Even more_.]  I have found obscure, probably unintentional parallels between the lyrics of one beloved’s songs and those of another and I have wondered about my beloveds’ personal lives and inspected their songs for hints of autobiography.  If a love of mine sings a song of another musician,  I buy that musician’s album too, and try to like it.
 
 Last year, at the height of my madness, I realized what it resembled: academic literary criticism of a great author.  There is the same impulse to collect and reluctance to judge. (76)
 
@@ -82,7 +82,7 @@ _You make it seem as though we make a claim about what the essay is about, but y
 
 Fair enough.  But I don’t think it changes the substance of my critique so much as create the appearance of an _ad hominem_ attack, as in “The editors _asked_ him to address ‘Academic Criticism,’ but he _chose_ to ignore them.”  Which isn’t what I intended.  
 
-Nor did I intend the smear of groupthink; the earlier, shriller version of this post noted that pointedly via a statement to the effect of “were the collective _n+1_ opinion on _Austerlitz_ to be believed, Sebald is the best/worst contemporary writer, embodying their best/worst characteristics, &amp;c.”  When I removed the offending material, the defense went with it.
+Nor did I intend the smear of groupthink; the earlier, shriller version of this post noted that pointedly via a statement to the effect of “were the collective _n+1_ opinion on _Austerlitz_ to be believed, Sebald is the best/worst contemporary writer, embodying their best/worst characteristics, &c.”  When I removed the offending material, the defense went with it.
 
 _That said, I think Caleb’s essay does address the conditions of academic production, not so much by innuendo as by indirection. Those conditions are less material than psychological, a kind of permanent closetedness that refuses to acknowledge love as a motive for criticism and research and has turned sublimation into professionalization._
 
@@ -98,7 +98,7 @@ Bill,
 
 _It’s precertified—except when people start agitating for including other texts, other voices._ 
 
-Yes, but _when aren’t they_?  Canonical negotiations are par for the course at this point.  Shakespeare, yes, we have consensus.  A couple others.  After that, _no dice_.  Constructing a syllabus becomes an exercise in discourse formation, a display of your ideological commitments, &amp;c.  For a T.A. with a supervisor, it becomes an actual negotiation of canonical assumptions, of what _should_ be represented, what can live without, and what, without which, the syllabus would not be representative.  
+Yes, but _when aren’t they_?  Canonical negotiations are par for the course at this point.  Shakespeare, yes, we have consensus.  A couple others.  After that, _no dice_.  Constructing a syllabus becomes an exercise in discourse formation, a display of your ideological commitments, &c.  For a T.A. with a supervisor, it becomes an actual negotiation of canonical assumptions, of what _should_ be represented, what can live without, and what, without which, the syllabus would not be representative.  
 
 That said, I see your point: people arguing about which Marlowe to include in Renaissance Drama have already canonized Marlowe and put their collective imprimatur on Renaissance Drama, as well.
 
@@ -198,7 +198,7 @@ By [Jon](http://www.posthegemony.org) on 05/14/06 at 02:44 PM | [Permanent link 
 
 Laura,
 
-You’re right, and that’s something I should’ve made more clear in my original post, _i.e._ that there is a degree of fanboy slavishness both w/r/t single-author studies _and_ a select group of authors, Austen, Shakespeare, Joyce, James, &amp;c.  For me, then, the question would be at what moment does “love” end and “pointed interest” begin.  I don’t “love” Jack London’s work in any sense of the word, but I’m intensely interested in it, in its effects, the way in which it’s caught in currents so great London can imagine his autonomy while still being swept downstream.  Whatever _that_ attachment to London is, however, it’s _not_ the uncritical emotional attachment Crain discusses.
+You’re right, and that’s something I should’ve made more clear in my original post, _i.e._ that there is a degree of fanboy slavishness both w/r/t single-author studies _and_ a select group of authors, Austen, Shakespeare, Joyce, James, &c.  For me, then, the question would be at what moment does “love” end and “pointed interest” begin.  I don’t “love” Jack London’s work in any sense of the word, but I’m intensely interested in it, in its effects, the way in which it’s caught in currents so great London can imagine his autonomy while still being swept downstream.  Whatever _that_ attachment to London is, however, it’s _not_ the uncritical emotional attachment Crain discusses.
 
 Ray,
 
@@ -251,7 +251,7 @@ Caleb
 By [Caleb Crain](http://steamthing.com) on 05/14/06 at 10:31 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/caleb_crain_on_academic_criticism_only_not_really/#9262)
 []()
 
-I’m not sure that single-author studies are as “small and vanishing” a genre as you think. In the last 30 days alone, the English Library at the university I live near [acquired](http://www.library.uiuc.edu/newtitles/view.php?&amp;units=35&amp;CallNoRanges=810_820,820_830&amp;sort=callno&amp;languages=eng&amp;dateFixed=month) books devoted to a single author on sixteen authors (seventeen if a “reception study” counts), both greats and lesser-knowns (e.g. Thorton Wilder, George S. Schuyler, Barbara Pym). All of them were from reputable university or scholarly presses. (Granted, these were a minority of the books acquired.)
+I’m not sure that single-author studies are as “small and vanishing” a genre as you think. In the last 30 days alone, the English Library at the university I live near [acquired](http://www.library.uiuc.edu/newtitles/view.php?&units=35&CallNoRanges=810_820,820_830&sort=callno&languages=eng&dateFixed=month) books devoted to a single author on sixteen authors (seventeen if a “reception study” counts), both greats and lesser-knowns (e.g. Thorton Wilder, George S. Schuyler, Barbara Pym). All of them were from reputable university or scholarly presses. (Granted, these were a minority of the books acquired.)
 
 By [Adam Stephanides](http://completelyfutile.blogspot.com/) on 05/15/06 at 11:55 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/caleb_crain_on_academic_criticism_only_not_really/#9267)
 []()

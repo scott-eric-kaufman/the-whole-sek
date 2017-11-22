@@ -4,7 +4,7 @@
 
 * Tuesday, September 30, 2008 
 
-Presented by HumaniTech and the UCI Humanities Center on Friday, 24 October 2008 in [135 HIB](http://maps.google.com/maps?f=q&amp;hl=en&amp;geocode=&amp;q=humanities+instructional+building,+irvine,+ca&amp;ie=UTF8&amp;ll=33.648554,-117.843795&amp;spn=0.001451,0.002843&amp;t=h&amp;z=19&amp;iwloc=A).  The whole day looks fascinating, but this panel should be a thing of great and terrible profundity:
+Presented by HumaniTech and the UCI Humanities Center on Friday, 24 October 2008 in [135 HIB](http://maps.google.com/maps?f=q&hl=en&geocode=&q=humanities+instructional+building,+irvine,+ca&ie=UTF8&ll=33.648554,-117.843795&spn=0.001451,0.002843&t=h&z=19&iwloc=A).  The whole day looks fascinating, but this panel should be a thing of great and terrible profundity:
 
 **(10:45) Blogging and the Academy**
 
@@ -50,7 +50,7 @@ John Wiener, UC Irvine
 
 Moderator: Amy Wilentz, _[Huffington Post](http://huffingtonpost.com)****_
 
-_****_**(5:15) Wrap-up, Round Table, &amp; Reception**
+_****_**(5:15) Wrap-up, Round Table, & Reception**
 
 ---
 

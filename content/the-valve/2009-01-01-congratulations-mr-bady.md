@@ -23,7 +23,7 @@ I second these SEK-y congrats.  Second them, I do.  Well done and well deserve
 By [Adam Roberts](http://adamroberts.com) on 01/02/09 at 08:24 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/congratulations_mr_bady/#23459)
 []()
 
-Wonderful news, Scott &amp; Aaron!
+Wonderful news, Scott & Aaron!
 
 By [Marc Bousquet](http://howtheuniversityworks.com) on 01/03/09 at 02:46 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/congratulations_mr_bady/#23468)
 []()

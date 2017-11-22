@@ -39,11 +39,11 @@ Ray, I’ve never workshopped fiction, so I appreciate your input in this.  The
 
 withheld, I’m not criticizing Butler here, only pointing to the unusual manner in which she tries to assert authority over her works in this collection.  To follow each story with an afterword interpreting it for the reader seems to me a way to control how the reader will respond to the story.  Their very presence almost demands the reader consider them part of the story.  The way the book’s set up reinforces this impression: 
 
-[preface](http://books.google.com/books?ie=UTF-8&amp;hl=en&amp;id=kXpHeqmws1gC&amp;dq=bloodchild&amp;prev=http://books.google.com/books?q=bloodchild&amp;lpg=PP12&amp;pg=PP11&amp;sig=ZkNIq0xpqI0TPfitNub8A3NpQeM)
+[preface](http://books.google.com/books?ie=UTF-8&hl=en&id=kXpHeqmws1gC&dq=bloodchild&prev=http://books.google.com/books?q=bloodchild&lpg=PP12&pg=PP11&sig=ZkNIq0xpqI0TPfitNub8A3NpQeM)
 
-[title page of the story “Bloodchild"](http://books.google.com/books?ie=UTF-8&amp;hl=en&amp;id=kXpHeqmws1gC&amp;dq=bloodchild&amp;prev=http://books.google.com/books?q=bloodchild&amp;lpg=PA1&amp;pg=PA1&amp;sig=zcflFhy1VEVtxRT-kBNLUR7lXlA)
+[title page of the story “Bloodchild"](http://books.google.com/books?ie=UTF-8&hl=en&id=kXpHeqmws1gC&dq=bloodchild&prev=http://books.google.com/books?q=bloodchild&lpg=PA1&pg=PA1&sig=zcflFhy1VEVtxRT-kBNLUR7lXlA)
 
-[afterword to the story “Bloodchild"](http://books.google.com/books?ie=UTF-8&amp;hl=en&amp;id=kXpHeqmws1gC&amp;pg=PA30&amp;lpg=PA30&amp;dq=afterword&amp;prev=http://books.google.com/books?q=bloodchild&amp;sig=sGkD9H9BykyMCzcavwnPuzKXMz0)
+[afterword to the story “Bloodchild"](http://books.google.com/books?ie=UTF-8&hl=en&id=kXpHeqmws1gC&pg=PA30&lpg=PA30&dq=afterword&prev=http://books.google.com/books?q=bloodchild&sig=sGkD9H9BykyMCzcavwnPuzKXMz0)
 
 I’m getting “restricted pages” for all the other title pages, but there’s another title page immediately after the afterword for the next story, “The Evening and the Morning and the Night.”  By “imperial” I only meant to point to a gesture which _seems_ innocent but, to my mind, is an attempt to reassert authority over her stories by emphasizing the divide between what the reader brings to and what she put into them.
 

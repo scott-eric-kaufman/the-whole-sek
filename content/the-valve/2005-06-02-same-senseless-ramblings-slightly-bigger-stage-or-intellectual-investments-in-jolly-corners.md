@@ -4,9 +4,9 @@
 
 * Thursday, June 02, 2005 
 
-First, I’d like to thank John for the invite.  I’m still 100%!c(MISSING)ommitted to writing all my usual nonsense at my [place](http://acephalous.typepad.com), but now I have a venue for some of my more serious prattle, like…
+First, I’d like to thank John for the invite.  I’m still 100% committed to writing all my usual nonsense at my [place](http://acephalous.typepad.com), but now I have a venue for some of my more serious prattle, like…
 
-In “Fixed Opinions, or The Hinge of History” (later published as [_Fixed Ideas_](http://www.nybooks.com/shop/product?usca_p=t&amp;product_id=1147)) Joan Didion represents the Bush Administration’s justification for what future generations will call the Giant Mess O’Potamia as follows:
+In “Fixed Opinions, or The Hinge of History” (later published as [_Fixed Ideas_](http://www.nybooks.com/shop/product?usca_p=t&product_id=1147)) Joan Didion represents the Bush Administration’s justification for what future generations will call the Giant Mess O’Potamia as follows:
 
 “I made up my mind,” [Bush] had said in April, “that Saddam needs to go.” This was one of many curious, almost petulant statements offered in lieu of actually presenting a case. _I’ve made up my mind, I’ve said in speech after speech, I’ve made myself clear._ The repeated statements became their own reason: “Given all we have said as a leading world power about the necessity for regime change in Iraq,” James R. Schlesinger, who is now a member of Richard Perle’s Defense Policy Board, told The Washington Post in July, “our credibility would be badly damaged if that regime change did not take place."
 
@@ -307,7 +307,7 @@ I am not a positivist, so Freud’s non-scientific status is not so important to
 By [John Emerson](http://www.idiocentrism.com/freud.htm) on 06/02/05 at 07:54 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/same_senseless_ramblings_slightly_bigger_stage_or_intellectual_investments/#1544)
 []()
 
-Between Fisher &amp; Greenberg, Westen, and Masling, he cites empirical studies numbering well over a thousand. Are they all meaningless or distorted by  blind faith in psychoanalysis?  
+Between Fisher & Greenberg, Westen, and Masling, he cites empirical studies numbering well over a thousand. Are they all meaningless or distorted by  blind faith in psychoanalysis?  
 
 The example you point out might be flawed, but I’m not sure that I follow your reasoning. What would be “objective” evaluation in that context? A grading algorithm? Perhaps the NSA could share some of its speech recognition and truth-telling technology for future experiments. And what would constitute a control? A lengthy interrogation?
 
@@ -346,7 +346,7 @@ By [Scott Eric Kaufman](http://acephalous.typepad.com) on 06/02/05 at 09:53 PM |
 
 Your first comment here stated that “[Holland] neglects to mention one significant difference between geology, astronomy, medicine and psychoanalysis; namely, that the first three can produce empirically measurable results, whereas psychoanalysis cannot.”
 
-Holland cites several works which present numerous empirical studies of psychoanalysis. They provide evidence for his claim that these studies exist and that they provide measurable empirical data for some of the psychoanalytic claims. Furthermore, the existence of these studies is inconvenient for many--not all, but many--participants in the “Freud Wars.” If you feel that the works he cites do not in fact support his conclusion, you should tell us why. Simply mentioning Gr&amp;uumlnbaum and Macmillan isn’t enough.
+Holland cites several works which present numerous empirical studies of psychoanalysis. They provide evidence for his claim that these studies exist and that they provide measurable empirical data for some of the psychoanalytic claims. Furthermore, the existence of these studies is inconvenient for many--not all, but many--participants in the “Freud Wars.” If you feel that the works he cites do not in fact support his conclusion, you should tell us why. Simply mentioning Gr&uumlnbaum and Macmillan isn’t enough.
 
 The point I wanted to raise by linking to the Holland article is that you shouldn’t overgeneralize about psychoanalysis. People talk about Freud far more than they read him, and I’m not sure if even Marx or Nietzsche’s ideas are as distorted in the popular imagination. Even among psychoanalytic literary scholars, much of the relevant evidence about Freud’s scientific legacy has been ignored or deemed a priori irrelevant.
 
@@ -552,7 +552,7 @@ An argument from authority is when the force of the authority substitutes for fa
 
 It is germane to the discussion because it shows how Freud’s ideas have been treated. What he was right about is trivialized or ignored at the expense of his wrongs. Reasons for this have much to do with Freud’s cultural legacy and gravity, and often little with disinterested assessment of his ideas. That is the “polemical” content of Holland’s argument. As he accepts that Freud was spectacularly wrong about feminine sexuality, inter alia, you can’t justly say that he ignores Freud’s critics. It certainly wasn’t worshippers who demonstrated that.
 
-As to the matter of sources, the studies he cites describe the results of the empirical investigation of psychoanalysis. He gives the details of one out of thousands detailed in those books. Fisher &amp; Greenberg provide summaries and analysis of experimental confirmation and disconfirmation of the classical Freudian theory. Weston’s results include modern developments in psychoanalysis, including object relations theory. Holland reads Weston’s results as providing further evidence that Freud’s theory of mind is compatible with the best (cognitive) psychology we have. I don’t think that’s trivial in terms of result or as of a percentage of his output, really. Little of the contemporaneous work has survived as well. Behaviorism, again, is worth considering in that context.
+As to the matter of sources, the studies he cites describe the results of the empirical investigation of psychoanalysis. He gives the details of one out of thousands detailed in those books. Fisher & Greenberg provide summaries and analysis of experimental confirmation and disconfirmation of the classical Freudian theory. Weston’s results include modern developments in psychoanalysis, including object relations theory. Holland reads Weston’s results as providing further evidence that Freud’s theory of mind is compatible with the best (cognitive) psychology we have. I don’t think that’s trivial in terms of result or as of a percentage of his output, really. Little of the contemporaneous work has survived as well. Behaviorism, again, is worth considering in that context.
 
 Holland’s ideas about holism and scientific method compose the bulk of his argument. In my view, Weiss and Sampson did as good of a job as could be done with what they were attempting to measure. I’m not sure how the protocols you mention could be better implemented, except through not yet existing technology. But it’s a tangential issue, essentially.
 
@@ -689,7 +689,7 @@ Must...learn...to...type...comments...elsewhere…
 
 I just completed a decisive counter-missive which would’ve proven _each and every one of you_, irrespective of the position you’ve taken in this debate, Sacramento-is-the-capital-of-Massachusetts wrong...but it’s been eaten by the Valve.  Some of the highlights included:
 
-1.  If I wanted to spark a Culture Skirmish, I’d have quoted Grunbaum: “[D]oes a _psychoanalytic_ explanation of Hitler’s behavior actually have far better warrant than, say, the diagnosis given by an exorcist who invokes literal Satanic possession?” (308).  In the interest of civil discourse (and as a firm believer in [Godwin’s Law](http://en.wikipedia.org/wiki/Godwin&amp;aposs_law)), I didn’t.
+1.  If I wanted to spark a Culture Skirmish, I’d have quoted Grunbaum: “[D]oes a _psychoanalytic_ explanation of Hitler’s behavior actually have far better warrant than, say, the diagnosis given by an exorcist who invokes literal Satanic possession?” (308).  In the interest of civil discourse (and as a firm believer in [Godwin’s Law](http://en.wikipedia.org/wiki/Godwin&aposs_law)), I didn’t.
 
 2.  Seymour and Greenberg’s study only defends Freud’s work: “It was our decision to confine assessments entirely to Freud’s constructs...the diversity of the secondary elaborations of Freud’s ideas is so Babel-like as to defy the derivation of sensible deductions that can be put to empirical test.”  That the proliferation of second-order psychoanalytic theories makes empirical verification practically impossible is a problem for both sides in this discussion.  Once the first-order constructs were proven/disproven, the second-order ones would need vetting; once they were vetted, it’d be the third-order’s turn; etc.  This need only necessarily apply to actual psychoanalytic theory and practice; whether the aetiologic, developmental, psychodynamic and therapeutic hypotheses of psychoanalytic theory are correct need not, necessarily, bear on whether or not they’re adopted by literary theory.  (Theories of literature have never had empirical standards before; why should it necessarily have them now?)
 

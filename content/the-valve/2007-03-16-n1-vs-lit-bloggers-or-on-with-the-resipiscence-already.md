@@ -44,7 +44,7 @@ I think that I was tired of this particular “controversy” before it even beg
 
 Keith Gessen writes in one of the linked comment threads: “As long as these people are the ones making noise, when some mainstream media person puts together a list of “leading lit-blogs,” they’ll be on it. And when a print publication like n+1 decides to write something about blogs, those will be the people on our minds, because they’re the ones shoving their half-formed sentences in our faces. You--the better bloggers--have no right to complain about this, because you’re not coming forward to say: No, those guys aren’t the real bloggers. And you’re not telling them to shut up. Until you do that, they will represent you to the world. It’s up to you.”
 
-Well, no.  People have far better things to do than to operate an impossible discipline &amp; punish Internet police action on behalf of litblogging.  I counter-suggest that maybe it’s a critic’s responsiblity to find what’s good.  Dismissing what’s bad is amusing also, of course, but not if it turns into something too much like rejecting academia because it contains Ward Churchill, and then telling academics that they should have told him to shut up.
+Well, no.  People have far better things to do than to operate an impossible discipline & punish Internet police action on behalf of litblogging.  I counter-suggest that maybe it’s a critic’s responsiblity to find what’s good.  Dismissing what’s bad is amusing also, of course, but not if it turns into something too much like rejecting academia because it contains Ward Churchill, and then telling academics that they should have told him to shut up.
 
 Of course, you need a certain degree of ambitiousness to attempt something like n+1 in the first place.  The whole thing doesn’t deserve the flame war that’s inevitably going to happen.
 
@@ -148,11 +148,11 @@ By [ben wolfson](http://waste.typepad.com) on 03/17/07 at 03:15 PM | [Permanent 
 
 "By writing the article as they did, n+1 made it so that no discussion that anyone can learn anything from really can follow.”
 
-I completely agree. I don’t understand what Gessen and Roth thought they were accomplishing by fanning this flame war in the first place. They published a piece slamming litbloggers, but rather than name names in the piece itself they waited until the predictable response from litbloggers who thought they *might* be among those who don’t measure up to G &amp; R’s standards to leap in and start sliming individual bloggers. The slur against Scott Esposito was especially vile. As far as I can tell, Scott has done nothing to offend the n+1ers, and has even talked up the magazine on his blog. He’s gone on record as opposing Mark S’s tactic of publishing Gessen’s e-mails.
+I completely agree. I don’t understand what Gessen and Roth thought they were accomplishing by fanning this flame war in the first place. They published a piece slamming litbloggers, but rather than name names in the piece itself they waited until the predictable response from litbloggers who thought they *might* be among those who don’t measure up to G & R’s standards to leap in and start sliming individual bloggers. The slur against Scott Esposito was especially vile. As far as I can tell, Scott has done nothing to offend the n+1ers, and has even talked up the magazine on his blog. He’s gone on record as opposing Mark S’s tactic of publishing Gessen’s e-mails.
 
 Bottom-line questions: Do Gessen and Roth want readers for their journal or not? If they do, why don’t they 1) make more of their content available online so that those of us who don’t know if we want to subscribe (and I have to say I’m now *much* less likely to subscribe) can decide if we like the thing or not, and 2) stop acting as if the “contest” between print mags and blogs is a zero-sum game. 
 
-The very people who are likely to read n + 1, even to do a little of the very publicizing G &amp; R so revile on *its*, behalf, are the bloggers and their own readers. Yet Gessen and Roth seem to do everything they can do express their disdain for these litbloggers. Am I the only one who thinks that as a marketing strategy, this is insane?
+The very people who are likely to read n + 1, even to do a little of the very publicizing G & R so revile on *its*, behalf, are the bloggers and their own readers. Yet Gessen and Roth seem to do everything they can do express their disdain for these litbloggers. Am I the only one who thinks that as a marketing strategy, this is insane?
 
 And I surely do appreciate Scott K’s kind words about me.
 
@@ -213,7 +213,7 @@ By [Henry Farrell](http://www.crookedtimber.org) on 03/18/07 at 10:24 PM | [Perm
 
 "Bad writing is bad for writing. Bad reading is bad for reading. Much of what has been published on Sarvas or Ed or Scott Esposito (sorry, Scott) has been well-intentioned--and phenomenally ignorant.” 
 
-This is Gessen’s comment. He offers no illustraton of the “phenomenal ignorance” of Scott Esposito’s blog, either here or in the orginal “Blog Reflex” thingamajig. My undertone is not that G &amp; R shouldn’t be rude but that they should at least offer some evidence to support their snark. Surely calling bloggers names is no more intellectually rigorous than making cooing noises.
+This is Gessen’s comment. He offers no illustraton of the “phenomenal ignorance” of Scott Esposito’s blog, either here or in the orginal “Blog Reflex” thingamajig. My undertone is not that G & R shouldn’t be rude but that they should at least offer some evidence to support their snark. Surely calling bloggers names is no more intellectually rigorous than making cooing noises.
 
 By [Daniel Green](http://noggs.typepad.com) on 03/19/07 at 12:17 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/n1_vs_lit_bloggers/#14929)
 []()
@@ -226,7 +226,7 @@ The slur against Scott Esposito was especially vile. As far as I can tell, Scott
 
 and then:
 
-The very people who are likely to read n + 1, even to do a little of the very publicizing G &amp; R so revile on *its*, behalf, are the bloggers and their own readers. Yet Gessen and Roth seem to do everything they can do express their disdain for these litbloggers. Am I the only one who thinks that as a marketing strategy, this is insane?
+The very people who are likely to read n + 1, even to do a little of the very publicizing G & R so revile on *its*, behalf, are the bloggers and their own readers. Yet Gessen and Roth seem to do everything they can do express their disdain for these litbloggers. Am I the only one who thinks that as a marketing strategy, this is insane?
 
 This reads a lot like “be nice to litbloggers if you want them to be nice to you” and “you have to get along to get ahead” to me.
 

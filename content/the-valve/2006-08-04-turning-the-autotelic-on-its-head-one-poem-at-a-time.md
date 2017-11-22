@@ -88,7 +88,7 @@ Finally, I said _non_-historicist, not _ahistorical_, but I like your ahistorica
 By [Scott Eric Kaufman](http://acephalous.typepad.com) on 08/05/06 at 02:33 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/tur/#10849)
 []()
 
-Final note: I suppose what I’m saying is that when I say “radical,” I mean “radical.”  An _actual_ New Critic would’ve known and/or consulted the Rule of a Spanish monestary (the spelling of which I _did_ check, but could only conclude that there [isn’t a commonly accepted one](http://dictionary.oed.com/cgi/entry/00313868/00313868spg1?single=1&amp;query_type=misspelling&amp;queryword=monestary&amp;first=1&amp;max_to_show=10&amp;hilite=00313868spg1)) before beginning their analysis.  That’s the common critique of NC, after all: they didn’t realize how learned they already were, and were seeing _in_ texts things which required the cultural capital they brought _to_ them.
+Final note: I suppose what I’m saying is that when I say “radical,” I mean “radical.”  An _actual_ New Critic would’ve known and/or consulted the Rule of a Spanish monestary (the spelling of which I _did_ check, but could only conclude that there [isn’t a commonly accepted one](http://dictionary.oed.com/cgi/entry/00313868/00313868spg1?single=1&query_type=misspelling&queryword=monestary&first=1&max_to_show=10&hilite=00313868spg1)) before beginning their analysis.  That’s the common critique of NC, after all: they didn’t realize how learned they already were, and were seeing _in_ texts things which required the cultural capital they brought _to_ them.
 
 By [Scott Eric Kaufman](http://acephalous.typepad.com) on 08/05/06 at 02:46 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/tur/#10851)
 []()

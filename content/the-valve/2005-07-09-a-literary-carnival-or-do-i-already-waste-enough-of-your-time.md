@@ -14,7 +14,7 @@ Would the idea of a carnival that collected the best blogging about literature a
 
 ### Comments
 
-I think it’s a great idea, but wouldn’t the Valve be the perfect starting host for such a thing, given its stated ambitions &amp; the stated ambitions of the ALSC?
+I think it’s a great idea, but wouldn’t the Valve be the perfect starting host for such a thing, given its stated ambitions & the stated ambitions of the ALSC?
 
 By [Ray Davis](http://www.pseudopodium.org/) on 07/10/05 at 03:24 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/a_literary_carnival_or_do_i_already_waste_enough_of_your_time/#2231)
 []()
@@ -70,7 +70,7 @@ Sounds too close to “The Daily Show“‘s “Messopotamia”.
 By [DarkoV](http://www.pertinentverge.blogspot.com) on 07/11/05 at 11:43 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/a_literary_carnival_or_do_i_already_waste_enough_of_your_time/#2241)
 []()
 
-I love _The Daily Show_, but Joyce’s pun wins: it evokes a city in which messages from the dead are written (and delivered) _after_ the death of their authors.  (And that’s just the start of what it evokes.  Throw in a little Barthes and/or Foucault and you have the place from which all writers fail to make their intentions known. Or &amp;c.)  Jon Stewart’s cleverly reinforces the obvious.  Again, love _The Daily Show_.  There’s no shame in one’s pun being bested by Joyce’s.
+I love _The Daily Show_, but Joyce’s pun wins: it evokes a city in which messages from the dead are written (and delivered) _after_ the death of their authors.  (And that’s just the start of what it evokes.  Throw in a little Barthes and/or Foucault and you have the place from which all writers fail to make their intentions known. Or &c.)  Jon Stewart’s cleverly reinforces the obvious.  Again, love _The Daily Show_.  There’s no shame in one’s pun being bested by Joyce’s.
 
 By [Scott Eric Kaufman](http://acephalous.typepad.com) on 07/11/05 at 01:09 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/a_literary_carnival_or_do_i_already_waste_enough_of_your_time/#2244)
 []()

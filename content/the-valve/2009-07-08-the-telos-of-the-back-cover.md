@@ -89,7 +89,7 @@ By  on 07/08/09 at 03:45 PM | [Permanent link to this comment](http://www.theval
 
 _Almost never the author, in my experience._
 
-That’s what I thought.  Still, someone—author, editor, &amp;c.—should say something when the blurbs are actively misleading.
+That’s what I thought.  Still, someone—author, editor, &c.—should say something when the blurbs are actively misleading.
 
 _blurb writing is an art in its own right_
 

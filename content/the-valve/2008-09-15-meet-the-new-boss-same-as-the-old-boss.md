@@ -36,7 +36,7 @@ We should come up with new terminology or something, because there are now two k
 
 The three events that you’ve lined up are book events of the first type, so I’d think what we’d want is another reading group or two.  I think the books chosen should be either minor works by major authors (e.g. _Adam Bede_)  or major works by minor authors—doing a literary classic will just drown people in the already-said.
 
-My own suggestion is _The Silver Stallion_ by James Branch Cabell: it’s arguably one of his best works, I don’t think we’ve done any early 20th century American fiction yet, and it’s been reprinted a number of times.  I’d be interested in seeing what contemporary critics have to say about it.  Alternatively, we could go back to John’s suggestion of _Frankenstein_.  I know that the last time I suggested this, it was mentioned the some people aren’t into F &amp; SF, but really, I think that there’s enough going on so that it doesn’t matter if something isn’t to someone’s particular interest.
+My own suggestion is _The Silver Stallion_ by James Branch Cabell: it’s arguably one of his best works, I don’t think we’ve done any early 20th century American fiction yet, and it’s been reprinted a number of times.  I’d be interested in seeing what contemporary critics have to say about it.  Alternatively, we could go back to John’s suggestion of _Frankenstein_.  I know that the last time I suggested this, it was mentioned the some people aren’t into F & SF, but really, I think that there’s enough going on so that it doesn’t matter if something isn’t to someone’s particular interest.
 
 By  on 09/15/08 at 05:32 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/meet_the_new_boss_same_as_the_old_boss/#22284)
 []()

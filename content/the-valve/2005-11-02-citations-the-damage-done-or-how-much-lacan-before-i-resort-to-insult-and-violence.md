@@ -1,4 +1,4 @@
-## Citations &amp; The Damage Done; or, How Much Lacan Before I Resort to Insult and Violence?
+## Citations & The Damage Done; or, How Much Lacan Before I Resort to Insult and Violence?
 
  * Originally posted at http://www.thevalve.org/go/valve/article/c/
 
@@ -16,10 +16,11 @@ Did I mention myopia?  To put it another way:
 
 The odds of me trusting that this critic’s reading of Larsen’s novel dimish with every passing Lacan . . . . because the article is not _about_ Larsen so much as it _is_ a recitation of ontological talking points.  Needless to say, while I would rather my criticism altogether empty of psychoanalytic position statements, due to recent interactions with intelligent people I have abandoned my hard-line snickering dismissiveness.  I can now handle the occasional reference to psychoanalytic concepts with fruitive effects on the literary reading.  ("Leslie Fiedler!" Luther Blisset said.  "Leslie Fiedler!")  So yes . . . . Leslie Fiedler!  But Fiedler’s Freud appeared in the service of literary explication; his Freud did not function as the principle of selection behind the literature he analyzed.  Selecting works which further flatter the assumptions you have committed your self and career to flattering does not incline your readers to trust you.  _Passing_ may exemplify some psychoanalytic hobby-horse, but the fact that _Quicksand_ hardly merits mention leads this reader to believe that it fails whatever litmus test this critic applies to works before he writes about them . . . and that mode of scholarship seems outright Rovian.  I feel comfortable saying that such scholarship has all the intellectual substance of spin.
 
-The intended point of this post involved glossing the appearance of Kenneth Deffeyes’ _[Beyond Oil](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;camp=1789&amp;tag=diesekoschmar-20&amp;creative=9325&amp;path=http://www.amazon.com/gp/product/0809029561)_![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1) in Michael Klare’s article in the latest [n+1](http://www.nplusonemag.com/toc3--newimage.html).  Normally I associate those who scream "Peak Oil!  Peak Oil!" with scaremongering libertarians . . . but I trust Deffeyes’ judgment implicitly because of the intellectual honesty he displayed in John McPhee’s _[Annals of the Former World](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&amp;camp=1789&amp;tag=diesekoschmar-20&amp;creative=9325&amp;path=external-search%!F(MISSING)search-type=ss%!k(MISSING)eyword=annals%!o(MISSING)f%!t(MISSING)he%!f(MISSING)ormer%!w(MISSING)orld%!i(MISSING)ndex=books)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&amp;l=ur2&amp;o=1)_
-.  
- McPhee’s book is riddled with statements by Deffeyes’ like:
-"You have to deal with partial information.  In oil drilling, you had better be ready to act shrewdly on partial information.  Do physicists do that?  Hell, no.  They want to have it to seven decimal places on their Hewlett-Packards.  The geologist has to choose the course of action with the best statistical chance.  As a result, the style of geology is full of inferences, and they change.  No one has ever seen a geosyncline.  No one has ever seen the welding of tuff.  No one has ever seen a granite batholith intrude." (133)
+The intended point of this post involved glossing the appearance of Kenneth Deffeyes’ [_Beyond Oil_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&camp=1789&tag=diesekoschmar-20&creative=9325&path=http://www.amazon.com/gp/product/0809029561) in Michael Klare’s article in the latest [n+1](http://www.nplusonemag.com/toc3--newimage.html).  Normally I associate those who scream "Peak Oil!  Peak Oil!" with scaremongering libertarians . . . but I trust Deffeyes’ judgment implicitly because of the intellectual honesty he displayed in John McPhee’s [_Annals of the Former World_](http://www.amazon.com/exec/obidos/redirect?link_code=ur2&camp=1789&tag=diesekoschmar-20&creative=9325&path=external-search%3Fsearch-type=ss%26keyword=annals%20of%20the%20former%20world%26index=books).  
+
+McPhee’s book is riddled with statements by Deffeyes’ like:
+
+> "You have to deal with partial information.  In oil drilling, you had better be ready to act shrewdly on partial information.  Do physicists do that?  Hell, no.  They want to have it to seven decimal places on their Hewlett-Packards.  The geologist has to choose the course of action with the best statistical chance.  As a result, the style of geology is full of inferences, and they change.  No one has ever seen a geosyncline.  No one has ever seen the welding of tuff.  No one has ever seen a granite batholith intrude." (133)
 
 Deffeyes’ intellectual flexibility—his determination to fit his theory to the facts and not the other way around—should be a model for humanistic inquiries as much as scientific.  A theory should fit the facts it purports to explain; instead, the facts chosen for explication are chosen because they fit the theories the critic intended to flatter all along.  This situation saddens me more than anything else.  If my tone seems combative, understand that when I see such wanton manipulation I want to scream my cords raw and tendons bloody . . . to invent the next generation of sanguineous [parasynthetics](http://dictionary.reference.com/search?q=parasynthetic).  (I link that not to condescend but because I understand that not everyone shares my fascination with all things dictionary.)
 
@@ -278,7 +279,7 @@ That’s certainly true, but without being able to quantify exactly what it is, 
 
 Now, I see how this could become oppressive, something which confounds genuinely new thought about a text by drowning all the scholars who would work on it in historical minutae...but at the same time, I think once you _have_ an idea, it’s your responsibility to do to the research.  But there’s a scholarly culture (more on which in my response to your next response) which doesn’t think that, as evidenced by this particular article appearing in a recent _PMLA_.  
 
-The rest of what you say--consider the journal in which the article appears, &amp;c.--is eminently sound, and something I haven’t thought about but really should as I start to think about sending chapters out.  You know, after I write them and stuff.
+The rest of what you say--consider the journal in which the article appears, &c.--is eminently sound, and something I haven’t thought about but really should as I start to think about sending chapters out.  You know, after I write them and stuff.
 
 _Scott (and Rich)—maybe I’m living in a parallel universe, from which I can communicate with you all but within which people do entirely different scholarly work than the scholars in your universe._ 
 
@@ -332,7 +333,7 @@ By [Adam Kotsko](http://adamkotsko.com/weblog) on 11/04/05 at 02:20 PM | [Perman
 
 Adam: “the tattered remnants of Theory’s Empire should form a strategic alliance with the plucky rebels in order to decisively defeat cog sci and ev psych.”
 
-Poor Bill Benzon!  But it’s too late.  In living proof that the Higher Eclecticism isn’t going to let this one pass by, Z is already mumbling about the [apogee in today’s brain sciences](http://mitpress.mit.edu/catalog/item/default.asp?ttype=2&amp;tid=10762), and it looks like his extensive readers are going to have to learn to muse thoughtfully over impressive-looking brain scans.
+Poor Bill Benzon!  But it’s too late.  In living proof that the Higher Eclecticism isn’t going to let this one pass by, Z is already mumbling about the [apogee in today’s brain sciences](http://mitpress.mit.edu/catalog/item/default.asp?ttype=2&tid=10762), and it looks like his extensive readers are going to have to learn to muse thoughtfully over impressive-looking brain scans.
 
 By  on 11/04/05 at 02:33 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/c/#5133)
 []()
@@ -371,7 +372,7 @@ I thought that it was generally agreed that a man’s prejudices are his castle 
 By [Adam Kotsko](http://adamkotsko.com/weblog) on 11/04/05 at 03:26 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/c/#5137)
 []()
 
-It may be too late to stave off the cognitive and evpsych invasions. For example, Mark Turner is Dean of Arts and Sciences at Case Western and gets to set up his own department of cognitive science, focused on the arts &amp; chaired by Merlin Donald (who is a more interesting thinker than Turner is). The cognitive folks are now having conferences and they’re quite interesting.
+It may be too late to stave off the cognitive and evpsych invasions. For example, Mark Turner is Dean of Arts and Sciences at Case Western and gets to set up his own department of cognitive science, focused on the arts & chaired by Merlin Donald (who is a more interesting thinker than Turner is). The cognitive folks are now having conferences and they’re quite interesting.
 
 As for evpsych, when applied to literature it is, so far, pretty dull stuff. But this Sunday the NYTimes Magazine has a feature organized around *The Literary Animal,* a book about which I am deeply skeptical:
 
