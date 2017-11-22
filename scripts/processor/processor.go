@@ -116,7 +116,8 @@ func sanitizeMarkdownOutput(i string) string {
 
 func sanitizeSlugName(name string) string {
 	trimout := []string{
-		" ", "!", "&", "_", "%", "#", "@",
+		" ", "!", "&", "_", "%", "#", "@", ";", ":", ",", "’",
+		"(", ")", "'", `"`, "[", "]",
 	}
 	x := strings.Trim(strings.ToLower(name), " .-!")
 	// Sanitize all unwanted characters
