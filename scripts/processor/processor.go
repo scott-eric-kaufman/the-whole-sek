@@ -102,8 +102,9 @@ func main() {
 
 func sanitizeHtmlInput(i string) string {
 	repl := map[string]string{
-		"*": "\\*",
-		"_": "\\_",
+		"&amp;": "&",
+		"*":     "\\*",
+		"_":     "\\_",
 	}
 	x := i
 	for k, v := range repl {
