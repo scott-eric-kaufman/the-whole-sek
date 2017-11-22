@@ -80,7 +80,8 @@ func main() {
 	var buf bytes.Buffer
 
 	buf.WriteString(fmt.Sprintf("## %s\n\n", title))
-	buf.WriteString(fmt.Sprintf(" * Originally posted at %s\n\n", url))
+	buf.WriteString(fmt.Sprintf(" * Originally posted at %s\n", url))
+	buf.WriteString(fmt.Sprintf(" * %s\n\n", date.Format("Monday, January 02, 2006")))
 
 	md := html2md.Convert(sanitizeHtmlInput(contentBody))
 
@@ -131,7 +132,7 @@ func sanitizeSlugName(name string) string {
 	trimout := []string{
 		" ", "!", "&amp;", "&", "_", "%", "#", "@", ";", ":",
 		",", "’", "'", "(", ")", "'", `"`, "[", "]", "*", ".",
-		"”", "“", "?",
+		"”", "“", "?", "…", "—", "<em>", "</em>",
 	}
 	x := strings.Trim(strings.ToLower(name), " .-!")
 	// Sanitize all unwanted characters
