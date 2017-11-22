@@ -82,7 +82,7 @@ func main() {
 	buf.WriteString(fmt.Sprintf("## %s\n\n", title))
 	buf.WriteString(fmt.Sprintf(" * Originally posted at %s\n\n", url))
 
-	md := html2md.Convert(contentBody)
+	md := html2md.Convert(sanitizeHtmlInput(contentBody))
 
 	buf.WriteString(sanitizeMarkdownOutput(fmt.Sprintf(md)))
 
@@ -100,24 +100,37 @@ func main() {
 	ioutil.WriteFile(fn, buf.Bytes(), 0600)
 }
 
-func sanitizeMarkdownOutput(i string) string {
+func sanitizeHtmlInput(i string) string {
 	repl := map[string]string{
-		"&#34;": "\"",
-		"&#39;": "'",
-		"\n\n\n\n": "\n\n",
-		"\n\n\n": "\n\n",
+		"*": "\\*",
+		"_": "\\_",
 	}
 	x := i
 	for k, v := range repl {
-                x = strings.Replace(x, k, v, -1)
-        }
+		x = strings.Replace(x, k, v, -1)
+	}
+	return x
+}
+
+func sanitizeMarkdownOutput(i string) string {
+	repl := map[string]string{
+		"&#34;":    "\"",
+		"&#39;":    "'",
+		"\n\n\n\n": "\n\n",
+		"\n\n\n":   "\n\n",
+	}
+	x := i
+	for k, v := range repl {
+		x = strings.Replace(x, k, v, -1)
+	}
 	return x
 }
 
 func sanitizeSlugName(name string) string {
 	trimout := []string{
-		" ", "!", "&", "_", "%", "#", "@", ";", ":", ",", "’",
-		"(", ")", "'", `"`, "[", "]",
+		" ", "!", "&amp;", "&", "_", "%", "#", "@", ";", ":",
+		",", "’", "'", "(", ")", "'", `"`, "[", "]", "*", ".",
+		"”", "“", "?",
 	}
 	x := strings.Trim(strings.ToLower(name), " .-!")
 	// Sanitize all unwanted characters
