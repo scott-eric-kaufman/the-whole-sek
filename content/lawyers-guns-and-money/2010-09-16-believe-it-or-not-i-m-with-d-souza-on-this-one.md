@@ -1,0 +1,6 @@
+## Believe it or not, I’m with D’Souza on this one.
+
+ * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/09/believe-it-or-not-im-with-dsouza-on-this-one
+ * Thursday, September 16, 2010
+
+For most people, the fact that the correct spellings vastly outnumber the incorrect ones wouldn’t constitute evidence that _only_ Ayers and Obama have ever misspelled those names that way, but Jack Cashill isn’t most people.  Like [the Donalde](http://lawyersgunsmon.wpengine.com/2010/09/is-donalde-douglas-real), Cashill’s acquired the reputation of a man who will do anything to acquire a reputation.  Admittedly, he hasn’t demonstrated the “tactical elan” of an “unmatched competitor” by [closing down](http://americanpowerblog.blogspot.com/2010/09/tactical-elan-unmatched-competitor.html) [the comments](http://americanpowerblog.blogspot.com/2010/09/don-douglas-hearts-juses.html) on posts where he might be challenged to back up his fightin’ words with their arguin’ kin—but remember that the Donalde is [a special sort of stupid](http://lawyersgunsmon.wpengine.com/2010/07/shoot-im-not-even-always-right-lol), the likes of which we almost don’t deserve.

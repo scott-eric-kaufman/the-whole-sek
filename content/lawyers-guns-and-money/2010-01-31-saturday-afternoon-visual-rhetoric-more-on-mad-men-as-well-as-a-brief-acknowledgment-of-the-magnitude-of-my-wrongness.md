@@ -1,0 +1,6 @@
+## Saturday afternoon visual rhetoric: more on Mad Men (as well as a brief acknowledgment of the magnitude of my wrongness).
+
+ * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/01/saturday-afternoon-visual-rhetoric-more-on-mad-men-as-well-as-a-brief-acknowledgment-of-the-magnitude-of-my-wrongness
+ * Sunday, January 31, 2010
+
+[![image](http://1.bp.blogspot.com/\_ZEf6TUYdm\_0/S2TSYIBOcjI/AAAAAAAAAE8/BqPLXuuNX-g/s320/vlcsnap-2010-01-30-14h19m12s156.jpg)](http://1.bp.blogspot.com/\_ZEf6TUYdm\_0/S2TSYIBOcjI/AAAAAAAAAE8/BqPLXuuNX-g/s1600-h/vlcsnap-2010-01-30-14h19m12s156.jpg)[![image](http://3.bp.blogspot.com/\_ZEf6TUYdm\_0/S2TSX1YdazI/AAAAAAAAAE0/NVU2r37elnY/s320/vlcsnap-2010-01-30-14h19m16s198.jpg)](http://3.bp.blogspot.com/\_ZEf6TUYdm\_0/S2TSX1YdazI/AAAAAAAAAE0/NVU2r37elnY/s1600-h/vlcsnap-2010-01-30-14h19m16s198.jpg)[![image](http://4.bp.blogspot.com/\_ZEf6TUYdm\_0/S2TSXJ11VtI/AAAAAAAAAEs/9UZ6mCArR4o/s320/vlcsnap-2010-01-30-14h19m18s217.jpg)](http://4.bp.blogspot.com/\_ZEf6TUYdm\_0/S2TSXJ11VtI/AAAAAAAAAEs/9UZ6mCArR4o/s1600-h/vlcsnap-2010-01-30-14h19m18s217.jpg)The zoom is all the more effective because of the degree of its departure from the conventions of the show.

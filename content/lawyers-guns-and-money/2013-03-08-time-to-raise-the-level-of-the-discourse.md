@@ -1,0 +1,6 @@
+## Time to raise the level of the discourse…
+
+ * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/03/time-to-raise-the-level-of-the-discourse
+ * Friday, March 08, 2013
+
+I like to think this one’s meant for me, because if someone’s scribbling “BADWOLF” on the walls that means I must be the …

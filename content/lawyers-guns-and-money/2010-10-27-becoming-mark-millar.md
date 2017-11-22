@@ -1,0 +1,6 @@
+## Becoming Mark Millar
+
+ * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/10/becoming-mark-millar
+ * Wednesday, October 27, 2010
+
+\*It turns out that the significant overlap between [the demographics of UCI](http://edgeofthewest.wordpress.com/2009/02/19/where-i-am-i-dont-know-ill-never-know-in-the-silence-you-dont-know-you-must-go-on-i-cant-go-on/) and the readership of manga is no overlap at all, forcing me to expend  too much time explaining what the conventions with which I assumed they  would be familiar were and how they worked.  As the reasons behind  teaching popular culture in a composition class are 1) the students have  an intuitive understanding of the conventions, which allows me 2) to  focus on creating a formal vocabulary for discussing them, so that I  might 3) show the students how to organize those technical discussions  into persuasive arguments.  In other words: I need them to pick up the  vocabulary quickly so I can focus on the teaching the process of formal  writing.  As the manga and anime weren’t facilitating those goals, I had  no choice but to shift gears.

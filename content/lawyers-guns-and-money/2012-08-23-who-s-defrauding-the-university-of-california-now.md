@@ -1,0 +1,6 @@
+## Who’s defrauding the University of California, now?
+
+ * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/08/whos-defrauding-the-university-of-california-now
+ * Thursday, August 23, 2012
+
+_SEK’s insurance provider outsourced its “dependent eligibility verification process” to a company called Secova whose [homepage redirects to a shifty search engine that’s already looking for “xanax bars.”](https://www.google.com/search?q=secova) Or [it redirects to an ebay store selling Unique Jewelry from Paula.](http://stores.ebay.com/Unique-Jewelry-from-Paulana)_ **[DO NOT CLICK ON THOSE LINKS UNLESS YOU LIKE TROJANS AND YOU DON’T LIKE TROJANS.]** _The point being that it redirects … and that his insurance company required him to send this company his last two years of tax returns to prove that he’s married to his wife._ _Had SEK known about the fraudulent redirects before speaking to  this representative this conversation would’ve gone much differently. [Not that he finds any of this surprising mind you](http://acephalous.typepad.com/acephalous/2007/12/unbelievable-th.html). Now that they’re not returning his calls, SEK will provide them with some free publicity._ 

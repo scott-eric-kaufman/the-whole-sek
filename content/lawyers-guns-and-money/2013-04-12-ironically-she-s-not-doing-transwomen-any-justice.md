@@ -1,0 +1,6 @@
+## Ironically, she’s not doing transwomen any justice.
+
+ * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/04/ironically-shes-not-doing-transwomen-any-justice
+ * Friday, April 12, 2013
+
+And that only provides more ammunition to [people who think](http://www.breitbart.com/Big-Hollywood/2013/04/10/Batgirl-Comic-Character-Comes-Out-as-Transgender) “cis-gendered” is just “another one of those terms invented in universities aimed at  eliminating the word “normal” when discussing sexual preferences.” Because people who think DC is pushing an LGBT agenda will feel like its being “shoved down their throat” when revelations like this are inserted into narratives so awkwardly. That close-up pushes Alysia into the reader’s face in a manner liable to remind readers that [the forced intimacy of _all_ close-ups is actually really creepy](http://acephalous.typepad.com/acephalous/2012/09/game-of-thrones-winter-is-coming-.html), and when it comes to rhetorical effect, the difference between “shoved down my throat” and “thrust in my face” is without distinction.

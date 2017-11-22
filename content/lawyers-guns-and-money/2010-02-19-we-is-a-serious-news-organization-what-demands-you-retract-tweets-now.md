@@ -1,0 +1,6 @@
+## We is a serious news organization what demands you retract tweets now.
+
+ * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/02/we-is-a-serious-news-organization-what-demands-you-retract-tweets-now
+ * Friday, February 19, 2010
+
+\*They can [pull down their site](http://www.reteaparty.com/2009/02/27/rick-santelli-is-as-mad-as-hell-chicago-tea-party/) in an effort to deny it, but Google remembers that [they were the ones who started using “tea-bag” as a verb](http://74.125.155.132/search?q=cache:W71X2n6hf\_4J:www.reteaparty.com/2009/02/27/rick-santelli-is-as-mad-as-hell-chicago-tea-party/), so they need to live with the consequences of their laziness and sexual stolidity.  Liberals didn’t claim the Founding Fathers threw tea-bags into Boston Harbor, nor were they the ones who insisted on compounding the error of that anachronism by naming their movement without performing a precautionary Googling.  For a movement so concerned with personal responsibility, you’d think someone in it might take some.
