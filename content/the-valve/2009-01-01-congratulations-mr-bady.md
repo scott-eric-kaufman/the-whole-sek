@@ -4,7 +4,7 @@
 
 * Thursday, January 01, 2009 
 
-[Aaron](http://www.thevalve.org/go/valve/archive_author/abady/Aaron%20Bady) nabbed the [2008 Cliopatria Award](http://hnn.us/blogs/entries/20359.html#2008clios) for “Best Writer.”  I say “nabbed,” but in truth, he earned it—I wouldn’t have asked him to contribute if I didn’t think he’d land us swag.  Congratulations to Aaron and all the winners:
+[Aaron](http://www.thevalve.org/go/valve/archive_author/abady/Aaron%20Bady) nabbed the [2008 Cliopatria Award](http://hnn.us/blogs/entries/20359.html#2008clios) for "Best Writer."  I say "nabbed," but in truth, he earned it—I wouldn't have asked him to contribute if I didn't think he'd land us swag.  Congratulations to Aaron and all the winners:
 
 **Best Group Blog:** [The Edge of the American West](http://edgeofthewest.wordpress.com/)
 
@@ -12,9 +12,9 @@
 
 **Best New Blog:** [Wynken de Worde](http://wynkendeworde.blogspot.com/)
 
-**Best Post:** Claire Potter, Tenured Radical, “[What Would Natalie Zemon Davis Do](http://tenured-radical.blogspot.com/2008/06/what-would-natalie-zemon-davis-do-few.html)?”
+**Best Post:** Claire Potter, Tenured Radical, "[What Would Natalie Zemon Davis Do](http://tenured-radical.blogspot.com/2008/06/what-would-natalie-zemon-davis-do-few.html)?"
 
-**Best Series of Posts**: Tim Abbott on Trumbull’s _The Death of General Montgomery_, [Jan. 12](http://greensleeves.typepad.com/berkshires/2008/01/false-memories.html), [Jan. 13](http://greensleeves.typepad.com/berkshires/2008/01/wheres-aaron-cu.html), [Jan. 14](http://greensleeves.typepad.com/berkshires/2008/01/aaron-burr-and.html), [Jan. 17](http://greensleeves.typepad.com/berkshires/2008/01/ogden-and-burr.html), [Jan. 18](http://greensleeves.typepad.com/berkshires/2008/01/weep-america-fo.html).
+**Best Series of Posts**: Tim Abbott on Trumbull's _The Death of General Montgomery_, [Jan. 12](http://greensleeves.typepad.com/berkshires/2008/01/false-memories.html), [Jan. 13](http://greensleeves.typepad.com/berkshires/2008/01/wheres-aaron-cu.html), [Jan. 14](http://greensleeves.typepad.com/berkshires/2008/01/aaron-burr-and.html), [Jan. 17](http://greensleeves.typepad.com/berkshires/2008/01/ogden-and-burr.html), [Jan. 18](http://greensleeves.typepad.com/berkshires/2008/01/weep-america-fo.html).
 
 ---
 

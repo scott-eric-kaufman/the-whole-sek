@@ -4,7 +4,7 @@
 
 * Wednesday, May 17, 2006 
 
-From Maurice Thompson, “The Domain of Romance,” _Forum_, November 1889:
+From Maurice Thompson, "The Domain of Romance," _Forum_, November 1889:
 
 The genius of little men expressed itself, as it is still doing, through analytical fiction—a mistaken impulse arising out of a failure to understand the signs of the times.  Darwin, and not the novelists, was to be the safety valve of the epoch.
 

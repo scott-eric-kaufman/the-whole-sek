@@ -1,4 +1,4 @@
-## “Paul Ryan insists his ‘inarticulate’ comments about ‘inner city’ men were not about race”
+## "Paul Ryan insists his ‘inarticulate' comments about ‘inner city' men were not about race"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2014/03/paul-ryan-insists-his-%e2%80%98inarticulate%e2%80%99-comments-about-%e2%80%98inner-city%e2%80%99-men-were-not-about-race
  * Thursday, March 13, 2014

@@ -1,4 +1,4 @@
-## <em>Game of Thrones</em>: Swords! Swords! Swords! in “Baelor”
+## <em>Game of Thrones</em>: Swords! Swords! Swords! in "Baelor"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/11/game-of-thrones-swords-swords-swords-in-baelor
  * Wednesday, November 28, 2012

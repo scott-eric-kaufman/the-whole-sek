@@ -1,4 +1,4 @@
-## Does the existence of conservative “individuals of color holistically demolish the Left’s paranoid, feverish, and disgusting fantasy that white Republicans speak with white bigots through some tribal Caucasian dialect[?]”
+## Does the existence of conservative "individuals of color holistically demolish the Left's paranoid, feverish, and disgusting fantasy that white Republicans speak with white bigots through some tribal Caucasian dialect[?]"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/09/does-the-existence-of-conservative-individuals-of-color-holistically-demolish-the-left%e2%80%99s-paranoid-feverish-and-disgusting-fantasy-that-white-republicans-speak-with-white-bigots-through-som
  * Thursday, September 06, 2012

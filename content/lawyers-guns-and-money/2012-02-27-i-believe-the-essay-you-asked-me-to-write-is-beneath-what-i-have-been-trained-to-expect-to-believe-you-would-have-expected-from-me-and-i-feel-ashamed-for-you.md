@@ -1,4 +1,4 @@
-## “I believe the essay you asked me to write is beneath what I have been trained to expect to believe you would have expected from me, and I feel ashamed for you.”
+## "I believe the essay you asked me to write is beneath what I have been trained to expect to believe you would have expected from me, and I feel ashamed for you."
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/02/i-believe-the-essay-you-ask-me-to-write-is-beneath-what-i-have-been-trained-to-expect-to-believe-you-would-expect-from-me-and-i-feel-ashamed-for-you
  * Monday, February 27, 2012

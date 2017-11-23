@@ -5,4 +5,4 @@
 
 
 
-\*From David Lodge’s [_Changing Places_](http://www.amazon.com/exec/obidos/ASIN/0140170987/diesekoschmar-20):
+\*From David Lodge's [_Changing Places_](http://www.amazon.com/exec/obidos/ASIN/0140170987/diesekoschmar-20):

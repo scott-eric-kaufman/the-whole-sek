@@ -1,4 +1,4 @@
-## But then you’ll never have to stop beating your wife either!
+## But then you'll never have to stop beating your wife either!
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/12/but-then-youll-never-have-to-stop-beating-your-wife-either
  * Thursday, December 23, 2010

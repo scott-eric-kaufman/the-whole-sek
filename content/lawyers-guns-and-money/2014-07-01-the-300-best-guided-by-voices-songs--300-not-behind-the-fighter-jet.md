@@ -1,4 +1,4 @@
-## The 300 Best Guided By Voices Songs: #300 “Not Behind the Fighter Jet”
+## The 300 Best Guided By Voices Songs: #300 "Not Behind the Fighter Jet"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2014/07/300-best-guided-voices-songs-300-behind-fighter-jet
  * Tuesday, July 01, 2014

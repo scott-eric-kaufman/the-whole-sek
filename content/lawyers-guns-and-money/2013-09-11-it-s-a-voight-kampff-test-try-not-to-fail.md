@@ -1,4 +1,4 @@
-## It’s a Voight-Kampff test. Try not to fail.
+## It's a Voight-Kampff test. Try not to fail.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/09/its-a-voight-kampff-test-try-not-to-fail
  * Wednesday, September 11, 2013

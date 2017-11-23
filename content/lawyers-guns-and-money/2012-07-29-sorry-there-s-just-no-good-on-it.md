@@ -1,4 +1,4 @@
-## Sorry, there’s just no good on it.
+## Sorry, there's just no good on it.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/07/sorry-theres-just-no-good-on-it
  * Sunday, July 29, 2012

@@ -1,4 +1,4 @@
-## “The rich are different from you and me.”
+## "The rich are different from you and me."
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2014/06/rich-different
  * Monday, June 23, 2014

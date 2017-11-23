@@ -1,4 +1,4 @@
-## “My name is William Blake. Do you know my poetry?”
+## "My name is William Blake. Do you know my poetry?"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/05/my-name-is-william-blake-do-you-know-my-poetry
  * Saturday, May 11, 2013

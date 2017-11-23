@@ -1,4 +1,4 @@
-## Breitbart proudly “breaks” broken news.
+## Breitbart proudly "breaks" broken news.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2011/10/breitbart-proudly-breaks-broken-news
  * Monday, October 17, 2011

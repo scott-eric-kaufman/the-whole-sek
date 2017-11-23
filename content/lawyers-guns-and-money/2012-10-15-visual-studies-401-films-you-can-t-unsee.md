@@ -1,4 +1,4 @@
-## Visual Studies 401: Films You Can’t Unsee
+## Visual Studies 401: Films You Can't Unsee
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/10/visual-studies-401-films-you-cant-unsee
  * Monday, October 15, 2012

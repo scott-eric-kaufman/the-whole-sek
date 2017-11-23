@@ -1,4 +1,4 @@
-## “It is, truly, probably, the end days for the Gzilt civilization.”
+## "It is, truly, probably, the end days for the Gzilt civilization."
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/04/it-is-truly-probably-the-end-days-for-the-gzilt-civilization
  * Wednesday, April 03, 2013

@@ -1,4 +1,4 @@
-## <em>Breaking Bad</em>: “Gliding Over All,” said the fly to the money pile.
+## <em>Breaking Bad</em>: "Gliding Over All," said the fly to the money pile.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/09/breaking-bad-gliding-over-all-said-the-fly-to-the-money-pile
  * Monday, September 10, 2012

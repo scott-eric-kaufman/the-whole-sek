@@ -1,4 +1,4 @@
-## SEK’s new AV Club column: On circles and lines in <em>The Hudsucker Proxy</em>
+## SEK's new AV Club column: On circles and lines in <em>The Hudsucker Proxy</em>
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2014/08/seks-new-av-club-column-circles-lines-hudsucker-proxy
  * Thursday, August 21, 2014

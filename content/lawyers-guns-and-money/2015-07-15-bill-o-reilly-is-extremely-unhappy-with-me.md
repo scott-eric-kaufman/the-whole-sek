@@ -1,4 +1,4 @@
-## Bill O’Reilly is extremely unhappy with me
+## Bill O'Reilly is extremely unhappy with me
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2015/07/bill-oreilly-is-extremely-unhappy-with-me
  * Wednesday, July 15, 2015

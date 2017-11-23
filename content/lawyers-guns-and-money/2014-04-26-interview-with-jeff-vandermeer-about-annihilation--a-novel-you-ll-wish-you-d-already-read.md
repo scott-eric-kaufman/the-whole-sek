@@ -1,4 +1,4 @@
-## Interview with Jeff VanderMeer about <em>Annihilation</em>, a novel you’ll wish you’d already read
+## Interview with Jeff VanderMeer about <em>Annihilation</em>, a novel you'll wish you'd already read
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2014/04/interview-jeff-vandermeer-annihilation-novel-youll-wish-youd-already-read
  * Saturday, April 26, 2014

@@ -1,4 +1,4 @@
-## Don’t call it a re-cap, I’ve been here for years!
+## Don't call it a re-cap, I've been here for years!
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2014/04/dont-call-it-a-re-cap-ive-been-here-for-years
  * Sunday, April 06, 2014

@@ -1,4 +1,4 @@
-## In that moment, I knew I’d be accused of sexual harassment again.
+## In that moment, I knew I'd be accused of sexual harassment again.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2009/11/in-that-moment-i-knew-id-be-accused-of-sexual-harassment-again
  * Friday, November 06, 2009

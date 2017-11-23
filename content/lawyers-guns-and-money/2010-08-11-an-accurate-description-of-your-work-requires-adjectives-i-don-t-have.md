@@ -1,4 +1,4 @@
-## An accurate description of your work requires adjectives I don’t have.
+## An accurate description of your work requires adjectives I don't have.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/08/an-accurate-description-of-your-work-requires-adjectives-i-dont-have
  * Wednesday, August 11, 2010

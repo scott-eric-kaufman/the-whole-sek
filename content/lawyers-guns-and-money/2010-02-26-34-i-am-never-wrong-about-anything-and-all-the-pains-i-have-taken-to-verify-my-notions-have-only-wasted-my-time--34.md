@@ -1,4 +1,4 @@
-## &#34;I am never wrong about anything, and all the pains I have taken to verify my notions have only wasted my time.&#34;
+## "I am never wrong about anything, and all the pains I have taken to verify my notions have only wasted my time."
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/02/i-am-never-wrong-about-anything-and-all-the-pains-i-have-taken-to-verify-my-notions-have-only-wasted-my-time
  * Friday, February 26, 2010

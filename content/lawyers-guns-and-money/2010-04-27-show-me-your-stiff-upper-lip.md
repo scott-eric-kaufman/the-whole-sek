@@ -1,4 +1,4 @@
-## “Show me your [stiff upper lip]!”
+## "Show me your [stiff upper lip]!"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/04/show-me-your-stiff-upper-lip
  * Tuesday, April 27, 2010

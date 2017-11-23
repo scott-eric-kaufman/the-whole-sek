@@ -1,4 +1,4 @@
-## <em>Mad Men</em>: Structural Oppresion in “The Suitcase”
+## <em>Mad Men</em>: Structural Oppresion in "The Suitcase"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/09/mad-men-structural-oppresion-in-the-suitcase
  * Wednesday, September 08, 2010

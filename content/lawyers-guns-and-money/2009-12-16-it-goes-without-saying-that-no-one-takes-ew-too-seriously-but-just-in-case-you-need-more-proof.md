@@ -1,4 +1,4 @@
-## It goes without saying that no one takes EW too seriously, but just in case you need more proof…
+## It goes without saying that no one takes EW too seriously, but just in case you need more proof...
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2009/12/it-goes-without-saying-that-no-one-takes-ew-too-seriously-but-just-in-case-you-need-more-proof
  * Wednesday, December 16, 2009

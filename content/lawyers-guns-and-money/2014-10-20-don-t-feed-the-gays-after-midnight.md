@@ -1,4 +1,4 @@
-## DON’T FEED THE GAYS AFTER MIDNIGHT!
+## DON'T FEED THE GAYS AFTER MIDNIGHT!
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2014/10/dont-feed-gays-midnight
  * Monday, October 20, 2014

@@ -1,4 +1,4 @@
-## The fact that it sounds like they’re planning a rape is a coincidence.
+## The fact that it sounds like they're planning a rape is a coincidence.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/09/the-fact-that-it-sounds-like-theyre-planning-a-rape-is-completely-coincidental
  * Wednesday, September 29, 2010

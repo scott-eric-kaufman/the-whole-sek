@@ -1,4 +1,4 @@
-## You think you’re so clever, don’t you?
+## You think you're so clever, don't you?
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2011/01/you-think-youre-so-clever-dont-you
  * Friday, January 14, 2011

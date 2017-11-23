@@ -1,4 +1,4 @@
-## Hello, I’m SEK and I live in Mississippi.
+## Hello, I'm SEK and I live in Mississippi.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/08/hello-im-sek-and-i-live-in-mississippi
  * Sunday, August 04, 2013

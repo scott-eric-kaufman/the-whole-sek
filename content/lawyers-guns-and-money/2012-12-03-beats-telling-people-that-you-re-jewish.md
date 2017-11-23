@@ -1,4 +1,4 @@
-## Beats telling people that you’re Jewish
+## Beats telling people that you're Jewish
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/12/beats-telling-people-that-youre-jewish
  * Monday, December 03, 2012

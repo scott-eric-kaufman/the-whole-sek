@@ -1,4 +1,4 @@
-## It’s like that time I hung out with Derrida and we only talked about our cats.*
+## It's like that time I hung out with Derrida and we only talked about our cats.*
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2009/12/its-like-that-time-i-hung-out-with-derrida-and-we-only-talked-about-our-cats
  * Wednesday, December 30, 2009

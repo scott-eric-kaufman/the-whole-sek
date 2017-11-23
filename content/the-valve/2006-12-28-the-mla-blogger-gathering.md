@@ -1,4 +1,4 @@
-## The MLA Blogger Gathering…
+## The MLA Blogger Gathering...
 
  * Originally posted at http://www.thevalve.org/go/valve/article/the_mla_blogger_gathering/
 

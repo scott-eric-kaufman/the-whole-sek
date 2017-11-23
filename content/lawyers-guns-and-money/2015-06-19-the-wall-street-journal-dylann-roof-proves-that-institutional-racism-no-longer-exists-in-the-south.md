@@ -1,4 +1,4 @@
-## The Wall Street Journal: Dylann Roof proves that institutional racism “no longer exists” in the South
+## The Wall Street Journal: Dylann Roof proves that institutional racism "no longer exists" in the South
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2015/06/the-wall-street-journal-dylann-roof-proves-that-institutional-racism-no-longer-exists-in-the-south
  * Friday, June 19, 2015

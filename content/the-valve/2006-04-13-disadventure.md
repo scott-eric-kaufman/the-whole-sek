@@ -24,13 +24,13 @@ The door is locked.  There is evidently no key.
 > take key
 
 
-I don’t understand that.
+I don't understand that.
 
 
 > kick down door
 
 
-I don’t understand that.
+I don't understand that.
 
 
 > w
@@ -60,7 +60,7 @@ You must supply an indirect object.
 > throw egg at grammar nazi
 
 
-I don’t understand that.
+I don't understand that.
 
 
 > throw egg at tree
@@ -197,7 +197,7 @@ Taken.  You find the Elvish sword.
 > in my hair?
 
 
-I don’t understand that.
+I don't understand that.
 
 
 > work on dissertation
@@ -290,19 +290,19 @@ YOU PICK YOUR NOSE WITH THE ELVISH SWORD.  BLOOD POURS FORTH FROM YOUR HEAD BEC
 > STAUNCH BLEEDING
 
 
-I don’t understand that.
+I don't understand that.
 
 
 > CALL 911
 
 
-I don’t understand that.
+I don't understand that.
 
 
 > SAVE ME
 
 
-I don’t understand that.
+I don't understand that.
 
 
 > ...
@@ -322,7 +322,7 @@ This brings back fond memories of getting lost in underground caves.  W!  No, 
 By [Miriam](http://littleprofessor.typepad.com) on 04/13/06 at 04:44 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/dis/#8669)
 []()
 
-First Slate, now [BoingBoing](http://www.boingboing.net/2006/04/13/life_of_a_writer_as_.html)?  (But to Scott’s site, not here.)
+First Slate, now [BoingBoing](http://www.boingboing.net/2006/04/13/life_of_a_writer_as_.html)?  (But to Scott's site, not here.)
 
 By  on 04/13/06 at 10:59 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/dis/#8672)
 []()

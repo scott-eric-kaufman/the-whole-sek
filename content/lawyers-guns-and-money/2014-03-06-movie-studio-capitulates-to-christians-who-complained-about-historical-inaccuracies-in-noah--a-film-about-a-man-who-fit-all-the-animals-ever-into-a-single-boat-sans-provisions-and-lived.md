@@ -1,4 +1,4 @@
-## Movie studio capitulates to Christians who complained about “historical inaccuracies” in <em>Noah</em>, a film about a man who fit all the animals <em>ever</em> into a single boat, sans provisions, and lived
+## Movie studio capitulates to Christians who complained about "historical inaccuracies" in <em>Noah</em>, a film about a man who fit all the animals <em>ever</em> into a single boat, sans provisions, and lived
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2014/03/movie-studio-capitulates-to-christians-who-complained-about-historical-inaccuracies-in-noah-a-film-about-a-man-who-fit-all-the-animals-ever-into-a-single-boat-sans-provisions-and-lived
  * Thursday, March 06, 2014

@@ -1,4 +1,4 @@
-## An end of the quarter treat: &#34;Batman Is My Boss&#34;
+## An end of the quarter treat: "Batman Is My Boss"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2009/12/an-end-of-the-quarter-treat-batman-is-my-boss
  * Saturday, December 05, 2009

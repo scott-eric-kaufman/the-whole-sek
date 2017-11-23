@@ -1,4 +1,4 @@
-## Fall Comics Courses: “American Manga” and “Coming of Age”
+## Fall Comics Courses: "American Manga" and "Coming of Age"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/07/fall-comics-courses-american-manga-and-coming-of-age
  * Friday, July 23, 2010

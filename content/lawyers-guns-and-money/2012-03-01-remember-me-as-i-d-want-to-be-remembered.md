@@ -1,4 +1,4 @@
-## Remember me as I’d want to be remembered.
+## Remember me as I'd want to be remembered.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/03/remember-me-as-id-want-to-be-remembered
  * Thursday, March 01, 2012

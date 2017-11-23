@@ -1,4 +1,4 @@
-## Jonah’s got some competition!
+## Jonah's got some competition!
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2015/07/jonah-goldbergs-got-some-competition
  * Thursday, July 23, 2015

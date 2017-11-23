@@ -1,4 +1,4 @@
-## I see that you’ve seen that I saw you: miscommunication in “Second Sons” (<em>Game of Thrones</em>)
+## I see that you've seen that I saw you: miscommunication in "Second Sons" (<em>Game of Thrones</em>)
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/05/i-see-that-youve-seen-that-i-saw-you-miscommunication-in-second-sons-game-of-thrones
  * Saturday, May 25, 2013

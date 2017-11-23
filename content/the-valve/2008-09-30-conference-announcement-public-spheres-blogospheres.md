@@ -16,9 +16,9 @@ Scott Kaufman, [_Acephalous_](http://acephalous.typepad.com/)/[_The Valve_](http
 
 Moderator: [Catherine Lui](http://www.higher-yearning.org/blog.html), UC Irvine
 
-Before you ask: Tedra and I are indeed a [package](http://acephalous.typepad.com/acephalous/2007/05/panel_podcast.html) [deal](http://acephalous.typepad.com/acephalous/2006/05/another_mla_pan.html).  (I considered getting the band back together and asking Bérubé and Holbo to join us, but Singapore’s far away 
-and Bérubé’s [not a blogger anymore](http://www.michaelberube.com/)
-.)  My [edgier](http://edgeofthewest.wordpress.com) side would’ve been listed, but Eric and Ari’s didn’t consider margins when they christened this place.
+Before you ask: Tedra and I are indeed a [package](http://acephalous.typepad.com/acephalous/2007/05/panel_podcast.html) [deal](http://acephalous.typepad.com/acephalous/2006/05/another_mla_pan.html).  (I considered getting the band back together and asking Bérubé and Holbo to join us, but Singapore's far away 
+and Bérubé's [not a blogger anymore](http://www.michaelberube.com/)
+.)  My [edgier](http://edgeofthewest.wordpress.com) side would've been listed, but Eric and Ari's didn't consider margins when they christened this place.
 
 The other panels:
 
@@ -56,7 +56,7 @@ _****_**(5:15) Wrap-up, Round Table, & Reception**
 
 Of related interest, though lower on the scale of anticipated profundity:
 
-[CFP for “LitCrit 2.0: Academic Blogging and Other New Forms of Scholarly Publication"](http://maitzenreads.blogspot.com/2008/09/cfp.html).
+[CFP for "LitCrit 2.0: Academic Blogging and Other New Forms of Scholarly Publication"](http://maitzenreads.blogspot.com/2008/09/cfp.html).
 
 By [Rohan Maitzen](http://openlettersmonthly.com/novelreadings) on 09/30/08 at 10:28 AM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/con/#22465)
 []()
@@ -66,16 +66,16 @@ Oh man—when I finish my PhD, am I going to have to list my primary affiliation
 By [Adam Kotsko](http://adamkotsko.com/weblog) on 09/30/08 at 02:13 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/con/#22467)
 []()
 
-Rohan, feel free to repost that CFP here.  In fact, if you don’t, I will.  
+Rohan, feel free to repost that CFP here.  In fact, if you don't, I will.  
 
-Adam, the conference organizers decided to do that.  Technically, I’m still with UCI as an instructor, so they _could_ have put that.
+Adam, the conference organizers decided to do that.  Technically, I'm still with UCI as an instructor, so they _could_ have put that.
 
 By [Scott Eric Kaufman](http://acephalous.typepad.com) on 09/30/08 at 04:02 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/con/#22468)
 []()
 
 _feel free to repost that CFP here_
 
-Good point, Scott--I don’t know why I didn’t do that right away, it seems so obvious. I’ll post it here very soon.
+Good point, Scott--I don't know why I didn't do that right away, it seems so obvious. I'll post it here very soon.
 
 By [Rohan Maitzen](http://openlettersmonthly.com/novelreadings) on 09/30/08 at 05:33 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/con/#22470)
 

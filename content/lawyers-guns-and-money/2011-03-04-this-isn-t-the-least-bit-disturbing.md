@@ -1,4 +1,4 @@
-## This isn’t the least bit disturbing.
+## This isn't the least bit disturbing.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2011/03/this-isnt-the-least-bit-disturbing
  * Friday, March 04, 2011

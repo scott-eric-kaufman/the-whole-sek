@@ -1,4 +1,4 @@
-## Wait, isn’t that just called “America” now?
+## Wait, isn't that just called "America" now?
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/11/wait-isnt-that-just-called-america-now
  * Friday, November 08, 2013

@@ -1,4 +1,4 @@
-## … and I support this message.*
+## ... and I support this message.*
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/08/and-i-support-this-message
  * Wednesday, August 01, 2012

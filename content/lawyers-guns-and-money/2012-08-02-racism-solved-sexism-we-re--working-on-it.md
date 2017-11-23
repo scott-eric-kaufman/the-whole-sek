@@ -1,4 +1,4 @@
-## Racism? Solved. Sexism? We’re … working on it?
+## Racism? Solved. Sexism? We're ... working on it?
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/08/racism-solved-sexism-were-working-on-it
  * Thursday, August 02, 2012

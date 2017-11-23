@@ -1,4 +1,4 @@
-## I’ve found the Michelle Obama “Whitey” video!
+## I've found the Michelle Obama "Whitey" video!
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/09/ive-found-the-michelle-obama-whitey-video
  * Monday, September 17, 2012

@@ -1,4 +1,4 @@
-## The Donalde rings in the new year…
+## The Donalde rings in the new year...
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/12/the-donalde-rings-in-the-new-year
  * Friday, December 31, 2010

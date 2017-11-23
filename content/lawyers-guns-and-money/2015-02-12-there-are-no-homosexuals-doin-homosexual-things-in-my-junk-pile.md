@@ -1,4 +1,4 @@
-## “There are no homosexuals doin’ homosexual things in my junk pile”
+## "There are no homosexuals doin' homosexual things in my junk pile"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2015/02/no-homosexuals-doin-homosexual-things-junk-pile
  * Thursday, February 12, 2015

@@ -1,4 +1,4 @@
-## “How many of the defiant white youths causing mayhem and destruction come from fatherless families? Where are the leaders in the white community?”
+## "How many of the defiant white youths causing mayhem and destruction come from fatherless families? Where are the leaders in the white community?"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2014/10/many-defiant-white-youths-causing-mayhem-destruction-come-fatherless-families-leaders-white-community
  * Sunday, October 19, 2014

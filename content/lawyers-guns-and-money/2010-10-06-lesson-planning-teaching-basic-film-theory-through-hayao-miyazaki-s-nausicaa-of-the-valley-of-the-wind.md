@@ -1,4 +1,4 @@
-## Lesson Planning: Teaching basic film theory through Hayao Miyazaki’s <em>Nausicaä of the Valley of the Wind</em>
+## Lesson Planning: Teaching basic film theory through Hayao Miyazaki's <em>Nausicaä of the Valley of the Wind</em>
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/10/lesson-planning-teaching-basic-film-theory-through-hayao-miyazakis-nausicaa-of-the-valley-of-the-wind
  * Wednesday, October 06, 2010

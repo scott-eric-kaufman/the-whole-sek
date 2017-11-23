@@ -4,9 +4,9 @@
 
 * Sunday, April 23, 2006 
 
-[Official Stamp O’ Approval](http://acephalous.typepad.com/iapprove.mp3) [.mp3]
+[Official Stamp O' Approval](http://acephalous.typepad.com/iapprove.mp3) [.mp3]
 
-Like it or not, we have become a community.  We may not like each other very much, but truth be told, we allocate time better spent sleeping to undermining the very foundation of each other’s respective worldviews.  Thing is, we do so in a way that may perplex outsiders.  So I suggest we create an FAQ which new readers can consult when, for example, one of us indicts the other for "having a [plane](http://www.thevalve.org/go/valve/article/hix_dixerit_quispiam_or_you_must_try_again_until_you_get_it_right_part_mcxv/#5920) to [catch](http://www.thevalve.org/go/valve/article/montrum_in_fronte_monstrum_in_animo/#8370)" or "[making](http://pasaudela.blogspot.com/2005/08/tips-from-wb.html) some [pasta](http://acephalous.typepad.com/acephalous/2005/09/on_jager_or_dri.html)."  Starter entries include:
+Like it or not, we have become a community.  We may not like each other very much, but truth be told, we allocate time better spent sleeping to undermining the very foundation of each other's respective worldviews.  Thing is, we do so in a way that may perplex outsiders.  So I suggest we create an FAQ which new readers can consult when, for example, one of us indicts the other for "having a [plane](http://www.thevalve.org/go/valve/article/hix_dixerit_quispiam_or_you_must_try_again_until_you_get_it_right_part_mcxv/#5920) to [catch](http://www.thevalve.org/go/valve/article/montrum_in_fronte_monstrum_in_animo/#8370)" or "[making](http://pasaudela.blogspot.com/2005/08/tips-from-wb.html) some [pasta](http://acephalous.typepad.com/acephalous/2005/09/on_jager_or_dri.html)."  Starter entries include:
 
 **Aeroplanes, the Boarding of** **_v._** An [insidious](http://www.thevalve.org/go/valve/article/hix_dixerit_quispiam_or_you_must_try_again_until_you_get_it_right_part_mcxv/#5920) tactic designed to allow the boardee more time to respond cleverly to entries posted in distant time zones.
 
@@ -16,7 +16,7 @@ Like it or not, we have become a community.  We may not like each other very mu
 
 **Kotsko, Adam _n._** Outrageously funny seminarian who loves Christ (conflictedly), refuses [to smack](http://www.adamkotsko.com/weblog/2005/11/analysis-of-smacking.html), and defends Slovenian Lacanians from analytic blowhards.
 
-**Pasta, the Boiling of** **_v._** A rhetorical strategy designed to fool one’s opponent into believing that common human courtesy overrides online commitments to continued debate. 
+**Pasta, the Boiling of** **_v._** A rhetorical strategy designed to fool one's opponent into believing that common human courtesy overrides online commitments to continued debate. 
 
 **Spivak _v._** The practice of failing to contribute to an event because of personal or professional obligations.  For example, "Kaufman, Scott the Eric of _totally_ spivaked the Spivak event!"
 
@@ -58,7 +58,7 @@ By [Christopher Hellstrom](http://www.thevalve.org/go/member/243/) on 04/25/06 a
 By [nnyhav](http://nnyhav.blogspot.com) on 04/25/06 at 05:35 PM | [Permanent link to this comment](http://www.thevalve.org/go/valve/article/c1/#8828)
 []()
 
-**Holbonic _adj._** Bigger than the biggest thing ever and then some. Much bigger than that in fact, really amazingly immense, a totally stunning size, “wow, that’s big”, time. Infinity is just so big that by comparison, bigness itself looks really titchy. Gigantic multiplied by colossal multiplied by staggeringly huge is the sort of concept we’re trying to get across here.
+**Holbonic _adj._** Bigger than the biggest thing ever and then some. Much bigger than that in fact, really amazingly immense, a totally stunning size, "wow, that's big", time. Infinity is just so big that by comparison, bigness itself looks really titchy. Gigantic multiplied by colossal multiplied by staggeringly huge is the sort of concept we're trying to get across here.
 
 [Apologies to DNA]
 

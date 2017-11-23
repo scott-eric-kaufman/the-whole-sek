@@ -1,4 +1,4 @@
-## It’s not privilege when you’re a king
+## It's not privilege when you're a king
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/09/its-not-privilege-when-youre-a-king
  * Friday, September 13, 2013

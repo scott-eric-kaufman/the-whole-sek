@@ -1,4 +1,4 @@
-## How science becomes “fact” in conservative circles
+## How science becomes "fact" in conservative circles
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/04/how-science-becomes-fact-in-conservative-circles
  * Friday, April 05, 2013

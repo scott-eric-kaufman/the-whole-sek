@@ -1,4 +1,4 @@
-## Teaching Panel Transitions via Craig Thompson’s <em>Blankets</em>
+## Teaching Panel Transitions via Craig Thompson's <em>Blankets</em>
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/09/teaching-panel-transitions-via-craig-thompsons-blankets
  * Monday, September 27, 2010

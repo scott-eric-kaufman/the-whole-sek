@@ -1,4 +1,4 @@
-## You only noticed I’m white because you’re a racist.
+## You only noticed I'm white because you're a racist.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2009/11/you-only-noticed-im-white-because-youre-a-racist
  * Tuesday, November 24, 2009

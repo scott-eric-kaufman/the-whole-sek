@@ -1,4 +1,4 @@
-## You know who wouldn’t mind watching a film in a gun-free zone?
+## You know who wouldn't mind watching a film in a gun-free zone?
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2012/07/you-know-who-wouldnt-mind-watching-a-film-in-a-gun-free-zone
  * Sunday, July 22, 2012

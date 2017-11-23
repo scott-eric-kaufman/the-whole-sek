@@ -1,4 +1,4 @@
-## David Brooks accuses Ta-Nehisi Coates of “distorting history”
+## David Brooks accuses Ta-Nehisi Coates of "distorting history"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2015/07/david-brooks-accuses-ta-nehisi-coates-of-distorting-history
  * Friday, July 17, 2015

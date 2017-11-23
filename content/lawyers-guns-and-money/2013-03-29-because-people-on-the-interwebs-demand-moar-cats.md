@@ -1,4 +1,4 @@
-## Because people on the Interwebs demand “MOAR CATS”
+## Because people on the Interwebs demand "MOAR CATS"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/03/because-people-on-the-interwebs-demand-moar-cats
  * Friday, March 29, 2013

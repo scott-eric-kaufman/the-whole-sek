@@ -1,4 +1,4 @@
-## Because everybody knows there’s no casual racism or misogyny on the right.
+## Because everybody knows there's no casual racism or misogyny on the right.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/04/because-everybody-knows-theres-no-casual-racism-or-misogyny-on-the-right
  * Thursday, April 01, 2010

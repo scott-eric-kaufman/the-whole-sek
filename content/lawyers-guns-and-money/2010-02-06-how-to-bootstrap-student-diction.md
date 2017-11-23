@@ -4,5 +4,5 @@
  * Saturday, February 06, 2010
 
 [
-Continue reading…
+Continue reading...
 ](http://acephalous.typepad.com/acephalous/2010/02/how-to-bootstrap-diction.html#more)

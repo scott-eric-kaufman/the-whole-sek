@@ -1,4 +1,4 @@
-## <em>The Walking Dead</em>: The hands do the talking in “Indifference”
+## <em>The Walking Dead</em>: The hands do the talking in "Indifference"
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/11/the-walking-dead-the-hands-do-the-talking-in-indifference
  * Monday, November 04, 2013

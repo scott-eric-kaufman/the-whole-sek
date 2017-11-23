@@ -1,4 +1,4 @@
-## It’s all about shyster ethics in Jew-run journalism
+## It's all about shyster ethics in Jew-run journalism
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2014/11/shyster-ethics-jew-run-journalism
  * Saturday, November 01, 2014

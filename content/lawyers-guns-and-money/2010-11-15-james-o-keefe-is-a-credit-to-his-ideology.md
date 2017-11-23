@@ -1,4 +1,4 @@
-## James O’Keefe is a credit to his ideology.
+## James O'Keefe is a credit to his ideology.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/11/james-okeefe-is-a-credit-to-his-ideology
  * Monday, November 15, 2010

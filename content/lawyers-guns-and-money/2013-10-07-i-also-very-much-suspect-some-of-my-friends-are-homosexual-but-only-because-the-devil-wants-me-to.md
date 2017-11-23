@@ -1,4 +1,4 @@
-## I also “very much suspect” some of my friends are homosexual, but only because the Devil wants me to.
+## I also "very much suspect" some of my friends are homosexual, but only because the Devil wants me to.
 
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2013/10/i-also-very-much-suspect-some-of-my-friends-are-homosexual-but-only-because-the-devil-wants-me-to
  * Monday, October 07, 2013

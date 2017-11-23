@@ -3,7 +3,7 @@
  * Originally posted at http://www.lawyersgunsmoneyblog.com/2010/01/a-mad-men-placeholder
  * Monday, January 18, 2010
 
-I’ll have a substantial sequel to [my 
+I'll have a substantial sequel to [my 
 Mad Men 
 post](http://lefarkins.blogspot.com/2010/01/don-draper-as-unraptured-emma-bovary.html) up later today or tomorrow, but for the moment, you can read two solid replies from [Amanda Marcotte at 
 Pandagon
