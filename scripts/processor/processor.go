@@ -74,7 +74,11 @@ func main() {
 		date, _ = time.Parse(*dateFormat, dateText)
 	})
 	doc.Find(*contentElement).Each(func(i int, s *goquery.Selection) {
-		contentBody, _ = s.Html()
+		contentBodySegment, _ := s.Html()
+		if contentBody != "" {
+			contentBody += "\n<hr/>\n"
+		}
+		contentBody += contentBodySegment
 	})
 
 	var buf bytes.Buffer
@@ -132,7 +136,7 @@ func sanitizeSlugName(name string) string {
 	trimout := []string{
 		" ", "!", "&amp;", "&", "_", "%", "#", "@", ";", ":",
 		",", "’", "'", "(", ")", "'", `"`, "[", "]", "*", ".",
-		"”", "“", "?", "…", "—", "<em>", "</em>",
+		"”", "“", "?", "…", "—", "<em>", "</em>", "–",
 	}
 	x := strings.Trim(strings.ToLower(name), " .-!")
 	// Sanitize all unwanted characters
