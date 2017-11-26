@@ -1,0 +1,31 @@
+## Citations & The Damage Done; or, How Much Lacan Before I Resort to Insult and Violence?
+
+ * Originally posted at http://acephalous.typepad.com/acephalous/2005/11/a_critic_establ.html
+ * Wednesday, November 02, 2005
+
+
+
+[_Cross-posted [You-Know-Where](http://www.thevalve.org/)._]
+
+A critic establishes trust with his or her readers by citational proxy.  Who cites and is cited by whom means everything when evaluating contemporary criticism.  So when I run across an article about Nella Larsen's _Passing_ which cites seven works by Jacques Lacan, three by Freud, ten glosses of Lacan _but only five citations from the rich critical history of Larsen's novel_, I hardly need to read the article to know that I do not trust this critic's ability to evaluate his or her sources.  (All that talk of gazing and yet so myopic.  Sigh.)  A critic who don't know _merde_ from _cirage à chaussures_ (that sounds so much snappier in English) cannot expect the majority of readers to consider the points he or she forwards with the seriousness befitting academic discourse . . . and by "the majority of readers," I only mean "all those who don't share the critic's supremely constricted set of assumptions."  
+
+It is outright unnerving to read criticism in one of the profession's flagship journals which defiantly refuses to engage the critical history of a novel written about so freqently.  Does this critic suggest that only _four_ of the 642 articles and reviews available via Project Muse and JSTOR alone even obliquely address his or her argument?  (Before you ask: only four of the five aforementioned articles could be found in a database because the other non-psychoanalytic entry was _the introduction to the edition of_ Passing _cited in the article_.)  One certainly does.  The critic's citation of it begins:
+Judith Butler directly engages paranoia and _Passing_ in terms of Freud’s analysis . . .
+
+Did I mention myopia?  To put it another way: 
+**Q:**  What are the odds that this particular scholar would not have found _Passing_ a cornucopia of psychoanalytic conundrums?[[1]](#1)  
+
+**A:**  Zero. 
+
+The odds of me trusting that this critic's reading of Larsen's novel dimish with every passing Lacan . . . . because the article is not _about_ Larsen so much as it _is_ a recitation of ontological talking points.  Needless to say, while I would rather my criticism altogether empty of psychoanalytic position statements, due to recent interactions with intelligent people I have abandoned my hard-line snickering dismissiveness.  I can now handle the occasional reference to psychoanalytic concepts with fruitive effects on the literary reading.  ("Leslie Fiedler!" Luther Blisset said.  "Leslie Fiedler!")  So yes . . . . Leslie Fiedler!  But Fiedler's Freud appeared in the service of literary explication; his Freud did not function as the principle of selection behind the literature he analyzed.  Selecting works which further flatter the assumptions you have committed your self and career to flattering does not incline your readers to trust you.  _Passing_ may exemplify some psychoanalytic hobby-horse, but the fact that _Quicksand_ hardly merits mention leads this reader to believe that it fails whatever litmus test this critic applies to works before he writes about them . . . and that mode of scholarship seems outright Rovian.  I feel comfortable saying that such scholarship has all the intellectual substance of spin.
+
+The intended point of this post involved glossing the appearance of Kenneth Deffeyes' _[Beyond Oil](http://www.amazon.com/exec/obidos/redirect?link\_code=ur2&camp=1789&tag=diesekoschmar-20&creative=9325&path=http://www.amazon.com/gp/product/0809029561)_![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&l=ur2&o=1) in Michael Klare's article in the latest [n+1](http://www.nplusonemag.com/toc3--newimage.html).  Normally I associate those who scream "Peak Oil!  Peak Oil!" with scaremongering libertarians . . . but I trust Deffeyes' judgment implicitly because of the intellectual honesty he displayed in John McPhee's _[Annals of the Former World](http://www.amazon.com/exec/obidos/redirect?link\_code=ur2&camp=1789&tag=diesekoschmar-20&creative=9325&path=external-search%!F(MISSING)search-type=ss%!k(MISSING)eyword=annals%!o(MISSING)f%!t(MISSING)he%!f(MISSING)ormer%!w(MISSING)orld%!i(MISSING)ndex=books)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&l=ur2&o=1)_
+.  
+ McPhee's book is riddled with statements by Deffeyes' like:
+"You have to deal with partial information.  In oil drilling, you had better be ready to act shrewdly on partial information.  Do physicists do that?  Hell, no.  They want to have it to seven decimal places on their Hewlett-Packards.  The geologist has to choose the course of action with the best statistical chance.  As a result, the style of geology is full of inferences, and they change.  No one has ever seen a geosyncline.  No one has ever seen the welding of tuff.  No one has ever seen a granite batholith intrude." (133)
+
+Deffeyes' intellectual flexibility—his determination to fit his theory to the facts and not the other way around—should be a model for humanistic inquiries as much as scientific.  A theory should fit the facts it purports to explain; instead, the facts chosen for explication are chosen because they fit the theories the critic intended to flatter all along.  This situation saddens me more than anything else.  If my tone seems combative, understand that when I see such wanton manipulation I want to scream my cords raw and tendons bloody . . . to invent the next generation of sanguineous [parasynthetics](http://dictionary.reference.com/search?q=parasynthetic).  (I link that not to condescend but because I understand that not everyone shares my fascination with all things dictionary.)
+
+[[1]]() Quick note about the word "conundrum."  Apparently the plural is "conundrums" instead of "conundra" because it is a nonce-word, a linguistic relic of some Oxford prank from the 1580s.  The fact that it retains English pluralization despite being a parodic Latin term astonishes me.  You would think that by now someone would have inflected it in accordance with Latin grammar.  
+
+		

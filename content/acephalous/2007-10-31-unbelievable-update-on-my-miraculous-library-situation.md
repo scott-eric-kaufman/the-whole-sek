@@ -1,0 +1,268 @@
+## (Unbelievable) Update on my "Miraculous" Library Situation
+
+ * Originally posted at http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html
+ * Wednesday, October 31, 2007
+
+
+
+After I posted about my "miraculous" [encounter with the library](http://acephalous.typepad.com/acephalous/2007/10/cashier.html), Rich noted that such things [only ever seem to happen to me](http://acephalous.typepad.com/acephalous/2007/10/cashier.html#comment-87190206).  Everyone—spouses, parents, readers, and [co-panelists](http://acephalous.typepad.com/acephalous/2007/10/announcement-is.html)—agrees: I attract the absurd.  
+
+But sometimes I suspect people think I invent these absurd situations in order to drive up traffic.  Who else could [_insert all that I've endured_] in so short a time-frame?  To be frank: sometimes _I_ think I make it all up.  So it doesn't hurt to have evidence my insanity's not imagined.  
+
+Proof in point: this letter I received from the library today, scanned for your convenience:
+
+[![Library1](http://acephalous.typepad.com/acephalous/images/2007/10/31/library1.jpg "Library1")](http://acephalous.typepad.com/.shared/image.html?/photos/uncategorized/2007/10/31/library1.jpg)
+
+Words fail me.
+
+		
+
+* * *
+
+### 11 Comments 
+
+		
+
+                
+[]()
+
+	
+
+		![Floyd](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/02-50si.gif)
+	
+
+	
+
+		
+
+Some trusty words never fail me in these situations.  But also:
+
+_Oh no they didn't!_
+
+	
+
+		Posted by:
+		[Floyd](http://poss.ibili.st) |
+		[Thursday, 01 November 2007 at 12:17 AM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88332094#comment-6a00d8341c2df453ef00e54f8905948834)
+
+[]()
+
+	
+
+		![Rich Puchalsky](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/15-50si.gif)
+	
+
+	
+
+		
+
+If they received $1,200,000 for the year, and $2,600 or so of that was your funds, then you personally contributed about 2%!o(MISSING)f their donations for the year.  Perhaps there really weren't any donations of any other type; perhaps there are just 49 other students wandering around, thinking that this mixup will be fixed any day now.
+
+My serious suggestion: have your lawyer friend write a letter to them.  More humorously, you could ask to meet the library's development staff (or management in general), given that you're a major donor, and then explain to them that they're absconded with your money.
+
+	
+
+		Posted by:
+		Rich Puchalsky |
+		[Thursday, 01 November 2007 at 05:33 AM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88346332#comment-6a00d8341c2df453ef00e54f767ce38833)
+
+[]()
+
+	
+
+		![Autumn Song](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/16-50si.gif)
+	
+
+	
+
+		
+
+I think I'd echo: 'Oh no they didn't!'  
+
+I think this sort of thing is designed to make you think twice about asking for your money back - it's gone to a good cause.  Either that, or no one has heard anything you've said to them about it being fees money.  I don't know which is worse...
+
+Hope you get it sorted out.
+
+	
+
+		Posted by:
+		[Autumn Song](http://autumnitas.blogspot.com/) |
+		[Thursday, 01 November 2007 at 05:48 AM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88347136#comment-6a00d8341c2df453ef00e54f767e328833)
+
+[]()
+
+	
+
+		![Mikhail Emelianov](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/13-50si.gif)
+	
+
+	
+
+		
+
+i think they are making you an offer you cannot refuse - i would stop trying to get your money back and pray that you don't wake up with a head of a horse in your bed. seriously, these people put you among their "friends and partners" and **in bold** as well - it's like saying: "hey, you're family now! family don't ask questions!" 
+
+	
+
+		Posted by:
+		[Mikhail Emelianov](http://pervegalit.wordpress.com) |
+		[Thursday, 01 November 2007 at 12:28 PM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88388546#comment-6a00d8341c2df453ef00e54f8aaba58834)
+
+[]()
+
+	
+
+		![History Geek](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/07-50si.gif)
+	
+
+	
+
+		
+
+O\_o 
+
+On one hand, you sort of have to admire their guts.
+
+	
+
+		Posted by:
+		[History Geek](http://history-speaks.blogspot.com/) |
+		[Thursday, 01 November 2007 at 12:43 PM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88390372#comment-6a00d8341c2df453ef00e54f76b36b8833)
+
+[]()
+
+	
+
+		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/17-50si.gif)
+	
+
+	
+
+		
+
+Floyd, 
+
+_Oh Yes They Did!_  Ugh.  The situation's due to resolve itself today, though, so there's comfort in that.
+
+Rich, 
+
+That would be ... absolutely amazing if true, and sadly, I can actually _imagine_ it being true, given the hoops I jumped through the past two weeks.
+
+Autumn Song,
+
+I think you're right: this was an automatic letter generated by some program within the vast university bureaucracy.
+
+Mikhail, 
+
+But I was _already_ family.  Or close to it.   After all, they let me borrow their books, and that's what friends and partners do, right?  Did they really need $2,600 to prove my love?
+
+History Geek,
+
+Yes, and want to stomp on them.
+
+	
+
+		Posted by:
+		[SEK](http://acephalous.typepad.com/) |
+		[Thursday, 01 November 2007 at 02:14 PM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88401650#comment-6a00d8341c2df453ef00e54f76c3508833)
+
+[]()
+
+	
+
+		![Gene](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/11-50si.gif)
+	
+
+	
+
+		
+
+Rich meant .2%!n(MISSING)ot 2%!,(MISSING) right?  It's an awful and ridiculous situation, to be sure, but Scott isn't quite a 1/50th shareholder in the library yet...
+
+	
+
+		Posted by:
+		Gene |
+		[Thursday, 01 November 2007 at 02:57 PM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88407238#comment-6a00d8341c2df453ef00e54f7705dc8833)
+
+[]()
+
+	
+
+		![Rich Puchalsky](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/15-50si.gif)
+	
+
+	
+
+		
+
+Yeah, I slipped a digit.  I suppose that it would be a bit too much to think of 499 other students in the same situation.
+
+	
+
+		Posted by:
+		Rich Puchalsky |
+		[Thursday, 01 November 2007 at 06:28 PM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88428776#comment-6a00d8341c2df453ef00e54f77b4668833)
+
+[]()
+
+	
+
+		![Gene](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/11-50si.gif)
+	
+
+	
+
+		
+
+Probably, Rich, but I only meant to clarify the math.  I still really liked--in a half-laughing, half-crying kind of way, of course, being a grad student myself--the basic conceit.
+
+	
+
+		Posted by:
+		Gene |
+		[Thursday, 01 November 2007 at 06:36 PM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88429372#comment-6a00d8341c2df453ef00e54f77b6228833)
+
+[]()
+
+	
+
+		![THE LIBRARY](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
+	
+
+	
+
+		
+
+This is what we like to call the "unintended donation" con. It works especially well with old people. Forget a wallet at the check-out desk, that's a donation. "Misplace" a purse, that's a donation. The thank you letters are a necessary formality because, after all, we're a respectable business.   
+
+Again, on behalf of the library system, thank you for your, ah, "generosity." Capish? 
+
+	
+
+		Posted by:
+		THE LIBRARY |
+		[Friday, 02 November 2007 at 02:00 PM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88522778#comment-6a00d8341c2df453ef00e54f8c2d788834)
+
+[]()
+
+	
+
+		![Innogen](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/08-50si.gif)
+	
+
+	
+
+		
+
+hahaha...if only I didn't think you had actually cleverly doctored the dept's electronic letterhead to fake this...
+
+	
+
+		Posted by:
+		Innogen |
+		[Saturday, 03 November 2007 at 11:56 PM](http://acephalous.typepad.com/acephalous/2007/10/unbelievable-up.html?cid=88658688#comment-6a00d8341c2df453ef00e54f8d3e4a8834)
+
+		
+
+        

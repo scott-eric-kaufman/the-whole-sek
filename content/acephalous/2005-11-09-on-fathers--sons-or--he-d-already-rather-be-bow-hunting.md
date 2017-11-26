@@ -1,0 +1,33 @@
+## On Fathers &  Sons; or, "He'd Already Rather Be Bow-Hunting"
+
+ * Originally posted at http://acephalous.typepad.com/acephalous/2005/11/sons_learn_abou.html
+ * Wednesday, November 09, 2005
+
+
+
+[_Cross-posted . . . why do I even bother saying where anymore?_]
+
+Sons only learn about their fathers obliquely.  The rituals of father and son relations dictate an insurmountable formality which compels them to seek other avenues of understanding.  For most of the 20th Century, those other avenues terminated in weekly sessions with other sons' fathers (and infrequently mothers) who would tell them about Oedipus' father (and unfortunate mother) and ask for payment in cash.  For reasons which have more to do with the culture of analysis captured by Woody Allen than anything else, I associate this obsession with Freudian psychotherapy and unkempt beards with the 1970s.  All of which I offer as introduction to the idea that [Noah Baumbach](http://avclub.com/content/node/42407), writer of the recently released _[The Squid and the Whale](http://imdb.com/title/tt0367089/)_ (2005) and the brilliant [_Kicking & Screaming_](http://imdb.com/title/tt0113537/) (1995), learned about his father through the fiction of his father, the novelist and short story writer [Jonathan Baumbach](http://fc2.org/baumbach/baumbach.jpg).  
+
+Why do I find this interesting?  If Jonathan Baumbach's fiction is staunchly personal but ultimately fictional, then Noah Baumbach's depictions of the fathers of his characters don't refer to his father so much as the narrators of his father's fictions.  In other words, the narrator of Jonathan's _[The Life & Times of Major Fiction](http://www.amazon.com/exec/obidos/redirect?link\_code=ur2&camp=1789&tag=diesekoschmar-20&creative=9325&path=http://www.amazon.com/gp/product/0932511082)![image](http://www.assoc-amazon.com/e/ir?t=diesekoschmar-20&l=ur2&o=1)_ appears as the father in all of Noah's films.  I originally thought I would land somewhere in the vicinity of "Jonathan's narrators are autobiographical in an uncomplex fashion," at which point I could dismiss the artistry of Jonathan's novels and claim that Noah's depiction of Jonathan (played by '70s icon Elliot Gould) nailed him.  But as I re-read _The Life & Times_ today I realized that argument would be facile in the extreme.  
+
+Jonathan's obsessions can be catalogued with ease: pointless games imbued with meaning, the awkwardness of lives acrumbling, the divorces of the preternaturally witty and their relation to the kids' unconscious, and basketball.  This particular constellation of interests appears both in the narratives of Jonathan's _The Life & Times_ and _B._ and Noah's _Kicking & Screaming_.  (And what, I ask, would Freud make of this family's obsession with ampersands?)  In Noah's film, the viewer witnesses Gould attempt to connect with his estranged son through talk of the Knicks' failures and Patrick Ewing's failings.  Grover, Noah's surrogate, belongs to a circle who fall out via an argument about the protocols of an improvised bar-room trivia game.  Having read Jonathan's work, viewers of Noah's films cannot help but see a world limited by his father's obsessions—a Bloomian anxiety _in extremis_.  
+
+Lest you think I desire diminishing the brilliance of my favorite film of the 1990s, I will add that I think this appropriation, intentional or not, an incredible glance into the relation of authors to their lives.  That Noah crafts a fictional father who resembles his father's fictions more than his father fascinates me.  Take Jonathan's short story "Familiar Games."  It contains a pointless contest irrationally imbued with significance, intimations of lives teetering on the flimsiest of fulcrums, portentions of divorce and, naturally, basketball.  In the story, the narrator (who will grow to become a Jonathan-esque divorcee) tells of a contest between his mother and his younger brother Phil.  
+
+The story begins "Every family has its games."  The narrator notes that "Phil practiced at every opportunity, studied self-improvement.  One could wake up at two A.M., look out the window, and see him taking shots in the dark.  His tenacity awed me."  It did not awe his mother.
+"This will have to be quick," she said, making the first basket before Phil could ready himself on defense.  "There's something in the oven that needs basting."
+
+Put aside for the moment that this mother trash talks like Gary Payton.  ("There's something in the oven that needs basting" being better than the best cut I've ever heard on the court.)  This narrative of a contest of a son versus the mother who will float Jordanesque to sink the final shot only to float (if you believe the book a cycle instead of a collection) out her marriage to his unimaginative and obsessive father—this contest hits all the same notes about mothers and fathers that Noah hits in _Kicking & Screaming_.  I daresay this is not a coincidence.  
+
+Because it isn't.  Jonathan's novel _B_ contains a chapter called "The Reading" in which a writer rides the rails to an obscure liberal arts college in Pennsylvania.  No one meets him at the station.  Eventually he finds his way to campus and into an auditorium awaiting a famous "trial lawyer (and former basketball great) who has a predilection for representing the blatantly guilty."  He tries to tell the crowd that they've mistaken him for some other dignitary, that's he's only a poet, that their shouts are unwarranted.  But his plea that "I am not the man you think I am" only excites the audience more.  He cannot win the game he has inadvertantly entered—only by reading his poetry can he lull them to sleep.  He breaks the rules of the game the audience expected to play and suffers the penalty of leaving, _Pnin_-like, on a train whose destination he does not know.
+
+This is the "father" Noah incorporates into _Kicking & Screaming_.  Not a real person but a fictional persona.  In short, Noah ups the ante on Bloomian anxiety by incorporating his fictional father into his autobiographical films.  Of course, I could be completely intellectualizing this.  Jonathan's unreliable narrators may be more reliable than I suppose and Noah's descriptions of them more faithful to fact than fiction.  But somehow I doubt that two people so intelligent could fall so forcefully for each other's schtick.
+
+Reviews of _The Squid and the Whale_, Noah Baumbach's latest film, can be found [here](http://www.washingtonpost.com/wp-dyn/content/article/2005/10/28/AR2005102800322.html).
+
+The Best Movie Poster Ever 
+designed for _The Squid and the Whale_
+ can be found [here](http://www.philadelphiawilldo.com/archives/2005/11/the\_funniest\_po.html)
+
+		
