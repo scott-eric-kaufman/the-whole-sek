@@ -136,7 +136,8 @@ func sanitizeSlugName(name string) string {
 	trimout := []string{
 		" ", "!", "&amp;", "&", "_", "%", "#", "@", ";", ":",
 		",", "’", "'", "(", ")", "'", `"`, "[", "]", "*", ".",
-		"”", "“", "?", "…", "—", "<em>", "</em>", "–",
+		"”", "“", "?", "…", "—", "<em>", "</em>", "–", 
+		"\r", "\n", "\t",
 	}
 	x := strings.Trim(strings.ToLower(name), " .-!")
 	// Sanitize all unwanted characters
