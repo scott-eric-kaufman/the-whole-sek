@@ -3,23 +3,15 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2007/11/a-significant-d.html
  * Monday, November 05, 2007
 
-
-
 (_If you'd rather skip the context, the hilarious video can be found below the fold._)
 
 A significant drawback of being deaf is the concentration required to carry on a conversation.  (There are [others](http://acephalous.typepad.com/acephalous/2006/05/two\_posts\_writt.html).)  Since I only pick up have a word here and half a word there, I must rely on my preternatural ability to reconstruct whole words from half-heard phonemes.  I acquired this skill through long hours, hard work, and the normal course of cognitive development: all I'd ever heard are half-words, so my brain developed to hear half-words.  So how would I know that conversing requires more concentrating for me than the hearing world?  Simple:
 
 When I'm tired, stressed, or otherwise not paying close enough attention, words break down into their constitute phonemes.  (Poetry often has [the same effect](http://acephalous.typepad.com/acephalous/2005/12/stereoscopic\_po.html).)  These phonemes typically migrate: the first phoneme of one word because the final of another and vice versa.  Consider a [previous example](http://acephalous.typepad.com/acephalous/2005/07/the\_theorys\_emp.html):
-One day I went to meet with my advisor.  He inquired into the state of my "current tree
-search."  I stared, frozen and mute,
-wondering how he'd learned of my plans to purchase a potted lemon tree
-for the porch.  
 
-"I'm thinking about lemons," I blundered.  Now it was his turn to
-stare, bewildered by my admission that I'd been considering lemons a
-valid object of literary study.  He asked why I'd been thinking about
-lemons, to which I sensibly replied "because there's not much room
-on the porch."  
+One day I went to meet with my advisor.  He inquired into the state of my "current tree search."  I stared, frozen and mute, wondering how he'd learned of my plans to purchase a potted lemon tree for the porch.  
+
+"I'm thinking about lemons," I blundered.  Now it was his turn to stare, bewildered by my admission that I'd been considering lemons a valid object of literary study.  He asked why I'd been thinking about lemons, to which I sensibly replied "because there's not much room on the porch."  
 
 "For your work?"
 
@@ -101,13 +93,13 @@ By the way, the original is in [Tamil](http://descriptively.blogspot.com/2007/10
 
 Sorry, so sorry...
 
-Let me not impede the mixup of kinds   
+Let me not impede the mixup of kinds
 
 My loony bun is fine, Benny Lava  
 
 Which alters when it alteration finds,  
 
-Med students' song of the vena cava   
+Med students' song of the vena cava
 
 "I'd love to see you pee on us tonight"  
 

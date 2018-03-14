@@ -126,10 +126,6 @@ You probably have the flu -- i.e. influenza, not the assorted group of viruses t
 
 		
 
-[![image](http://fun.banjig.net/files/images/48/4778\_b674b923ed89caeae5039a9b0964f0a5.gif)SCD](http://fun.banjig.net/fpic.php?pic\_id=4779)
-
-	
-
 		Posted by:
 		read |
 		[Saturday, 15 March 2008 at 10:42 AM](http://acephalous.typepad.com/acephalous/2008/03/random-notes-of.html?cid=107102154#comment-6a00d8341c2df453ef00e5512376488833)

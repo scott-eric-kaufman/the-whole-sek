@@ -1,3 +1,4 @@
 *.epub
 *.pdf
+_book
 scripts/node_modules
