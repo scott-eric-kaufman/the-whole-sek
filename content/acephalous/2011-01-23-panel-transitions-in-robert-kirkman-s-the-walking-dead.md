@@ -45,9 +45,6 @@ Panels six and seven are classic examples of moment-to-moment transition: the si
 
 \*I can find no example at the moment, but it's a running gag: "First you  say you want more fighting, then you complain that it only took you  three minutes to read the book." 
 
-![image](file:///C:/Users/SEK/AppData/Local/Temp/moz-screenshot.png)
-
-			
 
 * * *
 

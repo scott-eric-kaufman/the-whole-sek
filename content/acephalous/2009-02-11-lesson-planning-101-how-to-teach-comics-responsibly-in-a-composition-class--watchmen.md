@@ -18,7 +18,6 @@ In _Making Comics_, Scott McCloud argues that there are six means of transitioni
 
 The issue opens with Dr. Manhattan brooding on the pink Martian soil:
 
-![image](file:///C:/Users/SEK/AppData/Local/Temp/moz-screenshot.jpg)
 [![W02](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0111685be41a970c-320wi)](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0111685be41a970c-pi)
  
 
