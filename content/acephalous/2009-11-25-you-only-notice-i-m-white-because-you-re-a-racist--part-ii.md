@@ -1,39 +1,25 @@
-## You only notice I'm white <em>because you're a racist</em>, Part II
+## You only notice I'm white *because you're a racist*, Part II
 
  * Originally posted at http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html
  * Wednesday, November 25, 2009
 
-
-
 Instead of playing "[Count the Non-White People](http://lefarkins.blogspot.com/2009/11/you-only-noticed-im-white-because-youre.html)!" with Sarah Palin's [photographs of her appearance at Fort Bragg](http://www.facebook.com/notes/sarah-palin/more-going-rogue-book-tour-photos/181830658434), I will present some statistics about the base and surrounding community:
 
-		
+*   White Non-Hispanic (52.9%)
+*   Black (25.2%)
+*   Hispanic (15.8%)
+*   Other race (8.3%)
+*   Two or more races (4.5%)
+*   American Indian (2.1%)
+*   Native Hawaiian and Other Pacific Islander (0.9%)
+*   Filipino (0.6%)
+*   Korean (0.5%)
 
-					[]()
-			
+Having noted that 47.1 percent of the base and the surrounding community are non-white, I will now post a photograph her handlers thought would appeal to her constituents:
 
-*   White Non-Hispanic (52.9%!)(MISSING)
-*   Black (25.2%!)(MISSING)
-*   Hispanic (15.8%!)(MISSING)
-*   Other race (8.3%!)(MISSING)
-*   Two or more races (4.5%!)(MISSING)
-*   American Indian (2.1%!)(MISSING)
-*   Native Hawaiian and Other Pacific Islander (0.9%!)(MISSING)
-*   Filipino (0.6%!)(MISSING)
-*   Korean (0.5%!)(MISSING)
+![images/acephalous/13832\_188652893587\_24718773587\_2870915\_2124330\_n.jpg](../../images/acephalous/13832_188652893587_24718773587_2870915_2124330_n.jpg)
 
-Having
-noted that 47.1 percent of the base and the surrounding community are
-non-white, I will now post a photograph her handlers thought would
-appeal to her constituents:
-[![image](http://photos-e.ak.fbcdn.net/hphotos-ak-snc3/hs051.snc3/13832\_188652893587\_24718773587\_2870915\_2124330\_n.jpg)](http://photos-e.ak.fbcdn.net/hphotos-ak-snc3/hs051.snc3/13832\_188652893587\_24718773587\_2870915\_2124330\_n.jpg)[Noted racist](http://acephalous.typepad.com/acephalous/2009/11/dan-riehl-still-a-racist-only-now-a-homophobic-one.html) Dan Riehl [notes](http://www.riehlworldview.com/carnivorous\_conservative/2009/11/sarah-palin-pics-spell-trouble-for-democrats.html)
-that "[i]f you're a Democrat [these pictures] have to give you pause,"
-and they do. Riehl just fails to realize what that pause presages.
-(That would be 
-laughter
-,
-Dan.) I'm sure [Click and her claque](http://proteinwisdom.com/?p=15553) will call me a racist for pointing
-all this out, but that's how their knees jerk these days.
+[Noted racist](http://acephalous.typepad.com/acephalous/2009/11/dan-riehl-still-a-racist-only-now-a-homophobic-one.html) Dan Riehl [notes](http://www.riehlworldview.com/carnivorous\_conservative/2009/11/sarah-palin-pics-spell-trouble-for-democrats.html) that "[i]f you're a Democrat [these pictures] have to give you pause," and they do. Riehl just fails to realize what that pause presages.  (That would be laughter, Dan.) I'm sure [Click and her claque](http://proteinwisdom.com/?p=15553) will call me a racist for pointing all this out, but that's how their knees jerk these days.
 			
 
 * * *
@@ -41,56 +27,21 @@ all this out, but that's how their knees jerk these days.
 ### 12 Comments 
 
 		
-
-                
-[]()
-
-	
-
-		![Arclight](http://pbs.twimg.com/profile\_images/56093992/wage48\_normal.jpg)
-	
-
-	
-
-		
-
 Wow, it's like you've poked a beehive containing the unholy spawn of the John Birch Society and Peewee Herman. Wake me when/if the 'conservative' movement finds a rhetorical style beyond rolling its collective eyes and making farty noises.
-
 	
 
 		Posted by:
 		[Arclight](http://profile.typepad.com/arclight1) |
 		[Wednesday, 25 November 2009 at 11:55 PM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef0120a6dbbbfd970b#comment-6a00d8341c2df453ef0120a6dbbbfd970b)
 
-[]()
-
-	
-
-		![happyfeet](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/18-50si.gif)
-	
-
-	
-
-		
 
 Mr. Riehl isn't a racist. In Mr. Riehl's language community that stuff what you quoted isn't racist. So, there's that.
 
-	
 
 		Posted by:
 		happyfeet |
 		[Thursday, 26 November 2009 at 12:11 AM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef0120a6dbc6fc970b#comment-6a00d8341c2df453ef0120a6dbc6fc970b)
 
-[]()
-
-	
-
-		![Bob Reed](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/16-50si.gif)
-	
-
-	
-
-		
 
 SEK,  
 
@@ -106,22 +57,11 @@ It's more about recognizing American exceptionalism than racism; exceptionalism 
 
 All the best.
 
-	
 
 		Posted by:
 		[Bob Reed](http://powip.com) |
 		[Friday, 27 November 2009 at 12:35 AM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef0120a6dff9be970b#comment-6a00d8341c2df453ef0120a6dff9be970b)
 
-[]()
-
-	
-
-		![Plantsmantx](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/15-50si.gif)
-	
-
-	
-
-		
 
 "Just because conservatives consider the philosophy of identity politics devisive..."
 
@@ -133,16 +73,6 @@ They consider it "devisive" when practiced by someone other than themselves. Mov
 		Plantsmantx |
 		[Friday, 27 November 2009 at 09:03 AM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef0120a6e19640970b#comment-6a00d8341c2df453ef0120a6e19640970b)
 
-[]()
-
-	
-
-		![Karl Steel](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/03-50si.gif)
-	
-
-	
-
-		
 
 _pride in this country as it is_  
 
@@ -154,16 +84,6 @@ Our infant mortality, incarceration, and child poverty rates are awesome! Our sl
 		Karl Steel |
 		[Friday, 27 November 2009 at 09:52 AM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef0120a6e1bfbf970b#comment-6a00d8341c2df453ef0120a6e1bfbf970b)
 
-[]()
-
-	
-
-		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
 
 Bob:
 
@@ -183,15 +103,6 @@ Maybe not, but given when and where she said it, she's revealing who she believe
 		[SEK](http://acephalous.typepad.com/) |
 		[Friday, 27 November 2009 at 01:48 PM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef0120a6e27e4f970b#comment-6a00d8341c2df453ef0120a6e27e4f970b)
 
-[]()
-
-	
-
-		![Matt P](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/13-50si.gif)
-	
-
-	
-
 		
 
 Reading their responses to and about you, Scott, I can't help but think about your [teaching the overdetermined image](http://acephalous.typepad.com/acephalous/2009/01/teaching-the-overdetermined-image-.html) post. It's interesting to think that they don't realize every photo is a creative act with an intended meaning, not just a happenstance reproduction of a moment. Maybe not particularly useful, but interesting nonetheless.
@@ -201,15 +112,6 @@ Reading their responses to and about you, Scott, I can't help but think about yo
 		Posted by:
 		[Matt P](http://www.impy.org/blog) |
 		[Friday, 27 November 2009 at 09:07 PM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef012875e6035d970c#comment-6a00d8341c2df453ef012875e6035d970c)
-
-[]()
-
-	
-
-		![thor](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/04-50si.gif)
-	
-
-	
 
 		
 
@@ -227,15 +129,6 @@ He won't the one doing the noosin', ain't no racist neither!
 		thor |
 		[Friday, 27 November 2009 at 09:55 PM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef0120a6e415ca970b#comment-6a00d8341c2df453ef0120a6e415ca970b)
 
-[]()
-
-	
-
-		![happyfeet](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/18-50si.gif)
-	
-
-	
-
 		
 
 Bob is not a racist he is of excellent character and a nice person. thor is just joshin.
@@ -246,16 +139,6 @@ Bob is not a racist he is of excellent character and a nice person. thor is just
 		happyfeet |
 		[Friday, 27 November 2009 at 10:13 PM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef0120a6e421b3970b#comment-6a00d8341c2df453ef0120a6e421b3970b)
 
-[]()
-
-	
-
-		![thor](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/04-50si.gif)
-	
-
-	
-
-		
 
 I'm not just pulling your winky-winky eyelid, happyf.  The man's reactions to Obama and other highly-educated African-Americans are caustic knee-jerk responses that un-mask his racist animus.  I recognize the ever-guiltless gentrified beasts who raise their Bibles with one hand while perpetually tearing away the dignity of African-Americans.  Bob is a more-than-willing participant in the process of de-humanizing. 
 
@@ -266,15 +149,6 @@ He's illiterate as a friggin' fried pork rind as well.  That's where all that st
 		Posted by:
 		thor |
 		[Friday, 27 November 2009 at 10:58 PM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef012875e6514f970c#comment-6a00d8341c2df453ef012875e6514f970c)
-
-[]()
-
-	
-
-		![Chuck](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/07-50si.gif)
-	
-
-	
 
 		
 
@@ -288,14 +162,6 @@ In other words, it's an arbitrary picture that tells us very little about the co
 		[Chuck](http://chutry.wordherders.net/wp) |
 		[Saturday, 28 November 2009 at 08:46 PM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef012875e9d1b6970c#comment-6a00d8341c2df453ef012875e9d1b6970c)
 
-[]()
-
-	
-
-		![Slartibartfast](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/14-50si.gif)
-	
-
-	
 
 		
 It's interesting to think that they don't realize every photo is a creative act with an intended meaning
@@ -308,6 +174,3 @@ You mean, a cigar isn't ever really just a cigar?
 		Slartibartfast |
 		[Saturday, 28 November 2009 at 11:21 PM](http://acephalous.typepad.com/acephalous/2009/11/you-only-notice-im-white-because-youre-a-racist-part-ii.html?cid=6a00d8341c2df453ef0120a6e823fa970b#comment-6a00d8341c2df453ef0120a6e823fa970b)
 
-		
-
-        
