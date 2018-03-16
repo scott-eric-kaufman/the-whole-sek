@@ -16,3 +16,8 @@ All attempts have been made to ensure that no rights have been quashed. Feathers
 
  * All content authored by **Scott Eric Kaufman** unless noted otherwise.
 
+#### Contributors
+
+ * [Jeff Buchbinder](https://github.com/jbuchbinder)
+ * [Adam Buchbinder](https://github.com/adambuchbinder)
+
