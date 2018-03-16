@@ -68,3 +68,364 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 15 comments
+
+		
+
+	
+
+		
+
+[July 31, 2008 at 10:06 am](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16351)
+
+**TF Smith**
+
+					
+
+		
+
+But is he made out of clay?
+
+ Seriously, good points; utterly Morton’s fork.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 10:48 am](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16355)
+
+**politicalfootball**
+
+					
+
+		
+
+Legal scholarship is an inherently far-left discipline, as these things are reckoned noawadays, because a founding principal of legal scholarship is respect for the rule of law.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 10:59 am](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16357)
+
+**neocynic**
+
+					
+
+		
+
+Ha!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 10:59 am](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16358)
+
+**TF Smith**
+
+					
+
+		
+
+The facts that legal scholarship is based on the rule of law, reason, rationality, and precedent alone is to make it “far left” to some of the purveyors in the marketplace these days; far better to simply have “faith”…
+
+ After all, that has worked so well for the current Administration with regards to disaster prevention and relief and strategic planning for coalition warfare.
+
+ These people make Custer look thoughtful.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 1:10 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16380)
+
+**Vance Maverick**
+
+					
+
+		
+
+Also, [WTF](http://marcambinder.theatlantic.com/archives/2008/07/a\_humble\_question.php)?  It’s just as well Ambinder doesn’t permit comments.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 1:25 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16381)
+
+**eric**
+
+					
+
+		
+
+How is “presumptuous” anything other than “uppity” got up in fancy clothing?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 1:27 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16382)
+
+**Vance Maverick**
+
+					
+
+		
+
+Ambinder didn’t include an option for “he’s a politician running for President, what do you expect?”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 1:27 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16383)
+
+**politicalfootball**
+
+					
+
+		
+
+The poll site [does allow comments](http://answers.polldaddy.com/viewPoll.aspx?view=results&id=827426), but Ambinder doesn’t catch anywhere near the amount of shit he ought to for this.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 1:48 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16384)
+
+**eric**
+
+					
+
+		
+
+Colbert pointed out that McCain uses “President McCain” as a chyron in his commercials.  Where’s the concern over the uppity white man?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 2:04 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16385)
+
+**neocynic**
+
+					
+
+		
+
+_Colbert pointed out that McCain uses “President McCain” as a chyron in his commercials. Where’s the concern over the uppity white man?_  
+
+Well . . . here. I wanna string me up some whiteys. With glandular problems. And too much agin’.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 2:16 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16386)
+
+**[bitchphd](http://bitchphd.blogspot.com)**
+
+					
+
+		
+
+_because he kept his personal politics out of the classroom, as these very same conservatives so adamantly desire . . . he shouldn’t be trusted_
+
+Well of course; they don’t actually believe in professionalism.  They believe in ideology.  That’s what “conservative” means these days.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 2:24 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16389)
+
+**[eric](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+On the uppityness of John McCain, you can now read [this man](http://www.dailykos.com/story/2008/7/31/142834/892/240/560121).  (Hint:  He drinks a whiskey drink…)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 2:27 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16390)
+
+**[apostropher](http://www.apostropher.com/blog/)**
+
+					
+
+		
+
+_All evidence aside, it would’ve confirmed his status as the most liberal Senator in this history of America_
+
+Thanks for the link, but Barney Frank is objectively not a US senator. Bernie Sanders, on the other hand, should definitively refute the whole “most liberal Senator” being applied to anybody but himself, right?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 2:30 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16391)
+
+**Vance Maverick**
+
+					
+
+		
+
+I took the “most liberal Senator” to be a joking reference to Obama.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 31, 2008 at 3:41 pm](https://edgeofthewest.wordpress.com/2008/07/31/is-it-hannukah-obammukah-already/#comment-16398)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+I was referring to the _National Journal_.  I’ll fix it.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

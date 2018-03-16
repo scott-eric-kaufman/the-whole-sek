@@ -49,3 +49,202 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 7 comments
+
+		
+
+	
+
+		
+
+[December 22, 2008 at 4:30 pm](https://edgeofthewest.wordpress.com/2008/12/22/my-suppurating-wounds-when-history-gets-personal/#comment-30725)
+
+**[Matt L](http://affop.blogspot.com/)**
+
+					
+
+		
+
+Warning! Warning! Jana Remy PhD Candidate! Don’t write a ground breaking dissertation that blurs the boundaries of the genre! Just finish. 
+
+I know three people who wrote ground breaking dissertations with the blessings of their advisers/committees and none of them have been able to get a book contract. Two of them have completely pitched their manuscripts and started new projects on different topics with conventional narratives. Another has spent the last three months weeping and gnashing his/her teeth after being solicited and then rejected by a major press in the field. 
+
+I know one person who had his dissertation published as a book. He wrote a completely ‘normal science’ dissertation using published sources. His dissertation was published after some revisions by the leading press in his sub field. Moral of the story: Nothing fancy. Just think done. Seriously. The cutting edge stuff will keep and you can do it later, (when you have your own blog like eotaw).
+
+Finally, you will, and probably should, ignore the well meaning dissertation advice of myself and others.  The most valuable skill I learned in graduate school was how to listen to the advice of others (including my committee) and to go ahead and have the courage to do what I was thinking any way. 
+
+(one last bit of advice, Never get off the boat). 
+
+Happy dissertating and I hope your leg gets better!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[December 22, 2008 at 6:53 pm](https://edgeofthewest.wordpress.com/2008/12/22/my-suppurating-wounds-when-history-gets-personal/#comment-30728)
+
+**RobinMarie**
+
+					
+
+		
+
+I’m afraid I have to admit that I was unable to get any intellectual enjoyment out of this post at all, as the whole time I was merely squirming and thinking, “Oh God, please don’t let this ever happen to me,” and “Oh my God, is she ok?, is it getting better?” and “Oh my God, how can she be sitting here calmly discussing thoughtful issues when she has an antibiotic-resistant infection inside her leg which is slowly destroying and crawling through her flesh?!?!” 
+
+You must not be OCD, because if I were you I couldn’t write one coherant page of anything, let alone a dissertation.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[December 22, 2008 at 10:55 pm](https://edgeofthewest.wordpress.com/2008/12/22/my-suppurating-wounds-when-history-gets-personal/#comment-30730)
+
+**[Jana](http://www.pilgrimsteps.com)**
+
+					
+
+		
+
+Matt: Thanks for the advice (I think).  Everyday I vacillate between the “get it done” and the “have some fun” approach.  Everyone tells me that if/when I get the magical tenure then I can get creative.  I just wonder sometimes if I’ll even make it that far and if it’s really worth waiting for…sigh…
+
+RobinMarie: Should’ve added a squeamish disclaimer–my apologies.  FWIW, antibiotic-resistant infections aren’t so terribly unusual anymore (ask around and I bet you know a few people who’ve had MRSA–especially anyone who’s had recent surgery or outpatient treatment).  My advice: avoid hospitals and doctors’ clinics because they typically harbor the most virulent strains.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[December 23, 2008 at 7:32 am](https://edgeofthewest.wordpress.com/2008/12/22/my-suppurating-wounds-when-history-gets-personal/#comment-30742)
+
+**Michael Elliott**
+
+					
+
+		
+
+Have fun and get it done, too.  I think there are a lot of scholarly models that both tell a “professional”, scholarly story and that also make room for the author’s own voice. In fact, I was just on a panel at the Amer. Studies Association about this (of course, I can’t remember anyone from a history dept on the panel.  Hmm.)  I think publishers are attracted to this kind of work, too.
+
+That said, I can see that the danger of trying to “have fun” and “get it done,” is that you agonize so much over the writing that it in fact delays the completion of the dissertation.  Professional formulas for writing are, well, formulaic, and that can be advantage when you are you are trying to complete a dissertation.  You don’t have to  wait for tenure to push the envelope a little — but you may want to wait until you are revising the diss for a book.  (I have a colleague who did that.  His first book — which basically became the best known book in his field — included creative interchapters in which characters actually speak in dialect.  It’s quite remarkable, but those pieces weren’t in the dissertation.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[December 23, 2008 at 7:35 am](https://edgeofthewest.wordpress.com/2008/12/22/my-suppurating-wounds-when-history-gets-personal/#comment-30743)
+
+**dware**
+
+					
+
+		
+
+jana,
+
+One member of my committee gave me what ought to be the mantra for us all: “the best dissertation is the done dissertation.”  I had my fun in the research (field work involving car-camping in my ’68 VW, hanging out in grotty mining-town bars, pawing through police arrest records in unventilated broom closets, etc) and in writing chapter drafts, from which my wise mentor then showed me how to cut the evidence of having had too much fun in the research phase. 
+
+Moral of story? Write your heart into the diss, be prepared to excise most of it, then keep it for post-defense revision into a groundbreaking book.
+
+And ditto your last comment to RobinMarie; my oldest friend is an MD who teaches at a major Left Coast med school; he avoids hospitals like the plague for just the reason you cite.
+
+Good luck, and keep that leg away from doctors if possible.  Especially if they want to try pouring whisky on the wound before giving you a good slug of same.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[December 27, 2008 at 11:56 am](https://edgeofthewest.wordpress.com/2008/12/22/my-suppurating-wounds-when-history-gets-personal/#comment-30872)
+
+**[Chris J](http://www.chrisjohnsonmd.com)**
+
+					
+
+		
+
+My day job is doctoring (with a little teaching of history of medicine on the side), and you describe your unfortunate situation very well. History of medicine has benefited during the past couple of decades from actual historians (rather than physician-amateurs) coming into the field, so I encourage you to forge ahead in your work. I especially encourage you to try whatever novel approaches your dissertation committee will allow. It’s pretty clear to me that history of medicine is a good window into many fascinating and useful aspects of social history.
+
+Best of luck to you and your poor leg.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[December 27, 2008 at 8:45 pm](https://edgeofthewest.wordpress.com/2008/12/22/my-suppurating-wounds-when-history-gets-personal/#comment-30886)
+
+**[jeffbowers](http://zeitgeistinapetiole.wordpress.com)**
+
+					
+
+		
+
+This post reminds me of this [list of incredible self-surgeries](http://listverse.com/health/top-10-incredible-self-surgeries).  I’m a wuss for pain and not very adept at working with my own wounds, so bless your heart for what you’re having to go through, Jana.  Here’s wishing you a definitive diagnosis, a speedy recovery, a successful dissertation, and a wee bit of luck going into the new year!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

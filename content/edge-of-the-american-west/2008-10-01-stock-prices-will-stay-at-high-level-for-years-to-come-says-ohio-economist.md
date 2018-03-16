@@ -13,6 +13,7 @@ Did I forgot to mention that this article is from 13 October 1929?  Or that the
 
 Like [Timothy](http://weblogs.swarthmore.edu/burke/?p=652), I’m not equipped to understand what exactly the market’s up to.  No matter how patiently [DeLong explains](http://delong.typepad.com/sdj/2008/09/today-in-financ.html) the situation, I’ll be lost by the second sentence.  But I still feel _it_.
 
+
 It’s on the porch.
 
 It’s through the window.
@@ -69,15 +70,195 @@ All of which leads me to believe that at least we won’t be sucker-punched by b
 
 ### Like this:
 
-
 Like
 
  
 Loading...
 
-
 []()
 
 ### _Related_
 
+	
 
+* * *
+
+		
+
+## 7 comments
+
+		
+
+	
+
+		
+
+[September 30, 2008 at 6:20 pm](https://edgeofthewest.wordpress.com/2008/09/30/stock-prices-will-stay-at-high-level-for-years-to-come-says-ohio-economist/#comment-22389)
+
+**Rich Puchalsky**
+
+					
+
+		
+
+Hey, just because one of McCain’s economic advisors wrote the ludicrous _Dow 36,000_ just before the tech bubble burst is no reason to worry — wait, what?
+
+But seriously, why do you have an irrational fear of a market crash?  I mean, you’re poor, right?  You have nothing to lose but your chains.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 30, 2008 at 6:39 pm](https://edgeofthewest.wordpress.com/2008/09/30/stock-prices-will-stay-at-high-level-for-years-to-come-says-ohio-economist/#comment-22393)
+
+**rosmar**
+
+					
+
+		
+
+I wish that being poor protected us from market crashes.  But I feel certain that things can always get worse.
+
+Where I live, in North Carolina, people are already getting laid off from jobs like “cabinet builder.”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 30, 2008 at 6:57 pm](https://edgeofthewest.wordpress.com/2008/09/30/stock-prices-will-stay-at-high-level-for-years-to-come-says-ohio-economist/#comment-22394)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+Well, I’m certainly poor, but that means I need credit, and credit’s in short supply at the moment (and, from what I can tell, for the foreseeable future).
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 30, 2008 at 7:07 pm](https://edgeofthewest.wordpress.com/2008/09/30/stock-prices-will-stay-at-high-level-for-years-to-come-says-ohio-economist/#comment-22397)
+
+**[dana](https://edgeofthewest.wordpress.com)**
+
+					
+
+		
+
+_Where I live, in North Carolina, people are already getting laid off from jobs like “cabinet builder.”_
+
+Ugh. That’s a skilled trade; this economy sucks.
+
+The only thing comforting me so far is that everything’s crashing and I haven’t lost anything on accounta bein not wealthy, but if it crashes I am so hopelessly screwed.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 30, 2008 at 7:18 pm](https://edgeofthewest.wordpress.com/2008/09/30/stock-prices-will-stay-at-high-level-for-years-to-come-says-ohio-economist/#comment-22398)
+
+**Walt**
+
+					
+
+		
+
+The meaning of Brad’s graphs are: nobody wants to lend to banks, housing prices are falling, the stock market is gyrating wildly, and unemployment is up.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 1, 2008 at 12:37 am](https://edgeofthewest.wordpress.com/2008/09/30/stock-prices-will-stay-at-high-level-for-years-to-come-says-ohio-economist/#comment-22410)
+
+**[andrew](http://thewayside.wordpress.com)**
+
+					
+
+		
+
+My recollection (from reading some book by some blogger) is that the 1929 crash did not lead directly, or at least not solely, to the Depression and that the actions or inactions of the federal reserve were also a problem. So it might be equally interesting to read the news leading away from 29 October 1929.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 1, 2008 at 2:33 pm](https://edgeofthewest.wordpress.com/2008/09/30/stock-prices-will-stay-at-high-level-for-years-to-come-says-ohio-economist/#comment-22475)
+
+**Sir Charles**
+
+					
+
+		
+
+But, it’s a new paradigm . . .
+
+– James Glassman
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

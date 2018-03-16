@@ -22,12 +22,126 @@ Throughout his career, Trilling’s central preoccupation was the habits and ide
 
 ### Like this:
 
+
 Like
 
  
 Loading...
 
+
 []()
 
 ### _Related_
 
+
+	
+
+* * *
+
+		
+
+## 4 comments
+
+		
+
+	
+
+		
+
+[September 3, 2008 at 1:06 pm](https://edgeofthewest.wordpress.com/2008/09/03/fellow-travelers-journey-with-abandon/#comment-19075)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+Shouldn’t that be “posthumously published” rather than “unpublished”?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2008 at 1:57 pm](https://edgeofthewest.wordpress.com/2008/09/03/fellow-travelers-journey-with-abandon/#comment-19076)
+
+**[Vance Maverick](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+Well, there is a distinction to be drawn — this book was until recently quite unpublished, though LT has been dead a while.
+
+Mark Schechner tells us to read the Trilling fragment first, before any introductions (and presumably also before this Valve seminar).  Meanwhile Miriam Burstein makes the dialogue of the fragment sound just about unreadable.
+
+Perhaps this is for professionals only (on a closed course)….
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2008 at 2:04 pm](https://edgeofthewest.wordpress.com/2008/09/03/fellow-travelers-journey-with-abandon/#comment-19077)
+
+**[Vance Maverick](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+Whoops — Shechner.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2008 at 2:43 pm](https://edgeofthewest.wordpress.com/2008/09/03/fellow-travelers-journey-with-abandon/#comment-19080)
+
+**[Adam Roberts](http://www.adamroberts.com)**
+
+					
+
+		
+
+I can only stand at the sweet-shop window, with my face pressed against the glass …
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

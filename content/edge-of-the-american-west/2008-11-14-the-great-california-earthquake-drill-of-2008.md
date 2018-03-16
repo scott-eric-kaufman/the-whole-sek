@@ -190,3 +190,740 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 31 comments
+
+		
+
+	
+
+		
+
+[November 13, 2008 at 8:01 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27043)
+
+**Matt Weiner**
+
+					
+
+		
+
+I believe you have a boldy tag that is infecting the rest of the site. Or are you just adding verisimilitude?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 8:04 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27044)
+
+**[dana](https://edgeofthewest.wordpress.com)**
+
+					
+
+		
+
+We can’t get the [more] tag to work either.  Obviously Scott does not have the magic fingers.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 8:05 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27046)
+
+**Matt Weiner**
+
+					
+
+		
+
+Now the bold is gone. It is a timid, cautious age.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 8:07 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27047)
+
+**[dana](https://edgeofthewest.wordpress.com)**
+
+					
+
+		
+
+He has not the magic fingers but he can beat bold tags into submission.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 8:21 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27049)
+
+**Brad**
+
+					
+
+		
+
+That is hysterical…for me.
+
+What is it about SEK?  He seems to live a life of excitement and adventure without ever leaving the confines of academia.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 8:25 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27050)
+
+**kathy a.**
+
+					
+
+		
+
+it’s not every day that someone can have an earthquake drill not happen, AND the computer go berzerk.  your students will remember this class.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 8:36 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27051)
+
+**urbino**
+
+					
+
+		
+
+_What is it about SEK? He seems to live a life of excitement and adventure without ever leaving the confines of academia._
+
+So true.  And Aristophanes couldn’t report them better.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 9:34 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27054)
+
+**John  Emerson**
+
+					
+
+		
+
+I do not believe that these things have all really happened to SEK, if such a person as SEK actually indeed does exist. He may well be the Stephen Glass of the internet. If he exists.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 10:04 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27055)
+
+**[bitchphd](http://bitchphd.blogspot.com)**
+
+					
+
+		
+
+Why is it that this tech shit \*never\* works for the instructor?  Seriously.  As a student, I frequently fixed tech problems for teachers and professors.  As a professor, I always have to ask a student to do it.  It’s like the magic law of the classroom.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 10:18 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27057)
+
+**urbino**
+
+					
+
+		
+
+It’s probably just karma, keeping you all from getting too big for your britches.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 10:23 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27058)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+Or could it be … age?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 10:25 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27060)
+
+**urbino**
+
+					
+
+		
+
+Maybe.  I don’t know the ages of most of the people here, but SEK certainly doesn’t _seem_ old enough to have lost touch with current technology.  And he blogs.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 10:33 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27061)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+So he’s probably no older than [Margaret and Helen](http://margaretandhelen.wordpress.com/)…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 10:37 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27064)
+
+**urbino**
+
+					
+
+		
+
+Yeah, yeah.  I believe ari said it best when he said: jerk.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 10:47 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27065)
+
+**[bitchphd](http://bitchphd.blogspot.com)**
+
+					
+
+		
+
+I don’t think it’s age.  I think it’s some kind of weird deer-in-headlights, absent-minded-professor thing, where when you’re standing in front of an audience you’re necessarily too audience-aware to really focus on the tech crap.
+
+So there.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 10:51 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27066)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+B, I’m decidedly older than either you or Scott — my joke may have misfired, but it wasn’t mean-spirited. (I’m also inept with gadgets, despite working in Silicon Valley.) Your analysis seems right.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 10:56 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27067)
+
+**urbino**
+
+					
+
+		
+
+Or maybe mine did.
+
+Whatever the case may be, I thought you were a youngster, too, Vance.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 10:58 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27068)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+Early forties, for what it’s worth.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 11:01 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27069)
+
+**urbino**
+
+					
+
+		
+
+I had you pegged as younger, but you still qualify as young.  Or I hope you do, since I’m the same age.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 13, 2008 at 11:31 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27072)
+
+**[Linkmeister](http://www.linkmeister.com/blog/)**
+
+					
+
+		
+
+That dialogue reminded me of [_Adventure_](http://www.rickadams.org/adventure/).
+
+“You are in a twisty maze of passageways, all alike…”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 14, 2008 at 12:40 am](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27074)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+Linkmeister, there’s a [real good reason for that](http://acephalous.typepad.com/acephalous/2006/04/disadventure.html).
+
+kathy, the thing is, the message UC admin beamed my computer is what locked it up.  It’s not a coincidence, really, just a total breakdown by someone in some technical department who didn’t realize whatever override button they’d pressed would override my podium under MAGIC FINGERS touched it.  (Dr. B.’s wrong, then.  It’s not deer-in-headlights, really, more like pure incompetence.)
+
+Brad, I assure you, there was nothing that exciting about this.  All the links are up there, I just happened to have a fake earthquake crash my podium computer . . . the one that controls the lights.  Because now that we’re in the future, we don’t need light switches!
+
+Emerson, admittedly, you’ve seen more of this insanity than most—some threads, they die and don’t come back—but, um, next year at UnfoggedCon!
+
+(And dudes!  I’m barely in my 30s!  Don’t you go aging me!)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 14, 2008 at 7:15 am](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27080)
+
+**kid bitzer**
+
+					
+
+		
+
+(And dudes! I’m barely in my 30s! Don’t you go aging me!)
+
+what sek said is doubly true in my case. don’t go aging me, neither!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 14, 2008 at 7:33 am](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27081)
+
+**jhm**
+
+					
+
+		
+
+My mental picture was of Metropolis, what with the robots; but the Adventure thing is right on (although we of a certain age might have said Zork).
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 14, 2008 at 8:12 am](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27086)
+
+**[Sam-I-am](http://feministeconomist.blogspot.com)**
+
+					
+
+		
+
+Reboot.  
+
+Or bring your own computer.  Although you may still have to reboot even with your own computer, just to get the gd overhead projector to switch back on once you’ve blanked the screen.
+
+And of course you will not have the proper cords the first two times you try to use your own computer.
+
+Don’t even get me started on temperature control.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 14, 2008 at 10:30 am](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27088)
+
+**Fats Durston**
+
+					
+
+		
+
+_Because now that we’re in the future, we don’t need light switches!_
+
+The post 11/4 world is totally different.  Or should that be _totalitarianally_ different!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 14, 2008 at 10:30 am](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27089)
+
+**Fats Durston**
+
+					
+
+		
+
+? (dammit)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 14, 2008 at 10:43 am](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27090)
+
+**Western Dave**
+
+					
+
+		
+
+Oh jeezus, SEK is actually a pseudonym for Wil Wheaton.  
+
+[http://suicidegirls.com/members/WilWheaton/news/](http://suicidegirls.com/members/WilWheaton/news/)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 14, 2008 at 11:17 am](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27091)
+
+**[Linkmeister](http://www.linkmeister.com/blog/)**
+
+					
+
+		
+
+Well damn.  For once I recognized an antecedent.  That’s gratifying.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 14, 2008 at 7:46 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27102)
+
+**[bitchphd](http://bitchphd.blogspot.com)**
+
+					
+
+		
+
+_B, I’m decidedly older than either you or Scott — my joke may have misfired, but it wasn’t mean-spirited.  
+
+Early forties, for what it’s worth._
+
+That is not “decidedly older” than me.  Nor is it in fact “older” by the standards of anyone past elementary school.  I’ll be 41 in January.
+
+And you \*were too\* being mean-spirited.  Us old people know these things.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 16, 2008 at 6:51 am](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-27161)
+
+**John Emerson**
+
+					
+
+		
+
+I’m older than any of you motherfuckers. Chill out.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[December 1, 2008 at 10:23 pm](https://edgeofthewest.wordpress.com/2008/11/13/the-great-california-earthquake-drill-of-2008/#comment-28539)
+
+**[Santos](http://ntossjp.blogspot.com)**
+
+					
+
+		
+
+why many people said damned it?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

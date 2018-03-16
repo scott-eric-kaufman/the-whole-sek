@@ -32,3 +32,68 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 2 comments
+
+		
+
+	
+
+		
+
+[July 18, 2008 at 8:08 pm](https://edgeofthewest.wordpress.com/2008/07/18/the-depths-of-the-american-south/#comment-15394)
+
+**Vance Maverick**
+
+					
+
+		
+
+Is this the absence of a history post, or the absence of a historicist post?
+
+Have a good break —
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 23, 2008 at 1:01 pm](https://edgeofthewest.wordpress.com/2008/07/18/the-depths-of-the-american-south/#comment-15759)
+
+**[The Great Criminal « An und für sich](http://itself.wordpress.com/2008/07/23/the-great-criminal/)**
+
+					
+
+		
+
+[…] July 23, 2008   SEK compelled me to respond to The Dark Knight. I don’t have much new to say on the topic–I really […]
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

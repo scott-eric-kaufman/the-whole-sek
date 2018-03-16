@@ -42,3 +42,254 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 10 comments
+
+		
+
+	
+
+		
+
+[March 13, 2009 at 12:56 pm](https://edgeofthewest.wordpress.com/2009/03/13/you-thought-i-was-going-to-mock-the-title-didnt-you/#comment-35949)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+And at Savage Minds, someone comments,
+
+_Wow Rex, you got commented by Scott Kaufman._
+
+So you (or at least your less pretentious self, without the second given name) are ab-fab too!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[March 13, 2009 at 12:59 pm](https://edgeofthewest.wordpress.com/2009/03/13/you-thought-i-was-going-to-mock-the-title-didnt-you/#comment-35950)
+
+**[Jason B.](http://notnotnegative.blogspot.com)**
+
+					
+
+		
+
+I feel awesome to have been declared awesome in this awesome post.
+
+Awesome.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[March 13, 2009 at 2:13 pm](https://edgeofthewest.wordpress.com/2009/03/13/you-thought-i-was-going-to-mock-the-title-didnt-you/#comment-35955)
+
+**[jim](http://moody.cx)**
+
+					
+
+		
+
+I assume the citations are examples of her awesomeness, but I’m refraining from looking them up, lest I be dazzled.
+
+But I’m glad you think I’m awesome.  I think you’re awesome, too.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[March 13, 2009 at 3:30 pm](https://edgeofthewest.wordpress.com/2009/03/13/you-thought-i-was-going-to-mock-the-title-didnt-you/#comment-35963)
+
+**kid bitzer**
+
+					
+
+		
+
+you can awe some of the people all of the time….
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[March 13, 2009 at 3:54 pm](https://edgeofthewest.wordpress.com/2009/03/13/you-thought-i-was-going-to-mock-the-title-didnt-you/#comment-35964)
+
+**grackle**
+
+					
+
+		
+
+Isn’t it probable that the  intrepid author is offering citations of Glasne’s work, you know, to introduce her as awesome?  You seem to treating it as a squid pro quo, to which I offer S E Kaufman, to whom I am now in debt (Kaufman 2009a, 2009b, 2009c.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[March 13, 2009 at 4:04 pm](https://edgeofthewest.wordpress.com/2009/03/13/you-thought-i-was-going-to-mock-the-title-didnt-you/#comment-35965)
+
+**Colin**
+
+					
+
+		
+
+Why thank you, Scott (2008), and really, all that mentoring I did for you, mention it.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[March 13, 2009 at 5:39 pm](https://edgeofthewest.wordpress.com/2009/03/13/you-thought-i-was-going-to-mock-the-title-didnt-you/#comment-35967)
+
+**Michael Turner**
+
+					
+
+		
+
+Qualitative Inquiry has a quantity all its own.  Clearly.
+
+If nobody here is going to mentor me, could one of the more awesome of you at least comment me?
+
+You don’t have to be absolutely wonderful or anything.  Just awesome.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[March 14, 2009 at 6:34 am](https://edgeofthewest.wordpress.com/2009/03/13/you-thought-i-was-going-to-mock-the-title-didnt-you/#comment-35987)
+
+**[jazzbumpa](http://jazzbumpa.tumblr.com)**
+
+					
+
+		
+
+As much as I appreciate the the generic awesomeness you have bestowed on me, I won’t feel especially and/or specifically awesome until you have left a a comment on [my blog](http://jazzbumpa.blogspot.com/).
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[March 14, 2009 at 12:51 pm](https://edgeofthewest.wordpress.com/2009/03/13/you-thought-i-was-going-to-mock-the-title-didnt-you/#comment-36007)
+
+**[sdh](http://literateria2.blogspot.com/)**
+
+					
+
+		
+
+This post needs more giant squid (kid blitzer, 2009). Other than that, awesome (SEK, 2009; Kaufman, 2009)!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[March 15, 2009 at 1:27 pm](https://edgeofthewest.wordpress.com/2009/03/13/you-thought-i-was-going-to-mock-the-title-didnt-you/#comment-36031)
+
+**Cryptic ned**
+
+					
+
+		
+
+Reading (trying to read) the entire article, it looks like the sort of thing I imagine the Troll of Sorrow would write if he were an academic.  (is he an academic?)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

@@ -47,12 +47,420 @@ In the end, the case against Sotomayor basically amounts to this: on the one han
 
 ### Like this:
 
+
 Like
 
  
 Loading...
 
+
 []()
 
 ### _Related_
 
+
+	
+
+* * *
+
+		
+
+## 16 comments
+
+		
+
+	
+
+		
+
+[June 14, 2009 at 11:10 pm](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-47972)
+
+**[teofilo](http://sunlitwater.wordpress.com/)**
+
+					
+
+		
+
+The NRO folks are engaging in their usual tendentious absurdity, of course, but I think this is an interesting issue on its own terms.  I spend a lot of my time speaking extemporaneously in public, and while I do my best to remain coherent and grammatical, by no means do I always succeed.  (I’d like to think I do better on the former than on the latter, but that’s for my audience to judge.)
+
+One thing I find pretty notable about this is that I often get compliments from my listeners about how well-spoken I am, when I myself, having been paying close attention to what I’m saying, know that what I’ve said has been littered with grammatical infelicities and garden-path stumbling and regrouping.  That is, people really don’t notice this sort of thing in practice.  We’re so used to listening to people talk in a way that would seem totally incoherent in writing that it doesn’t even occur to us that that would be the case.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 4:45 am](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-47974)
+
+**kevin**
+
+					
+
+		
+
+Great post.  Thanks.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 7:01 am](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-47977)
+
+**Michael**
+
+					
+
+		
+
+Can you fix the name-comment relation?  It is very hard to follow who said what.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 8:42 am](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-47979)
+
+**ben**
+
+					
+
+		
+
+_how a prose-scold could write “quote” instead of “quotation” in the middle of a complaint_ 
+
+Zing!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 8:52 am](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-47980)
+
+**Sir Charles**
+
+					
+
+		
+
+All you need to do to confirm the truth of your post is to read yourself captured on a transcript.  As a lawyer, I have had this painful experience all too often — and I am generally considered to be articulate — sometimes on good days even eloquent.  But spoken speech is just utterly different from written prose.  
+
+As for those who criticize her judicial opinions for not being the Molly Bloom solliloquy — well, it’s just more intellectually dishonest bullshit from people who specialize in that particular commodity.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 10:49 am](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-47984)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+By the way, Whelan himself “responded” over [at my place](http://acephalous.typepad.com/acephalous/2009/06/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-wors.html?cid=6a00d8341c2df453ef01157113edb3970b#comment-6a00d8341c2df453ef01157113edb3970b).  He seems determined to prove he doesn’t, as per my link above, [know what words mean](http://www.youtube.com/watch?v=0cO5JUrLomw#t=1m49).
+
+_We’re so used to listening to people talk in a way that would seem totally incoherent in writing that it doesn’t even occur to us that that would be the case._
+
+Bingo!  On that front, check out [proto-Derrida](http://books.google.com/books?id=lwsBAAAAYAAJ&pg=PA4), who sussed this out way back in the 19th Century.
+
+_Can you fix the name-comment relation?_ 
+
+No.
+
+But not because I’m being belligerent—we’ve tried, WordPress said it was fixed, but obviously, it isn’t.  It works fine in non-IE browsers, though.
+
+_As for those who criticize her judicial opinions for not being the Molly Bloom solliloquy — well, it’s just more intellectually dishonest bullshit from people who specialize in that particular commodity._
+
+Wait, for _not_ being Molly Bloom?  Because I don’t think anyone advocates no I don’t think anyone advocates that people should write legal opinions like Molly spoke in her own head when she spoke the words that James recorded in his little book precious little book that was all the fuss they made over how it was so important yes I don’t think jurists should write like the words he put in her head yes I said no I said No.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 11:29 am](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-47985)
+
+**Gabriel**
+
+					
+
+		
+
+The real question Whelan and company need to answer is why they think anyone would actually care about this.  They certainly can’t be foolish enough to believe that a Supreme Court nomination could be derailed by breathless allegations of turgid prose.   Why aren’t they writing about something interesting or important?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 11:30 am](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-47986)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+I refuse to answer your question on account of what it implies about me.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 12:10 pm](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-47987)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+_Why aren’t they writing about something interesting or important?_
+
+Division of labor: they’re not qualified to write about anything interesting or important. 
+
+SEK, on the other hand, is performing an invaluable discourse policing function — aka whak-a-mole — in highlighting the vacuity of their commentary.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 2:17 pm](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-47991)
+
+**AaLD**
+
+					
+
+		
+
+As someone who has to read more than his fair share of legal opinions, I say it’s about time someone spoke out against the tedious analysis, and the constant need to cite constitutions, statutes and legal precedents that characterizes far too much of our judicial output these days (or at least since _Marbury v. Madison_, anyway). Heck, any of the regular contributors to this blog could write far more interesting stuff than the vast majority of our appellate court judges.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 7:56 pm](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-48003)
+
+**[jazzbumpa](http://jazzbumpa.blogspot.com/)**
+
+					
+
+		
+
+I am shocked, &lt;shocked I tell you, to learn that the prose-scolds on the right, and especially NRO,  are capable of intellectually dishonest bullshit, vacuity, and time-wasting over things that are neither interesting nor important.
+
+Not to mention misusing _quote_.
+
+I think I must have a drink.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 8:17 pm](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-48004)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+Actually, that particular prose-scold was at _Mother Jones_.  Drum’s gonna be mighty unhappy with you, jazzbumpa.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 15, 2009 at 11:09 pm](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-48006)
+
+**Urk**
+
+					
+
+		
+
+Nice takedown of this stupid crap. Oh, and besides Gates,  Stuart Hall also supposedly speaks (I almostt wrote ‘articulates’ in a seemingly composed vernacular, or so I’ve been told.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 16, 2009 at 8:46 am](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-48025)
+
+**JPool**
+
+					
+
+		
+
+Re: _The Guardian_ article
+
+The piece on Gates was fine, though filled with _The Guardian_‘s typical manglings (“I’ll just sprinkle these quotation marks around”).  I don’t really know anything more about him now than I already did, but I’m not the average reader.  But can anyone, particularly any British people tell me, is that how Cornell West is thought of over there? As “a controversial adviser on both Louis Farrakhan’s Million Man March in 1995 and the Rev Al Sharpton’s nascent presidential bid for 2004?”  Not as a deeply serious public intellectual, important thinker on race and ethics and (while a little shticky after the third or fourth iteration) one of the most compelling public speakers out there?  I mean I know he’s being used as a bit of a prop in that article for the Summers controversy and role of African-American scholarship, but still.
+
+Hmph.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 16, 2009 at 4:42 pm](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-48086)
+
+**fromlaurelstreet**
+
+					
+
+		
+
+How good was the transcript?  As a transcriptionist, that was the first question I had.
+
+If poorly prepared, a transcript can make the most eloquent person’s words read like complete garbage.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 18, 2009 at 8:13 am](https://edgeofthewest.wordpress.com/2009/06/14/mother-jones-and-the-national-review-on-the-dubious-quality-of-sotomayors-prose-this-apples-the-worst-orange-ive-ever-tasted/#comment-48183)
+
+**[Stuart Buck](http://stuartbuck.blogspot.com)**
+
+					
+
+		
+
+Hold on, why are you saying that the 2001 speech (which was being criticized) was “an unscripted speech [that was] transcribed after the fact”?  If you compare it to a 1994 speech that Sotomayor gave, there are huge chunks that are verbatim.  People can’t reproduce their own words verbatim after 7 years unless they’re working from a text that is wholly written out.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

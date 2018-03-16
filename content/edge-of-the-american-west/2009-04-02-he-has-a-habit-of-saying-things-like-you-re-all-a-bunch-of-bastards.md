@@ -54,3 +54,388 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 16 comments
+
+		
+
+	
+
+		
+
+[April 1, 2009 at 7:47 pm](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41287)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+No links to avoid automatic link-backs.  But all of the above can be found at m/iche/lle m/alk/in and h/ot a/ir.  There was also a lot of material about how noble and gentle Prince Philip was in bearing and demeanor, but I’d depleted my irony reserves at that point and couldn’t do much with it.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 1, 2009 at 8:31 pm](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41307)
+
+**jen**
+
+					
+
+		
+
+I can’t believe you have the stomach to read these people. wookie? sasquatch? baboon? holy crap. of course they love Prince Philip.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 1, 2009 at 9:03 pm](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41325)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+According to the Guardian, Philip asked the Obamas [how to tell the various G20 leaders apart](http://www.guardian.co.uk/world/2009/apr/02/g20-monarchy). I don’t think we need to worry over-much about _his_ being offended.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 1:04 am](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41426)
+
+**dave**
+
+					
+
+		
+
+Prince Philip is teh MAN… Honestly, a German Greek who thinks foreigners are funny; you can’t pay for irony like that.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 5:13 am](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41468)
+
+**dan**
+
+					
+
+		
+
+I can understand their concern. With the Rodgers and Hammerstein ipod, the Obamas have manifestly failed to match Gerald Ford’s standard during the bicentennial when he treated the Queen to Captain and Tennille’s aesthetically unparalleled “Muskrat Love.” Clearly the consequences of postmodern polluting of the canon.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 6:15 am](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41483)
+
+**Ben Alpers**
+
+					
+
+		
+
+I seem to remember that last year a lot of us (i.e. commenters on progressive blogs) were cheerily looking forward to wingnuts’ heads esploding if Obama won.
+
+Well he did and, predictably, they are.
+
+Somehow it’s less fun than I had hoped. Their racism continues to be more disturbing than amusing.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 6:39 am](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41489)
+
+**[dana](https://edgeofthewest.wordpress.com)**
+
+					
+
+		
+
+I’m mostly bewildered at the faux-prudish stance they seem to be adopting.  Bare arms! I thought I saw a _shoulder_!
+
+(The racism, unfortunately, isn’t all that surprising.  holy crap, Michelle Obama is _black_?)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 6:41 am](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41490)
+
+**Michael Elliott**
+
+					
+
+		
+
+I agree with Ben.  Somehow, it’s more noxious to me when they start talking about physical appearance.  These comments make me want to throw up.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 10:40 am](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41534)
+
+**[kate](http://www.kateaNDpansylive.blogspot.com)**
+
+					
+
+		
+
+long time lurker and American living in the UK, when I met Prince Philip he accused me of embezzlement. And I was in no means the worst insulted in that brief stop on his tour that day.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 11:04 am](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41536)
+
+**ben**
+
+					
+
+		
+
+Are you an embezzler?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 11:18 am](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41542)
+
+**[JRoth](http://anarchiblog.blogspot.com/)**
+
+					
+
+		
+
+Well that’s hardly the point, is it, ben? I mean, certain things simply aren’t _said_.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 1:09 pm](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41560)
+
+**sharon**
+
+					
+
+		
+
+_the Queen is a cultural icon of taste and sophistication_
+
+I know this post is dated 1 April, but that’s just too silly, as any fule do know who’s seen Lizzie’s taste in (1) frocks and (2) dogs.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 1:13 pm](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41561)
+
+**iain**
+
+					
+
+		
+
+Over here in the UK the meeting has been reported as being marred by Prince Philip’s gaffes in speaking to the Obamas, rather than the reverse.  Everything I’ve seen about the ‘social’ aspects of their various meetings has been complimentary towards them.  British mothers-in-law are more likely to be saying ‘what lovely people’ as far as I can tell.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 2, 2009 at 6:04 pm](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41622)
+
+**oudemia**
+
+					
+
+		
+
+Yeah, I agree with Iain. The British press coverage is along the lines of “The Obamas are so enticing the Queen just can’t help but break protocol by touching them!” Of course, that same story here is, “OMG Michelle O. broke protocol and touched the Queen!”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 3, 2009 at 8:26 am](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41734)
+
+**Darryl Cox**
+
+					
+
+		
+
+I hope the Queens’ iPod included songs by Rodgers and Hart as well.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[April 3, 2009 at 11:59 am](https://edgeofthewest.wordpress.com/2009/04/01/he-has-a-habit-of-saying-things-like-youre-all-a-bunch-of-bastards/#comment-41762)
+
+**[kate](http://www.kateaNDpansylive.blogspot.com)**
+
+					
+
+		
+
+I work for  a lottery distributor. We give money away to good causes.  
+
+“But you keep some back. I mean we would all would keep some back for ourselves.”
+
+The visit didn’t last 30 minutes and that was not the only one insulted in that visit.
+
+But I’d love to compare notes with Michelle on the queen who I think has the eyes of serial killer.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

@@ -74,3 +74,68 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 2 comments
+
+		
+
+	
+
+		
+
+[December 22, 2008 at 5:01 am](https://edgeofthewest.wordpress.com/2008/12/21/combobulated-being-a-play-in-which-we-laugh-at-arrogant-undergraduates/#comment-30660)
+
+**Matt W**
+
+					
+
+		
+
+“Disbobulated” would describe a watch that had lost its bobulates. If the bobulates are merely out of sync, i.e., not together, the watch is discombobulated. I don’t understand the problem.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[December 22, 2008 at 4:00 pm](https://edgeofthewest.wordpress.com/2008/12/21/combobulated-being-a-play-in-which-we-laugh-at-arrogant-undergraduates/#comment-30724)
+
+**[Buster](http://moscowthroughbrowneyes.blogspot.com)**
+
+					
+
+		
+
+Random observation: the story of your rabbi leading you astray reminds me of my father and the story of my ENTIRE elementary and secondary education.  My father, a good Indian immigrant with aspirations for his son to become important, checked my homework every night (it was required to be completed by 8PM, at which point “free study” was allowed).  I still recall a worksheet from first grade on contractions.  The left column listed a series of modals with “not”, “can not,” “do not, “will not,” etc.  The right column was to be filled out by the student with the appropriate contraction, “can’t,” “don’t,” “won’t,” etc.  All of which I had down and filled out.  Only to be corrected by my father, the product of a proper colonial British education, “You may use such contractions verbally, but never in writing.”  I was thus asked to go back and rewrite “can not” –&gt; “cannot,” “do not” –&gt; “do not,” “will not” –&gt; “will not.”  The teacher was dumbfounded and marked me down, despite my protests.
+
+Later teachers were similarly confused by my usage of words like amidst, amongst, and whilst, not to mention the fact that most of my papers (some snuck by Pops) pushed the punctuation outside of the inverted commas, as they were called in my home.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

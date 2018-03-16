@@ -55,3 +55,158 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 6 comments
+
+		
+
+	
+
+		
+
+[November 10, 2009 at 6:42 pm](https://edgeofthewest.wordpress.com/2009/11/10/the-cost-of-freedom/#comment-55205)
+
+**md 20/400**
+
+					
+
+		
+
+Regarding costs (not of freedom necessarily), thank you for the poppies.  Time to listen to Britten’s requiem again.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 10, 2009 at 7:31 pm](https://edgeofthewest.wordpress.com/2009/11/10/the-cost-of-freedom/#comment-55206)
+
+**[eric](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+_thank you for the poppies_
+
+Sure.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 10, 2009 at 11:37 pm](https://edgeofthewest.wordpress.com/2009/11/10/the-cost-of-freedom/#comment-55209)
+
+**yoyo**
+
+					
+
+		
+
+I saw an advert for Boeing today. It was all about how great our men and women who fight wars are.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2009 at 12:11 am](https://edgeofthewest.wordpress.com/2009/11/10/the-cost-of-freedom/#comment-55210)
+
+**DaKooch**
+
+					
+
+		
+
+“- they’re merely taking a lemon (the fall of the Berlin Wall) and learning how to make extremely profitable lemonade (the first Gulf War).”
+
+This is just hyperbole, right – and not very good hyperbole at that.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2009 at 5:50 am](https://edgeofthewest.wordpress.com/2009/11/10/the-cost-of-freedom/#comment-55217)
+
+**Charlieford**
+
+					
+
+		
+
+Thanks for this.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 12, 2009 at 4:45 am](https://edgeofthewest.wordpress.com/2009/11/10/the-cost-of-freedom/#comment-55258)
+
+**jhm**
+
+					
+
+		
+
+Was this drop in price when Mr. Cheney acquired his shares?  It seems around this time he initiated the study (undertaken by Haliburten) into whether it would be better if Haliburten did more contracting work for DoD.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

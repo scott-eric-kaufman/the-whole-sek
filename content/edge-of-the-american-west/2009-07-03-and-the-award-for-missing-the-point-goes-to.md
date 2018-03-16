@@ -84,3 +84,142 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 5 comments
+
+		
+
+	
+
+		
+
+[July 3, 2009 at 5:09 pm](https://edgeofthewest.wordpress.com/2009/07/03/and-the-award-for-missing-the-point-goes-to/#comment-49011)
+
+**Anderson**
+
+					
+
+		
+
+Interesting, esp. alongside Perlstein’s _Nixonland_, where one gets the impression that Nixon feared being out-Nixoned by Reagan.  
+
+While I’m the last to exaggerate Reagan’s intellect, I do suspect that Nixon was jealous of Reagan’s charisma, and thus prone to fall back on “well but I’m so much smarter than he is.”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 4, 2009 at 7:42 am](https://edgeofthewest.wordpress.com/2009/07/03/and-the-award-for-missing-the-point-goes-to/#comment-49023)
+
+**JPool**
+
+					
+
+		
+
+This is nice:  
+
+_cunning use of italics_  
+
+must remember to steal.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 4, 2009 at 9:27 am](https://edgeofthewest.wordpress.com/2009/07/03/and-the-award-for-missing-the-point-goes-to/#comment-49027)
+
+**stevenattewell**
+
+					
+
+		
+
+You know, I think Oliver Stone was actually being kind to Reagan. “Dumb son of a bitch” just sounds prosaic, Nixon being Nixon, hating on everyone around him. But “a man of limited mental capacity” is so clinical, so coolly disparaging that it makes Reagan below even contempt, a kind of shambling Anamtronics man.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 4, 2009 at 11:39 am](https://edgeofthewest.wordpress.com/2009/07/03/and-the-award-for-missing-the-point-goes-to/#comment-49032)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+Reality: inconvenient for partisans.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 4, 2009 at 9:08 pm](https://edgeofthewest.wordpress.com/2009/07/03/and-the-award-for-missing-the-point-goes-to/#comment-49057)
+
+**Jackmormon**
+
+					
+
+		
+
+_his brains are negligible_  
+
+_a man of limited mental capacity_
+
+Are they talking about Bertram Wooster?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

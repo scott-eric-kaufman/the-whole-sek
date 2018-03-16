@@ -35,12 +35,248 @@ By which I don’t mean anything like “I sat here trying to think what would h
 
 ### Like this:
 
+
 Like
 
  
 Loading...
 
+
 []()
 
 ### _Related_
 
+
+	
+
+* * *
+
+		
+
+## 9 comments
+
+		
+
+	
+
+		
+
+[October 8, 2008 at 7:54 pm](https://edgeofthewest.wordpress.com/2008/10/08/this-nicholas-sandworm-anon-let-flee-a-fart-as-gret-as-it-hadde-ben-a-thundir-dent/#comment-22924)
+
+**[dana](https://edgeofthewest.wordpress.com)**
+
+					
+
+		
+
+Hal yawm!
+
+According to the prof I had for the ridiculously enjoyable science fiction class I took in college, Herbert really wanted to make the ecology of Arrakis believable.  He thought the best sci-fi part (as opposed to fantasy) of _Dune_ was the appendix at the end, where the planet is described by the Imperial planetologist.  
+
+I doubt that took most of the years of research, though.  Probably not so much spent on the songs, either.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 9, 2008 at 6:51 am](https://edgeofthewest.wordpress.com/2008/10/08/this-nicholas-sandworm-anon-let-flee-a-fart-as-gret-as-it-hadde-ben-a-thundir-dent/#comment-22934)
+
+**[CJS](http://coyotebanjo.blogspot.com)**
+
+					
+
+		
+
+Dunno what qualifies as “research” for a novel either–don’t have any conception of what makes a “novel”, for that matter–but surely what of the strongest, most consistent, most profound (and most grounded in observed reality) aspects of the Dune series is Fremen culture, and the degree to which it’s grounded in the folkways, sociology, and cosmology of Bedouin culture? It was always the most fascinating and persuasive part of the novel for me. So maybe the \*human\* type of ecology is the most “believable”?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 9, 2008 at 9:32 am](https://edgeofthewest.wordpress.com/2008/10/08/this-nicholas-sandworm-anon-let-flee-a-fart-as-gret-as-it-hadde-ben-a-thundir-dent/#comment-22940)
+
+**Janus Daniels**
+
+					
+
+		
+
+I read Dune, I think, before my teens, and already felt frustrated with its triumphant ignorance of the square cube rule.  
+
+(As applied to muscle, the square cube rule dictates that as a muscle increases in size, the cube of the increase dictates its mass, quickly overwhelming the square of the increase that dictates the strength of muscle, leading to giant worms that could scarcely twitch… let alone burrow under sand that also obeyed the square cube rule.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 9, 2008 at 12:44 pm](https://edgeofthewest.wordpress.com/2008/10/08/this-nicholas-sandworm-anon-let-flee-a-fart-as-gret-as-it-hadde-ben-a-thundir-dent/#comment-22955)
+
+**Colin**
+
+					
+
+		
+
+Can’t get enough giant physics-defying worms: [http://www.imdb.com/title/tt0100814/](http://www.imdb.com/title/tt0100814/)  But if you’re gonna read medieval romance, why not Walter Scott?  I could never see what Herbert added to the genre.  Aside from worms.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 9, 2008 at 11:01 pm](https://edgeofthewest.wordpress.com/2008/10/08/this-nicholas-sandworm-anon-let-flee-a-fart-as-gret-as-it-hadde-ben-a-thundir-dent/#comment-22993)
+
+**Brad**
+
+					
+
+		
+
+_I could never see what Herbert added to the genre. Aside from worms._
+
+I have wrestled with this.  I think that the best answer is, “the seven pillars of wisdom but with giant worms.”
+
+I reread Dune pretty recently.  It is a decent adventure story, with lots of backstabbing politics which can fun.  I find it odd that people think that Dune is deep, but then, I find it odd that people disclaim that SF is the “literature of ideas.”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 9, 2008 at 11:26 pm](https://edgeofthewest.wordpress.com/2008/10/08/this-nicholas-sandworm-anon-let-flee-a-fart-as-gret-as-it-hadde-ben-a-thundir-dent/#comment-22994)
+
+**Colin**
+
+					
+
+		
+
+When I was a kid I loved SF short stories.  And folks like Isaac Asimov had ideas.  One idea, one story.  Next idea, next story.  Maybe they weren’t deep ideas, but when you’re 12 you appreciate a quick payoff.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 10, 2008 at 8:56 am](https://edgeofthewest.wordpress.com/2008/10/08/this-nicholas-sandworm-anon-let-flee-a-fart-as-gret-as-it-hadde-ben-a-thundir-dent/#comment-23021)
+
+**ajay**
+
+					
+
+		
+
+“I find it odd that people think that Dune is deep, but then, I find it odd that people disclaim that SF is the “literature of ideas.”
+
+Do you mean “disclaim” or “claim”?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 10, 2008 at 9:41 am](https://edgeofthewest.wordpress.com/2008/10/08/this-nicholas-sandworm-anon-let-flee-a-fart-as-gret-as-it-hadde-ben-a-thundir-dent/#comment-23024)
+
+**[Cosma](http://bactra.org/weblog/)**
+
+					
+
+		
+
+If I recall correctly\*, Scott has the direction of one of the causal arrows reversed: prohibition of machines-which-replace-people is basic, and feudalism follows from that, both as a world-building point and (here I’m even fuzzier) even in the understanding of the characters.  The social structure in Dune is supposed to be deliberately arrested, since mobility and competition would create the incentives to build AIs again.
+
+I won’t try to defend the geochemistry, however.
+
+\*: I last read the book during the golden age of science function (i.e., when I was 14).
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 10, 2008 at 5:59 pm](https://edgeofthewest.wordpress.com/2008/10/08/this-nicholas-sandworm-anon-let-flee-a-fart-as-gret-as-it-hadde-ben-a-thundir-dent/#comment-23068)
+
+**Brad**
+
+					
+
+		
+
+Crap, to answer ajay’s question,  I meant “claim” not “disclaim”.  I have no idea where that came from but, by now, people have probably figured out that I usually spend 30 seconds on my comments (write once, read never….)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

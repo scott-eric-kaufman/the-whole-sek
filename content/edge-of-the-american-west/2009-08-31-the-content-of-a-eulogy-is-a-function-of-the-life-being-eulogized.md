@@ -21,7 +21,6 @@ If I spent my life rewriting the tax code, and if, on my deathbed, the rewriting
 
 Finally, to [those](http://patterico.com/2009/08/29/words-fail/#comment-546945) who [claim](http://patterico.com/2009/08/29/words-fail/#comment-546960) that no Republican would ever use someone’s funeral as a platform to forward their own agenda, I remind them of the [law and order politicking](http://www.presidency.ucsb.edu/ws/index.php?pid=3397) of Nixon at J. Edgar Hoover’s funeral:
 
-
 The profound principles associated with his name will not fade away. Rather, I would predict that in the time ahead those principles of respect for law, order, and justice will come to govern our national life more completely than ever before. Because the trend of permissiveness in this country, a trend which Edgar Hoover fought against all his life, a trend which was dangerously eroding our national heritage as a law-abiding people, is now being reversed.
 
 The American people today are tired of disorder, disruption, and disrespect for law. America wants to come back to the law as a way of life, and as we do come back to the law, the memory of this great man, who never left the law as a way of life, will be accorded even more honor than it commands today.
@@ -50,12 +49,216 @@ I’m sure conservatives will point out that it’s not the same, because like t
 
 ### Like this:
 
+
 Like
 
  
 Loading...
 
+
 []()
 
 ### _Related_
 
+
+	
+
+* * *
+
+		
+
+## 8 comments
+
+		
+
+	
+
+		
+
+[August 31, 2009 at 5:39 pm](https://edgeofthewest.wordpress.com/2009/08/31/the-content-of-a-eulogy-is-a-function-of-the-life-being-eulogized/#comment-52172)
+
+**rea**
+
+					
+
+		
+
+_no debate of national importance abuzz when Nixon delivered his encomium to law and order_
+
+Don’t forget, when Nixon spoke of “law and order,” what he meant was putting the blacks and the peacenik hippies in back their proper places, by force.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 31, 2009 at 6:53 pm](https://edgeofthewest.wordpress.com/2009/08/31/the-content-of-a-eulogy-is-a-function-of-the-life-being-eulogized/#comment-52173)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+By the Right’s New Rules of Debate, you saying that makes you a racist.  To claim that good, simple words like “law” and “order” might could contain some subtext only proves that you put that subtext there, and that it’s racist.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 31, 2009 at 7:00 pm](https://edgeofthewest.wordpress.com/2009/08/31/the-content-of-a-eulogy-is-a-function-of-the-life-being-eulogized/#comment-52175)
+
+**Malaclypse**
+
+					
+
+		
+
+_By the Right’s New Rules of Debate, you saying that makes you a racist._
+
+You calling these rules “new” implies that they were not given by God unto Man, and means that _you_ are the real racist.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 31, 2009 at 7:02 pm](https://edgeofthewest.wordpress.com/2009/08/31/the-content-of-a-eulogy-is-a-function-of-the-life-being-eulogized/#comment-52176)
+
+**Charlieford**
+
+					
+
+		
+
+You saying “real racist” implies a belief in objective truth, the ultimate ur-oppression.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 31, 2009 at 7:13 pm](https://edgeofthewest.wordpress.com/2009/08/31/the-content-of-a-eulogy-is-a-function-of-the-life-being-eulogized/#comment-52177)
+
+**politicalfootball**
+
+					
+
+		
+
+In death, William F. Buckley never got the recognition he earned. This was a guy who stood athwart history and shrieked “stop” to the civil rights movement. Not to mention his support for tattooing the buttocks of AIDS victims. And yet, when it came time to deliver his eulogy, everybody wanted to talk about stuff that was peripheral to his life’s work.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 31, 2009 at 7:18 pm](https://edgeofthewest.wordpress.com/2009/08/31/the-content-of-a-eulogy-is-a-function-of-the-life-being-eulogized/#comment-52178)
+
+**[Jason B.](http://notnotnegative.blogspot.com)**
+
+					
+
+		
+
+The shitstorm surrounding Paul Wellstone’s funeral still baffles me. At the time I was too bereft at Wellstone’s death to act out much, but still . . .
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 31, 2009 at 8:39 pm](https://edgeofthewest.wordpress.com/2009/08/31/the-content-of-a-eulogy-is-a-function-of-the-life-being-eulogized/#comment-52181)
+
+**herbert browne**
+
+					
+
+		
+
+\*..and as we do come back to the law, the memory of this great man, who never left the law as a way of life…\*
+
+Sonya Henie’s Tu-tu!  ^..^
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 2, 2009 at 12:37 pm](https://edgeofthewest.wordpress.com/2009/08/31/the-content-of-a-eulogy-is-a-function-of-the-life-being-eulogized/#comment-52235)
+
+**D. Watson**
+
+					
+
+		
+
+Excellent commentary. Thank you.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

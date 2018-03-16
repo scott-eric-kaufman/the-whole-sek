@@ -40,3 +40,138 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 5 comments
+
+		
+
+	
+
+		
+
+[February 7, 2009 at 5:04 am](https://edgeofthewest.wordpress.com/2009/02/06/laugh-in-your-natural-manner-do-not-be-excessive/#comment-33686)
+
+**AndrewMc**
+
+					
+
+		
+
+I can’t watch. It makes me queasy.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 7, 2009 at 5:25 am](https://edgeofthewest.wordpress.com/2009/02/06/laugh-in-your-natural-manner-do-not-be-excessive/#comment-33688)
+
+**Kevin**
+
+					
+
+		
+
+I believe the only proper response to PJTV is [this clip](http://www.youtube.com/watch?v=1ytCEuuW2\_A).
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 7, 2009 at 9:41 am](https://edgeofthewest.wordpress.com/2009/02/06/laugh-in-your-natural-manner-do-not-be-excessive/#comment-33695)
+
+**tf smith**
+
+					
+
+		
+
+Fish, meet barrel.
+
+ Safire and Buckley they are not…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 8, 2009 at 5:25 am](https://edgeofthewest.wordpress.com/2009/02/06/laugh-in-your-natural-manner-do-not-be-excessive/#comment-33716)
+
+**kid bitzer**
+
+					
+
+		
+
+“every ounce of the fiber of his being”
+
+interesting. in the version of this idiom i’ve heard–“every fibre of his being”–the word “fibre” is a count-noun.
+
+here it seems to be a mass-noun (or, digestively speaking, a bulk-noun).
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 8, 2009 at 3:56 pm](https://edgeofthewest.wordpress.com/2009/02/06/laugh-in-your-natural-manner-do-not-be-excessive/#comment-33787)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+I was less concerned with count nouns than seeming suitably overwrought.  I’d originally written “110 percent of every ounce of the fiber of his being,” but that seemed a little too much.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

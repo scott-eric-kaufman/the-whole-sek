@@ -27,12 +27,56 @@ However, if we were in McCain’s camp, this would be proof positive that Ayers 
 
 ### Like this:
 
+
 Like
 
  
 Loading...
 
+
 []()
 
 ### _Related_
 
+
+	
+
+* * *
+
+		
+
+## 1 comment
+
+		
+
+	
+
+		
+
+[October 7, 2008 at 11:27 pm](https://edgeofthewest.wordpress.com/2008/10/07/grammar-is-a-harsh-mistress/#comment-22884)
+
+**kid bitzer**
+
+					
+
+		
+
+in other news, tom friedman has solidified his position at the cutting edge of political thought by penning a passionate screed in which he questions sarah palin’s qualifications to be president.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

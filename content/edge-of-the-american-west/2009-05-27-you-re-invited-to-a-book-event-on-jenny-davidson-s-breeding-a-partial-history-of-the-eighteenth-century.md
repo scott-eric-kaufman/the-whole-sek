@@ -23,15 +23,79 @@ I’m contributing a couple of posts, all of which relate to what [Eric said abo
 
 ### Like this:
 
-
 Like
 
  
 Loading...
 
-
 []()
 
 ### _Related_
 
+	
 
+* * *
+
+		
+
+## 2 comments
+
+		
+
+	
+
+		
+
+[May 26, 2009 at 7:11 pm](https://edgeofthewest.wordpress.com/2009/05/26/youre-invited-to-a-book-event-on-jenny-davidsons-breeding-a-partial-historyof-the-eighteenth-century/#comment-46978)
+
+**[Daniel](http://www.danielstrauss.wordpress.com)**
+
+					
+
+		
+
+Her book about an alternate reality 1930s sounds fascinating.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[May 27, 2009 at 9:22 pm](https://edgeofthewest.wordpress.com/2009/05/26/youre-invited-to-a-book-event-on-jenny-davidsons-breeding-a-partial-historyof-the-eighteenth-century/#comment-47011)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+I’m sure I don’t have anything worth saying at the Valve, but I’ve been reading as much as I can via GBook (can’t abbreviate that any further without getting into irrelevant trouble) and ran across what may be my favorite line of the week: “Dryden’s never-performed musical adaptation of _Paradise Lost, the State of Innocence and Fall of Man_ (1677)” (p. 60)
+
+The mind boggles. 
+
+The book is fascinating: I can see why, Scott, you’ve done the symposium, and I’ll have to go over there and see what you’ve said about it later.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

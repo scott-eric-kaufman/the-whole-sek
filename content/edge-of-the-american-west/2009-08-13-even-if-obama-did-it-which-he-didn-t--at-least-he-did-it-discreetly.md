@@ -34,3 +34,88 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 3 comments
+
+		
+
+	
+
+		
+
+[August 13, 2009 at 8:37 pm](https://edgeofthewest.wordpress.com/2009/08/13/even-if-obama-did-it-which-he-didnt-at-least-he-did-it-discreetly/#comment-51142)
+
+**[Seth](http://enikrising.blogspot.com)**
+
+					
+
+		
+
+Bert’s eyebrows are particularly damning.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 13, 2009 at 9:49 pm](https://edgeofthewest.wordpress.com/2009/08/13/even-if-obama-did-it-which-he-didnt-at-least-he-did-it-discreetly/#comment-51143)
+
+**Mo MacArbie**
+
+					
+
+		
+
+Are?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 16, 2009 at 3:47 pm](https://edgeofthewest.wordpress.com/2009/08/13/even-if-obama-did-it-which-he-didnt-at-least-he-did-it-discreetly/#comment-51236)
+
+**Urk**
+
+					
+
+		
+
+Eyebrow(s)?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

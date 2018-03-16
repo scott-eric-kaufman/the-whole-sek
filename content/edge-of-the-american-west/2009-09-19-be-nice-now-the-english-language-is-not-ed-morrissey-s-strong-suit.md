@@ -89,3 +89,752 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 28 comments
+
+		
+
+	
+
+		
+
+[September 19, 2009 at 4:52 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53293)
+
+**Jim Anderson**
+
+					
+
+		
+
+Dear SEK,  
+
+I advise an even more careful reading of the quote from President Obama which clearly implies that he and Michelle were worried about whether the meningitis had caused their daughter permanent damge.   One doesn’t worry about permanent damage unless one HAS meningitis.  Please note this portion of President Obama’s quote:  
+
+ “And we had to have a spinal tap administered and she ended up being in the hospital for three or four days.  And it was touch and go, we didn’t know whether she’d be permanently affected by it.  It was the nurses who walked us through what was happening and made sure that Sasha was okay.”  
+
+     Permanently affected by ‘it?’ By what?  Certainly not by the spinal tap.  One knows the next day if damage has occurred from that procedure.  I think your argument is dead on the table in the OR.  President Obama, I believe, clearly intended for us to believe that his daughter had suffered meningitis and was recovering in the hospital.  
+
+Sincerely,  
+
+Jim Anderson
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 5:08 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53294)
+
+**ben**
+
+					
+
+		
+
+Dear SEK,
+
+Who’s Ed Morrissey and who cares?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 5:19 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53295)
+
+**drip**
+
+					
+
+		
+
+Dear SEK, 
+
+You are the Jacques Costeau of the internets — going where no man has gone before. Now you can parse Jim Anderson’s belief about Barak Obama’s clear implication of his and his wife’s concerns about the diagnosis that their doctor made. Good luck, sir.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 5:23 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53296)
+
+**bailey**
+
+					
+
+		
+
+This is quite possibly the stupidest dispute ever.  What makes it even stupider is that Michelle Obama didn’t say that Sasha didn’t have meningitis, the New York Times did.  Here is what Mrs. Obama said:  [http://www.whitehouse.gov/the\_press\_office/Remarks-by-the-First-Lady-on-What-Health-Insurance-Reform-Means-for-Women-and-Families/](http://www.whitehouse.gov/the\_press\_office/Remarks-by-the-First-Lady-on-What-Health-Insurance-Reform-Means-for-Women-and-Families/).
+
+Clearly, we need the Obamas to release Sasha’s records so we can get to the bottom of this!  Also, was she 3 months old or 4 months old?  Why can’t they get their stories straight?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 5:25 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53297)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+I’m going to crosspost my comment from Acephalous:
+
+First, I want to emphasize what you said about that Council of Conservative Citizens link: That ranks with the most gut-wrenchingly racist and shocking things I’ve ever seen. Do NOT click it unless you’re prepared for something both physically and psychically disgusting.
+
+Second, I thought the comment thread after Morissey’s cautionary post was fascinating for the vitriol directed at Little Green Footballs and its proprietor Charles Johnson. Apparently the racist stuff is their fault, though why LGF would want to, or even think to, sabotage Hot Air comment threads by making HA look bad to liberals is unclear to me. LGF trolls are apparently worse than leftist ones, though there were a few swats at purported liberal sock-puppet trollery (though, since they apparently consider LGF to be a leftist site now, it’s not clear they weren’t still talking about LGF).
+
+Finally, though Morissey issued his caution, none of the comments you linked to have been removed at this point.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 5:28 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53298)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+_One doesn’t worry about permanent damage unless one HAS meningitis._
+
+Oh, come on: the child was in the hospital for days with a high fever. One who has children _always_ worries about permanent damage in the case of a serious illness, whether or not it’s been correctly diagnosed. I don’t know what the timeline is for a meningitis diagnosis, thanks be to god, but there are two possibilities: it’s positive, which is terrifying; it’s negative, which means _you still don’t know what’s wrong with your seriously ill child_, which is devastating.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 5:34 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53299)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+Jim Anderson:
+
+_Permanently affected by ‘it?’_
+
+That would be the meningitis her pediatrician had diagnosed her as having.  Turns out the pediatrician was wrong, but that can only be determined by a spinal tap, which—here’s a bit I didn’t include, but which is now relevant:
+
+To Morrissey’s commenters who say things like [this](http://hotair.com/archives/2009/09/19/obama-fudging-another-health-care-horror-story/comment-page-2/#comment-2732646):
+
+A diagnosis of meningitis followed by 3 or 4 days of treatment versus a diagnosis that she didn’t have meningitis. Classic leftist non-think.
+
+My only response is that Sasha was born in 2001, at which time she had a spinal tap because the Xpert EV test, the results of which are delivered “[in less than two and a half hours compared to up to three days for standard culture testing](http://www.medicalnewstoday.com/articles/65556.php) [of cerebrospinal fluid],” was not approved by the FDA until 2007.  This commenter seems to think that the best course of treatment for a baby suspected of having meningitis while waiting for the results from the standard culture testing—the “three or four days in the hospital” mentioned by the President—would be to do nothing in the interim.
+
+The worrying they were doing, about the permanent damage?  It took place _in the interim_, while the future President and First Lady were waiting for the results of the spinal tap.  
+
+Put differently: if you had a child who’d undergone a painful, dangerous test for a potentially lethal disease and was still very, very sick, would you fret at all while you waited for the test results to return?  If not, I think that’d make you an historically awful parent.
+
+ben:
+
+_Who’s Ed Morrissey and who cares?_
+
+Sometime contributor to FOXNews who runs one of the largest and most influential conservative clearing-houses online.
+
+drip:
+
+_You are the Jacques Costeau of the internets — going where no man has gone before._ 
+
+I do my best . . .
+
+_Now you can parse Jim Anderson’s belief about Barak Obama’s clear implication of his and his wife’s concerns about the diagnosis that their doctor made._
+
+. . . but sometimes it’ll never be enough.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 5:51 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53300)
+
+**drip**
+
+					
+
+		
+
+Sail Calypso.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 6:30 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53301)
+
+**TF Smith**
+
+					
+
+		
+
+I’m waiting for someone’s sister to be accused of being a thespian…
+
+ HL Mencken, a nation turns its lonely eyes to you…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 7:04 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53305)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+(_For whatever reasons, there are [more crazies at my place](http://acephalous.typepad.com/acephalous/2009/09/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-re.html?cid=6a00d8341c2df453ef0120a5da4b9f970c#comment-6a00d8341c2df453ef0120a5da4b9f970c), if that’s your bag_.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 7:54 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53307)
+
+**alanpeppersforcongress**
+
+					
+
+		
+
+The use of a spinal tap to rule out meningitis is a standard procedure for young children with high fever. No qualified doctor will make a real diagnosis of meningitis before this test is performed. I understand the fear and worry that accompanies this procedure having gone through it with my daughter. I’m not going to say that Obama lied but he twisted the facts around to make the point that he wanted.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 8:04 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53308)
+
+**[Gary Farber](http://amygdalagf.blogspot.com)**
+
+					
+
+		
+
+Curiously enough, I was highly ill for a number of months in early 1986, and I went through a series of tentative diagnoses as I proceeded from test to test, and specialist to specialist.
+
+One of them was — and here’s what’s _really crazy_, which is that these were just _tentative opinions_ by doctors of what _might_ be wrong with me, with _further_ determinations being made by _continuing the process of testing and refining a diagnosis_ until eventually a _conclusive determination_ and _final diagnosis_ could be made — was — hold your breath everyone!  — possible viral meningitis.
+
+And one of the tests I had was a spinal tap!
+
+Which, not incidentally, I had a somewhat atypical response to, of the sort that only about 3%!o(MISSING)f subjects of a spinal tap have, which is that I got to lie about in extreme pain for three days in more or less a non-stop back spasm afterwards; I was so loaded with pain-killers to treat this that I drifted in and out of consciousness for three days.
+
+Eventually, after _months_ of further testing, it turned out I didn’t have meningitis!  Or any of a series of other life-threatening ailments that doctors had temporarily thought I _might possibly have_.
+
+But apparently I never should have been worried at all.
+
+Good to know.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 8:06 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53309)
+
+**[Gary Farber](http://amygdalagf.blogspot.com)**
+
+					
+
+		
+
+Of course, if I relate my anecdote to anyone, I’ll just be twisting the facts.  Turns out I’ve been doing that for two decades!
+
+I’m so ashamed of myself now.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 9:05 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53314)
+
+**JPool**
+
+					
+
+		
+
+The important thing is this: nothing is ever a slip of the tongue.  It is always a distortion which is a twisting of the facts which is a lie. That’s what’s important.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 20, 2009 at 7:27 am](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53321)
+
+**TF Smith**
+
+					
+
+		
+
+The better half and I have a little girl who is now 7; she came along sort of late in life for both of us, to the “advanced maternal age” point…not surprisingly, various and sundry tests and bed rest for two months prior to delivery were the directives, and we followed through. 
+
+ At one point in the second trimester, there was a considerd opinion (diagnosis?) from a qualified medical professional that she would not be born healthy and we consider ending the pregnancy. For a variety of reasons, we sought out a second opinion and another qualified medical professional suggested otherwise. After she was born, she needed two operations, and there are few things that tears one up more than handing an infant over for surgery.
+
+ All that being said, today she is a very happy, healthy, and smart 2nd-grader, who we are thankful for every day of our lives.
+
+ Now, if I were to relate that story as part of making a larger point about, oh, I dunno, various and sundry public policy intersections with private life, but I happened to state something that did not gibe with an audience members’ understanding (“hey, you got THREE opinions!” or “It was the FIRST trimester!” or “the bed rest was only for six weeks, not two months”) I, personally, would tell said audience member they might want to look up the definitions of forests and trees…
+
+ And then I would go and hug my daughter.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 20, 2009 at 7:45 am](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53323)
+
+**Jay C**
+
+					
+
+		
+
+_Either Mr. Morrissey and his commenters don’t know from logic or the English language, or they are being deliberately dense to score the cheapest of political points_
+
+OK, I’ll go for the latter…….
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 20, 2009 at 11:01 am](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53330)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+_Of course, if I relate my anecdote to anyone, I’ll just be twisting the facts. Turns out I’ve been doing that for two decades!_
+
+You know what’s really sad?  _My mother_ related [an anecdote _about me_](http://acephalous.typepad.com/acephalous/2009/09/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-re.html?cid=6a00d8341c2df453ef0120a583f43f970b#comment-6a00d8341c2df453ef0120a583f43f970b) to twist the facts _against me_.  I’m not sure where this fits in the annals of odd, but it’s got to be somewhere.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 20, 2009 at 11:01 am](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53331)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+_No qualified doctor will make a real diagnosis of meningitis before this test is performed. I understand the fear and worry that accompanies this procedure having gone through it with my daughter._
+
+Define “real diagnosis,” please.  It’s like these people have never seen a _House_.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 20, 2009 at 12:00 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53335)
+
+**[Gary Farber](http://amygdalagf.blogspot.com)**
+
+					
+
+		
+
+“My mother related an anecdote about me to twist the facts against me.”
+
+I considered comment on that, but decided not to interject myself in someone’s family dynamics.
+
+But since you mention it again, I’ll say that in some nine years of reading blogs, I’ve never befre seen anyone write “MY MOTHER, THE TROLL.”
+
+“I’m not sure where this fits in the annals of odd, but it’s got to be somewhere.”
+
+Don’t you have a therapist who is also your Facebook Friend?
+
+More helpfully, my opinion is that you’ve got a great pitch for a sitcom in those four words.
+
+They put “[My Mother, The Car](http://www.tvparty.com/recmothercar.html)” on the air, you know, and I’ve always wanted to hear a tape of how _that_ pitch meeting went.
+
+I’m thinking maybe Fran Drescher in the role of the mother.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 20, 2009 at 12:24 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53337)
+
+**john theibault**
+
+					
+
+		
+
+_I’m waiting for someone’s sister to be accused of being a thespian…_
+
+Well, SEK is a confirmed pedagogue. It wouldn’t surprise if there was some thespianism in the family.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 20, 2009 at 1:06 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53338)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+_Well, SEK is a confirmed pedagogue. It wouldn’t surprise if there was some thespianism in the family._
+
+Is that better or worse than being a classicist?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 20, 2009 at 1:09 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53339)
+
+**TF Smith**
+
+					
+
+		
+
+Worse, in Fresno. Definitely.
+
+ I don’t think it’s a probblem in Irvine, though…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 20, 2009 at 2:13 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53341)
+
+**[Gary Farber](http://amygdalagf.blogspot.com)**
+
+					
+
+		
+
+SEK [is an extrovert](http://books.google.com/books?id=61MBDLKSOm8C&pg=PA47&lpg=PA47&dq=thespian+%!G(MISSING)eorge+Smathers%!+(MISSING)%!C(MISSING)laude+Pepper%!&(MISSING)source=bl&ots=qMHoGomX44&sig=gn2oBNcI4JNncKA7tiLJH\_90c5I&hl=en&ei=Xpq2SveSEtiw8QaO-MWTDw&sa=X&oi=book\_result&ct=result&resnum=3#v=onepage&q=thespian%22George%!S(MISSING)mathers%20%!C(MISSING)laude%!P(MISSING)epper%!&(MISSING)f=false) and advocates [matriculation and mastication](http://boards.straightdope.com/sdmb/archive/index.php/t-155203.html).
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 20, 2009 at 2:17 pm](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53342)
+
+**[Gary Farber](http://amygdalagf.blogspot.com)**
+
+					
+
+		
+
+[More](http://boards.straightdope.com/sdmb/showthread.php?t=17144&highlight=claude), if anyone around here practices _history_. (Tammi Terrell post.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 21, 2009 at 3:07 am](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53351)
+
+**dave**
+
+					
+
+		
+
+Be careful with words like pedagogue; seriously, that stuff’ll get you lynched.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 21, 2009 at 9:01 am](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53359)
+
+**Anderson**
+
+					
+
+		
+
+_No qualified doctor will make a real diagnosis of meningitis before this test is performed._ 
+
+Oh, good lord.  The story is being told by Sasha’s PARENTS.  Are you a parent?  Do you understand parenting at all?
+
+DOCTOR:  “Better take Sasha to the hospital for some tests, as it’s possible she has meningitis.”
+
+PARENT _(thinking)_:  Omigod my kid has meningitis!
+
+To the doctor, it’s a hypothesis to be tested; to the non-M.D. parent, it’s a fucking diagnosis.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 21, 2009 at 10:28 am](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-53363)
+
+**[Chris Johnson](http://www.chrisjohnsonmd.com)**
+
+					
+
+		
+
+Besides the standard contortions of language we’ve come to expect, these folks have the medical issues all fouled-up, too. I’m a pediatric intensive care doc, and the Obama child’s experience is absolutely standard. Infants of that age with fevers are usually presumed to have possible meningitis until proven otherwise. The proving otherwise takes several days — the spinal fluid culture has to incubate in the laboratory to see if any bacteria grow. Yes, the immediate results of the spinal fluid analysis (cell counts and chemistry) are very helpful (and reassuring if normal), but it takes several days to be sure. Meanwhile, the child is treated with antibiotics. It’s all very ordinary.
+
+The Obama statements, both his and hers, are unremarkable. Unfortunately, so are those of the wingers. Standard, absurd stuff.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 3, 2009 at 4:02 am](https://edgeofthewest.wordpress.com/2009/09/19/be-nice-now-the-english-language-is-not-ed-morrisseys-strong-suit-and-he-at-least-makes-a-show-of-reining-in-the-racist-comments-he-knowingly-baits-from-his-audience/#comment-54046)
+
+**Portia**
+
+					
+
+		
+
+Wai, wai, wai wai waitaminute!!! There’s perfidy here, and you all haven’t fathomed the half of it. How about some close reading…Michelle doesn’t say “He examined her and said something’s wrong” – she says “He examined her and same something’s wrong” -see for yourself, it’s in the White House transcript [http://www.whitehouse.gov/the\_press\_office/Remarks-by-the-First-Lady-on-What-Health-Insurance-Reform-Means-for-Women-and-Families/](http://www.whitehouse.gov/the\_press\_office/Remarks-by-the-First-Lady-on-What-Health-Insurance-Reform-Means-for-Women-and-Families/) – and accurately cited by JammieWearingFool,  HotAir, Acephalous, and Edge of the American West (this blog), but seemingly not noticed that telling detail. What do you think Michelle could mean by “same something’s wrong” – a slip of the tongue perhaps, demonstrating that she’s already thinking about how vital it is that her hubby tell the SAME lie? Or perhaps even a coded message telling him to do so. Believe me, this couple will stop at nothing.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

@@ -163,3 +163,549 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 21 comments
+
+		
+
+	
+
+		
+
+[January 12, 2009 at 12:47 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31841)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+They work so hard to solve a problem that need never have arisen at all. Wikipedia has the [right line](http://en.wikipedia.org/wiki/Samuel\_Goldwyn#Goldwynisms), but not in the form I remembered, “If you want to send a message, call Western Union.”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 12:53 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31842)
+
+**Dia**
+
+					
+
+		
+
+_…the point should be clear: he doesn’t believe in the permanence of community or the continuity of shared cultural values_
+
+I think he does, and I think that’s the point: Americans don’t torture, and never will. Americans don’t imprison without trial, and never will, etc. It’s the timelessness that makes the narrator irrelevant. The irony (and the venom) of those lines are what makes the song. It’s all-American in its geography, its tone and its (overwhelmingly liberal) sentiment.
+
+Great post, though.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 12:58 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31843)
+
+**[Spike](http://theelectoralvote.com)**
+
+					
+
+		
+
+Very nice. I’d also like to hear this guy explain away Bruce’s narrators always seem to be in a union:
+
+“I met her at a dance down at the union hall”
+
+“For my 19th birthday, I got a union card and a wedding coat”
+
+“Got a union connection with an uncle of Wayne’s”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 1:04 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31844)
+
+**[hebisner](http://www.mojowire.com)**
+
+					
+
+		
+
+How do these people reconcile “Nebraska” with this conservative Springsteen they construct?  That record is the ulimate indictment of the Reagan era.  Look, I have no problem with people deriving what they need from art, particularly music.  If this guy finds inspiration from Springsteen, who cares what the Springsteens politics actually are, or even the intent of the songs lyrics.  But to fashion a modern American conservative out of Springsteens lyrics in this way is quite a reach.  You have to will whole albums of his ouvre out of existance.  Not to mention the mans open support for a host of liberal causes.  They cannot grasp that someone can support soldiers and working people and liberalism at the same time, or the faith and hope in this country that Springsteen often injects into his music, along with the harsh criticism.  It’s a patriotism that is not founded on jingoism and blind faith in your leaders.  I guess the Kool-Aid is just too strong.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 1:32 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31845)
+
+**[Dance](http://pronetolaughter.wordpress.com)**
+
+					
+
+		
+
+Wowsers.
+
+All of the conservative commenters are equally calling him crazy.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 1:39 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31846)
+
+**[Buster](http://moscowthroughbrowneyes.blogspot.com)**
+
+					
+
+		
+
+I used to taunt my Ohio-born college roommate–a huge Springsteen fan–with my whimsical interpretation of the Boss as a pedophilic stalker, lustfully crooning out:
+
+_Hey little girl is your daddy home  
+
+Did he go and leave you all alone  
+
+I got a bad desire  
+
+oooh I’m on fire_
+
+But I was joking.  According to Sayet’s brand of criticism, someone should be calling the District Attorney.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 2:05 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31849)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+Dia, as long as the basic interpretive error doesn’t change, I don’t think greater political plausibility is much of an improvement.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 2:13 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31850)
+
+**Maineiac**
+
+					
+
+		
+
+Yes, I see.  
+
+ I recall a couple of years ago Terry Gross of NPR was interviewing a member of a band which was famous for their outlandish stage act and costumes. I forget the exact line of questioning but at one point the band member said that their act was more real then Springteen’s. When Gross expressed disbelief he pointed out the Springsteen, who is a multimillionaire,  is playing the part of a working man, taking  to the stage wearing jeans and a t-shirt.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 2:48 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31853)
+
+**[Punning Pundit](http://www.indignantdesertbirds.com/)**
+
+					
+
+		
+
+Ah… yes.  Bruce Springsteen.  The man so conservative that he performed free concerts for BARACK OBAMA.  Gah!
+
+BTW: the Is/Was dispute is one easily cleared up by simply translating it into the Latin.  If he’s using the pluperfect, you’re right.  If he’s using the present tense, you’re wrong…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 3:33 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31855)
+
+**Crazy Little Thing**
+
+					
+
+		
+
+We can’t have this conversation without recalling this:
+
+[http://article.nationalreview.com/?q=NzZkNDU5MmViNzVjNzkzMDE3NzNlN2MyZjRjYTk4YjE=](http://article.nationalreview.com/?q=NzZkNDU5MmViNzVjNzkzMDE3NzNlN2MyZjRjYTk4YjE=)
+
+Yes, the National Review listed the 50 best conservative rock songs, a list that includes such conservative luminaries as:
+
+The Who  
+
+The Beatles (Lennon must have been conservative if he’s so conflicted)  
+
+The Rolling Stones  
+
+U2  
+
+The Sex Pistols  
+
+Bob Dylan  
+
+The Pretenders  
+
+The Clash  
+
+David Bowie (who also sang “I’m Afraid of Americans”)  
+
+CCR  
+
+The Band
+
+You’ll note that they also interpret any song with even a hint of anti-communist sentiment as fully conservative. This isn’t a new conservative trick.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 4:01 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31857)
+
+**[Martin Wisse](http://www.cloggie.org/linksgedacht/)**
+
+					
+
+		
+
+Gods, it wouldn’t surprise me if this fool thought Born in the USA is a paean to the republic too.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 4:58 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31863)
+
+**Colin**
+
+					
+
+		
+
+Then I’m definitely a conservative.  Guess I need to start building up resentments against the liberal elite.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 5:40 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31873)
+
+**[Carl](http://carldyke.wordpress.com/)**
+
+					
+
+		
+
+Well, remember it was conservatives who invented trasformismo at the dawn of mass democracy as a way to pull the teeth of both radical left and right. 
+
+And hey, I think it’s nice to see conservatives catching on to the cultural logic of discursive repurposing, a little détournement here from an unexpected quarter, they’ll be dropping bitch and nigga and queer bombs next and we’ll all be one big happy family of radical polysemics.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 5:41 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31874)
+
+**[reharmonizer](http://reharmonized.an-earful.com/)**
+
+					
+
+		
+
+Yeah, Sayet says that a conservative believes that man is born “capable of good and evil and everything in between” and I sure believe that. So I’m a conservative, too, it seems.
+
+Anyway, his idea of what makes a “Neo-Liberal” has all the depth of an annoying neighbor character on a mediocre sitcom. His conservative isn’t much deeper, though, and there seems to be no in between. So he manages to insult most anyone with half a brain, plus some with less than half, judging from the comment thread over there.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 8:09 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31895)
+
+**[dana](https://edgeofthewest.wordpress.com)**
+
+					
+
+		
+
+There’s a certain breed of thinker that thinks that if he/she has a certain political persuasion, then anything he/she likes is also of that persuasion.  Sort of an anthropic principle for preferences.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 12, 2009 at 9:42 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31900)
+
+**Michael Turner**
+
+					
+
+		
+
+“The Night They Drove Old Dixie Down” was, it turns out, a celebration of the values of the Confederacy, sung by that Good Ol’ Girl, Joan Baez.  All these years I thought that the song was just saying “war sucks, and we should feel bad even for the people on the wrong side, when they lose.”  Someone alert Rolling Stone, I think there’s a story in this one.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 13, 2009 at 7:04 am](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31911)
+
+**KMK**
+
+					
+
+		
+
+Here’s Bruce himself, speaking to this very issue.
+
+
+It’s not Woody Allen pulling out Marshall McLuhan, but it’s damn close.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 13, 2009 at 9:44 am](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-31920)
+
+**rea**
+
+					
+
+		
+
+Springsteen might well _be_ a conservative–the problem is that nowdays the right is _not_conservative–it is authoritarian and plutocratic, but doesn’t want to conserve anything . . .
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 15, 2009 at 4:35 am](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-32078)
+
+**megancase**
+
+					
+
+		
+
+“you likely won’t be impressed by Sayet’s Sowell-lite philosophizing: liberals believe “man is born good and then corrupted by the institutions of society,” whereas conservatives believe “man is born with a dual and conflicting nature—capable of good and evil and everything in between”
+
+Hmm, I always thought it was kinda the other way around – at least, as a progressive, I think the capacity for good and evil exists in all of us and we have to work hard as a society to make sure that the good wins out, while it seems to me that conservatives believe some people are born good and some people are born bad and it’s the good guys’ job to convert or kill the bad ones. That’s why you have to be born again if you’re bad, right?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 15, 2009 at 2:40 pm](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-32113)
+
+**[Ken Houghton](http://angrybear.blogspot.com)**
+
+					
+
+		
+
+“Bobby said he’d pull out/Bobby stayed in/Janie got pregnant/Wasn’t any sin.”
+
+Yep.  Pure Catholic theology there.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[January 20, 2009 at 1:42 am](https://edgeofthewest.wordpress.com/2009/01/12/the-long-walk-back-to-the-real-world/#comment-32352)
+
+**[Stupid conservative tricks: metaphor madness, schizo Springsteen, specious Sowell | Re:harmonized](http://reharmonized.an-earful.com/2009/01/metaphor-madness-schizo-springsteen-specious-sowell/)**
+
+					
+
+		
+
+[…] no signs in the article of a reflective, self-critical mind at work. He spends most of the piece cherry-picking the conservative message from songs like “Thunder Road” and “Long Walk […]
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

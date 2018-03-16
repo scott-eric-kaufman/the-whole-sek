@@ -46,3 +46,138 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 5 comments
+
+		
+
+	
+
+		
+
+[October 2, 2008 at 4:26 pm](https://edgeofthewest.wordpress.com/2008/10/02/when-am-i-not-reading-early-modern-poetry/#comment-22548)
+
+**urbino**
+
+					
+
+		
+
+When asked what early modern poetry he reads regularly, Reynolds replied, “Um, all of it.”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 2, 2008 at 4:31 pm](https://edgeofthewest.wordpress.com/2008/10/02/when-am-i-not-reading-early-modern-poetry/#comment-22549)
+
+**[Jason B](http://notnotnegative.blogspot.com/)**
+
+					
+
+		
+
+Hee hee.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 2, 2008 at 5:10 pm](https://edgeofthewest.wordpress.com/2008/10/02/when-am-i-not-reading-early-modern-poetry/#comment-22553)
+
+**Sir Charles**
+
+					
+
+		
+
+I think Reynolds is a big Ezra Pound fan — after he lost his mind.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 2, 2008 at 10:27 pm](https://edgeofthewest.wordpress.com/2008/10/02/when-am-i-not-reading-early-modern-poetry/#comment-22560)
+
+**[ross](http://billysbones.blogspot.com/)**
+
+					
+
+		
+
+“the gambling man is rich & the working man is poor”
+
+author, anyone? :)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 4, 2008 at 1:26 pm](https://edgeofthewest.wordpress.com/2008/10/02/when-am-i-not-reading-early-modern-poetry/#comment-22644)
+
+**Matt W**
+
+					
+
+		
+
+Reynolds quoting Kimball: “The current pandemonium on the Wall Streets of the world is not due to a failure of the free market. It is due to a failure to observe the rules of the free market.”
+
+I hope they’ll admit that true socialism has never been tried.
+
+(Kimball is, of course, complaining about the Community Reinvestment Act, which has precisely jack shit to do with the financial crisis but which is very convenient if you want to blame all the worlds’ ills on black people and poor people. They’re so shiftless, you know.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

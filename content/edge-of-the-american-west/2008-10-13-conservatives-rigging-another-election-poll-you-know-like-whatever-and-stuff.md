@@ -56,3 +56,72 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 2 comments
+
+		
+
+	
+
+		
+
+[October 12, 2008 at 8:48 pm](https://edgeofthewest.wordpress.com/2008/10/12/conservatives-rigging-another-election-poll-you-know-like-whatever-and-stuff/#comment-23274)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+I voted in that poll a couple of dozen times a few weeks ago, when “yes” was leading by a half dozen points. This time, I was told “subsequent votes won’t count” after I voted once. It’s true that there was some viral marketing on the left on that, but there’s no bleeping way Palin _leads_ that poll without some major league poll-jamming on the right.
+
+I feel a little guilty about voting “no”: technically, she _is_ qualified, as a natural-born US citizen above the age of 35.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 12, 2008 at 10:08 pm](https://edgeofthewest.wordpress.com/2008/10/12/conservatives-rigging-another-election-poll-you-know-like-whatever-and-stuff/#comment-23282)
+
+**urbino**
+
+					
+
+		
+
+_running out of 
+french
+_ freedom _fries_
+
+Speaking of, I bought myself a shiny new freedom press today.  I can haz excellent coffee!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

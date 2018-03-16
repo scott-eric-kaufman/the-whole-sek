@@ -75,3 +75,94 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 3 comments
+
+		
+
+	
+
+		
+
+[August 7, 2008 at 7:07 pm](https://edgeofthewest.wordpress.com/2008/08/07/hand-on-smut-and-smoot/#comment-17024)
+
+**ari**
+
+					
+
+		
+
+Wow.  Nice post.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 7, 2008 at 9:09 pm](https://edgeofthewest.wordpress.com/2008/08/07/hand-on-smut-and-smoot/#comment-17026)
+
+**Vance Maverick**
+
+					
+
+		
+
+No kidding.  Thanks, Scott.  I didn’t know about any of this except for the excerpts from Woolsey’s opinion included in the American preface.
+
+Reading the excerpts, I couldn’t help hearing the repeated emphasis on _sincerity_ — and I see you picked up on this too.  It’s a bit of a mystery to me as a term, and I wonder how they mean it.  I wish Williams had covered it in _Keywords_.  I know two treatments of it in the literary context of the time — one in [Richards](http://books.google.com/books?id=-xa1faYcSBsC&pg=PA90&lpg=PA90&dq=insincerity+flaw+insinuates&source=web&ots=g4jeEyvmQP&sig=BtDqHCOEA3CtFGDhIbZNEf3w6to&hl=en&sa=X&oi=book\_result&resnum=4&ct=result) (at least by contrast to insincerity) and one in my man [Zukofsky](http://books.google.com/books?id=rf3\_26jr\_YwC&pg=PA193&lpg=PA193&dq=sincerity+and+objectification&source=web&ots=4VcR48l8Wa&sig=0l2BYzsS-URYSwABPL1OCx7GU98&hl=en&sa=X&oi=book\_result&resnum=8&ct=result).  I don’t understand them very well, particularly Z, but in any case I doubt these are what the judges had in mind.
+
+Puzzled in SF (and apprehensive as to the success of his monstrous Google Books links)….
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 7, 2008 at 9:13 pm](https://edgeofthewest.wordpress.com/2008/08/07/hand-on-smut-and-smoot/#comment-17027)
+
+**Vance Maverick**
+
+					
+
+		
+
+_how they mean it_
+
+and, obviously, what its legal bearing could be.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

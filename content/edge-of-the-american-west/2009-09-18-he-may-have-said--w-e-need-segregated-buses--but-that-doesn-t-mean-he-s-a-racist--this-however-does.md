@@ -99,3 +99,267 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 10 comments
+
+		
+
+	
+
+		
+
+[September 17, 2009 at 8:23 pm](https://edgeofthewest.wordpress.com/2009/09/17/he-may-have-said-we-need-segregated-buses-but-he-didnt-mean-it/#comment-53200)
+
+**rja**
+
+					
+
+		
+
+[Not that you need more examples of Limbaugh’s racism, but…](http://newsone.com/obama/top-10-racist-limbaugh-quotes/)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 18, 2009 at 4:15 am](https://edgeofthewest.wordpress.com/2009/09/17/he-may-have-said-we-need-segregated-buses-but-he-didnt-mean-it/#comment-53204)
+
+**[Doctor Science](http://doctorscience.blogspot.com)**
+
+					
+
+		
+
+No point in talking about this unless you [link to David Neiwert](http://dneiwert.blogspot.com/2007/03/eliminationism-in-america-appendix.html).
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 18, 2009 at 5:53 am](https://edgeofthewest.wordpress.com/2009/09/17/he-may-have-said-we-need-segregated-buses-but-he-didnt-mean-it/#comment-53205)
+
+**[m. leblanc](http://bitchphd.blogspot.com)**
+
+					
+
+		
+
+Wow, SEK, I think I love you a little bit. Brilliant.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 18, 2009 at 8:50 am](https://edgeofthewest.wordpress.com/2009/09/17/he-may-have-said-we-need-segregated-buses-but-he-didnt-mean-it/#comment-53210)
+
+**politicalfootball**
+
+					
+
+		
+
+It’s tough for polite liberals to accurately place Limbaugh in his appropriate context, because accuracy and politeness are hard to reconcile in his case.
+
+I liked how, in this [Washington Post chat](http://www.washingtonpost.com/wp-dyn/content/discussion/2009/08/14/DI2009081402554.html), Rick Perlstein handled this paradox in a conversation with a chatter who adopted the pseud “Godwin’s Law.”
+
+Godwin’s Law: Got to smack that one on you, Rick. You simply can’t equate town hall protests to the brownshirts running amok in Weimar Germany. For you to do so delegitimizes your case — the same for the people equating Obama with Hitler. For you to do that is just as much of an obscenity as those you call out for bearing arms in THMs.
+Rick Perlstein: Brownshirts weren’t brownshirts at first. They were just angry people who felt dispossessed by the course Germany took after World War I. This kind of entropy–angry people exploited by elites–is a pattern in history, and it shouldn’t be denied. We all have to draw the line as to what kinds of expression of dispossession are illegitimate. People who believed in democracy in Germany didn’t have “Godwin’s Law” to throw at each other in 1925, and 1928, and 1930. They just had to figure out for themselves when things were getting out of hand. We share that same responsibility. I intend a historical parallel to the 1920s in Germany–not a claim that my political adversaries “are” Nazis. They aren’t. But they are beginning to violate the bonds of civility that hold a healthy democracy together.
+Bringing guns to political meetings is where I draw that line.
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 18, 2009 at 10:11 am](https://edgeofthewest.wordpress.com/2009/09/17/he-may-have-said-we-need-segregated-buses-but-he-didnt-mean-it/#comment-53213)
+
+**[Sam-I-am](http://feministeconomist.blogspot.com)**
+
+					
+
+		
+
+Now can you condense it to 140 characters?  Because this fan is pointing in the wrong direction.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 18, 2009 at 2:05 pm](https://edgeofthewest.wordpress.com/2009/09/17/he-may-have-said-we-need-segregated-buses-but-he-didnt-mean-it/#comment-53245)
+
+**Roger Albin**
+
+					
+
+		
+
+Did you read S. Weir Mitchell’s clinical and scientific work?  if not, you haven’t read everything.  Its fair to say that his ideas about psychiatric problems were dramatically wrong but his writings about causalgia and nerve injuries was pioneering and substantial.  Definitely not awful.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 18, 2009 at 2:18 pm](https://edgeofthewest.wordpress.com/2009/09/17/he-may-have-said-we-need-segregated-buses-but-he-didnt-mean-it/#comment-53246)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+rja and Doctor Science, thanks for bringing those to my attention.  I actually hadn’t read the Neiwart, but I feel better (or worse, you know) now that I have.
+
+m. leblanc, thank you!  (He says, blushing.)
+
+pf, I remember that being posted in an earlier thread, and I absolutely agree: the comparisons are facile until they aren’t, and tracking the uptick in heated rhetoric is one way to prevent people citing Limbaugh’s Law a hundred years hence.
+
+Roger Albin:
+
+_Did you read S. Weir Mitchell’s clinical and scientific work?_
+
+I did, and you’re right, I’m being a little hyperbolic.  What I mean by the awful stuff is mostly his application of scientific work to culture and politics, [_a la_ this](http://acephalous.typepad.com/acephalous/2006/03/the\_best\_quotat.html), which is his round-about way to say that women don’t need formal educations.  He was certainly important in the medical and Philadelphia communities, but his formal work is a cut above say, _Wear and Tear_.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 18, 2009 at 9:12 pm](https://edgeofthewest.wordpress.com/2009/09/17/he-may-have-said-we-need-segregated-buses-but-he-didnt-mean-it/#comment-53270)
+
+**[Doctor Science](http://doctorscience.blogspot.com)**
+
+					
+
+		
+
+Neiwert has been heroically tracking this stuff for \*years\* — the blog post I cited is just one of those put together to make [The Eliminationists](http://www.amazon.com/Eliminationists-Hate-Radicalized-American-Right/dp/0981576982/). One point Neiwert emphasizes is that while Limbaugh is followed by only a minority of the people in country as a whole, in a geographically large part of the nation his voice is dominant, pouring poison into the people’s ears for \*years\*.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 8:50 am](https://edgeofthewest.wordpress.com/2009/09/17/he-may-have-said-we-need-segregated-buses-but-he-didnt-mean-it/#comment-53282)
+
+**Roger Albin**
+
+					
+
+		
+
+I agree about the awful stuff – his ideas about women were rancid.  Mitchell and his American neurologist colleagues are an interesting example of one the few fields in medicine and science where Americans attained equal status with Europeans prior to the 20th century.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 19, 2009 at 7:10 pm](https://edgeofthewest.wordpress.com/2009/09/17/he-may-have-said-we-need-segregated-buses-but-he-didnt-mean-it/#comment-53306)
+
+**[Gary Farber](http://amygdalagf.blogspot.com)**
+
+					
+
+		
+
+“But the second one lacks an obvious antecedent….”
+
+Being a semi-literate writer and reader allows one to slough off most responsibility for mere coherency.  It’s a useful state to be in for political plausible deniability, even if the writer finds it too embarrassing to directly make use of such an excuse.
+
+Meanwhile, you are making the weaker argument defeat the stronger.  You know how that winds up.
+
+Thanks for introducing me to [Silas Weir Mitchell](http://en.wikiquote.org/wiki/Silas\_Weir\_Mitchell).  
+
+Hell of a job you did making a narrative out of those quotes, by the way.  One doesn’t need to consider subtext: the text is sufficient.
+
+Superb narrative as a post, as well.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

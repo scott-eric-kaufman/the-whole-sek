@@ -27,15 +27,313 @@ I don’t believe the effort’s [entirely unprecedented](http://www.thevalve.or
 
 ### Like this:
 
-
 Like
 
  
 Loading...
 
-
 []()
 
 ### _Related_
 
+	
 
+* * *
+
+		
+
+## 12 comments
+
+		
+
+	
+
+		
+
+[November 10, 2008 at 10:06 pm](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26596)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+How interesting. I read it for the first time about 
+a year
+ five years ago…suffice it to say that it fell for me in that middle ground of evaluation that makes further comment most interesting.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 10, 2008 at 10:20 pm](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26598)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+Also — “throppled”?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 10, 2008 at 10:43 pm](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26607)
+
+**urbino**
+
+					
+
+		
+
+Cool!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2008 at 12:18 am](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26617)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+“Thropple,” according to that [other Scott](http://en.wikipedia.org/wiki/Walter\_Scott), means “to strangle with violence” or somesuch.  (I’d been reading Scott at the time and, well, love rare words.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2008 at 12:25 am](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26618)
+
+**urbino**
+
+					
+
+		
+
+Came to us as “throttle”?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2008 at 9:24 am](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26650)
+
+**[Sybil Vane](http://bitchphd.blogspot.com/)**
+
+					
+
+		
+
+I’m super-psyched about this.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2008 at 10:05 am](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26653)
+
+**[The Modesto Kid](http://www.readin.com/blog/blog.asp)**
+
+					
+
+		
+
+_I’m super-psyched about this._
+
+Me too! Maybe time to reread _The Golden Notebook_. The design of the project site is pretty interesting, with reader notes showing up in the margins as you turn the pages of the book — I hope there is also a way to read the notes as a stream of text, with links to the book pages they reference.
+
+I was happy reading Bob Stein’s bio at the IF:book site, to find out that he is the founder of the Criterion Collection series of DVD’s — Criterion has been responsible for  a good share of my viewing pleasure over the last few years.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2008 at 10:09 am](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26658)
+
+**JPool**
+
+					
+
+		
+
+I’m really horrible about literature (I haven’t read any non-diss or teaching stuff in years), but this makes me want to read along.  I’m especially psyched about rediscovering Laura Kipnis, who I’ve had a post-it in my brain about ever since reading her fabulous essay in that uneven Grossberg and Nelson collection lo these many years ago.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2008 at 11:48 am](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26660)
+
+**AEP**
+
+					
+
+		
+
+Something missing in the description: the answer to “why read closely?” Also missing, definition of “close reading.” I was once drummed out of a graduate seminar because I argued you couldn’t read Eliot’s Middlemarch properly without understanding the Corn Laws. As I stood in the hall, I wondered if I was right or only perverse. 
+
+I read somewhere–where the hell was it–that novel readers were more moral than non-novel readers because the act of making an unfamiliar story familiar increased the capacity for empathy. It was some sociological study, so it must be true!
+
+BTW, Lance Maverick is the coolest name ever. You mother must have been a novel reader.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2008 at 1:19 pm](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26667)
+
+**[Rohan Maitzen](http://maitzenreads.blogspot.com)**
+
+					
+
+		
+
+_I read somewhere . . . that novel readers were more moral than non-novel readers because the act of making an unfamiliar story familiar increased the capacity for empathy._
+
+There is quite a bit of work going on about this (see the postings over at onfiction.blogspot.com, for instance–or, for unbridled idealism, the project initiated at UMass called “Changing Lives Through Literature”). I always wonder how much it matters _which_ novels you read (actually, with or without the Corn Laws, I’d make the case that reading _Middlemarch_ is morally beneficial…).
+
+The technology for this project really is interesting.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2008 at 3:43 pm](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26675)
+
+**urbino**
+
+					
+
+		
+
+_I’m especially psyched about rediscovering Laura Kipnis_
+
+I heart her.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[November 11, 2008 at 3:46 pm](https://edgeofthewest.wordpress.com/2008/11/10/may-also-be-of-interest-to-historians-and-academic-web-enthusiasts-the-golden-notebookm-project/#comment-26676)
+
+**urbino**
+
+					
+
+		
+
+_actually, with or without the Corn Laws, I’d make the case that reading Middlemarch is morally beneficial…_
+
+I’ll second that.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

@@ -38,3 +38,132 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 5 comments
+
+		
+
+	
+
+		
+
+[June 24, 2009 at 2:57 pm](https://edgeofthewest.wordpress.com/2009/06/24/do-conservatives-dare-to-eat-a-peach/#comment-48485)
+
+**andrew**
+
+					
+
+		
+
+A journalistic Prufrock would spend a lot of time thinking about a question never asked.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 24, 2009 at 3:34 pm](https://edgeofthewest.wordpress.com/2009/06/24/do-conservatives-dare-to-eat-a-peach/#comment-48489)
+
+**TF Smith**
+
+					
+
+		
+
+Yeah, but a real president would order the 82nd Airborne to drop on Tehran International, you betcha!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 24, 2009 at 3:43 pm](https://edgeofthewest.wordpress.com/2009/06/24/do-conservatives-dare-to-eat-a-peach/#comment-48494)
+
+**essear**
+
+					
+
+		
+
+Way to nail those two groups, pinned and wriggling, to a wall.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 25, 2009 at 4:17 am](https://edgeofthewest.wordpress.com/2009/06/24/do-conservatives-dare-to-eat-a-peach/#comment-48509)
+
+**melissa**
+
+					
+
+		
+
+Great point that I had missed in all the bruhaha.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 25, 2009 at 10:38 am](https://edgeofthewest.wordpress.com/2009/06/24/do-conservatives-dare-to-eat-a-peach/#comment-48522)
+
+**jay boilswater**
+
+					
+
+		
+
+Yep, the current administration should call on only real journalists, like maybe James Dale Guckert.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

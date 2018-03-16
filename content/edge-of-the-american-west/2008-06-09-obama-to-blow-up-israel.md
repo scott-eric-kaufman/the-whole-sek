@@ -49,3 +49,238 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 9 comments
+
+		
+
+	
+
+		
+
+[June 9, 2008 at 12:53 pm](https://edgeofthewest.wordpress.com/2008/06/09/obama-to-blow-up-israel/#comment-11804)
+
+**[Fontana Labs](http://www.unfogged.com)**
+
+					
+
+		
+
+\*  
+
+\* \*\*  
+
+\*\* \*\*\*  
+
+\*\*\* \*\*\*\*  
+
+\*\*\*\* \*\*\*\*\*  
+
+\*\*\*\*\*
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 9, 2008 at 1:11 pm](https://edgeofthewest.wordpress.com/2008/06/09/obama-to-blow-up-israel/#comment-11805)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+Welcome aboard, Labs.\*
+
+\*And Merry Christmas!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 9, 2008 at 1:47 pm](https://edgeofthewest.wordpress.com/2008/06/09/obama-to-blow-up-israel/#comment-11806)
+
+**grackle**
+
+					
+
+		
+
+\*\*\*\*\*Yes, one of the conditions of my posting privileges is, and I quote, “Be it said that each post contain no fewer than five footnotes, one of which must originate within another footnote like the incestuous spawn of a digressive mind.”
+
+Is this homage to [Ari](http://crookedtimber.org/2008/01/24/national-histories/) or to [Daniel Davies](http://crookedtimber.org/2007/05/10/in-praise-of-budweiser-contains-extended-footnotes/)? or some other?\* 
+
+\*Boy I hope all this HTML crap works.
+
+But as you say, yes, indeed.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 9, 2008 at 1:59 pm](https://edgeofthewest.wordpress.com/2008/06/09/obama-to-blow-up-israel/#comment-11807)
+
+**ari**
+
+					
+
+		
+
+\*
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 9, 2008 at 2:50 pm](https://edgeofthewest.wordpress.com/2008/06/09/obama-to-blow-up-israel/#comment-11809)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+\*To Ari, yes.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 9, 2008 at 3:33 pm](https://edgeofthewest.wordpress.com/2008/06/09/obama-to-blow-up-israel/#comment-11810)
+
+**Walt**
+
+					
+
+		
+
+Who’s Ari?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 9, 2008 at 3:39 pm](https://edgeofthewest.wordpress.com/2008/06/09/obama-to-blow-up-israel/#comment-11811)
+
+**urbino**
+
+					
+
+		
+
+Me.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 9, 2008 at 3:44 pm](https://edgeofthewest.wordpress.com/2008/06/09/obama-to-blow-up-israel/#comment-11813)
+
+**ari**
+
+					
+
+		
+
+Yes, him.  Also:  \*.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 9, 2008 at 3:57 pm](https://edgeofthewest.wordpress.com/2008/06/09/obama-to-blow-up-israel/#comment-11814)
+
+**Vance Maverick**
+
+					
+
+		
+
+`rm -rf \*`
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

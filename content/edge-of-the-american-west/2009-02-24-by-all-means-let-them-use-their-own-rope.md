@@ -5,6 +5,7 @@
 
 From the live-blogging of the Oscars at _Big Hollywood_, I present the themes of the evening:
 
+
 **[Mike Long’s here…](http://bighollywood.breitbart.com/mlong/2009/02/22/mike-longs-here/)**
 by Mike Long
 
@@ -179,7 +180,6 @@ by Stage Right
 
 Oh Boy . . . here comes Prop 8 the musical all over again.
 
-
 I decided not to include all the entries which consisted of variations of the title of [this link](http://bighollywood.breitbart.com/ggraham/2009/02/22/meghan-mccain-you-are-hot/)—because the daughter of the Republican’s most recent candidate for President deserves better than the company her father panders to.  (Or not.)  But what really worries me about this all is that it might give lie to the idea that Kathryn Jean Lopez doesn’t deserve the title of “editor.”  Because if _this_ is what they write off-the-cuff . . .
 
 		
@@ -198,15 +198,485 @@ I decided not to include all the entries which consisted of variations of the ti
 
 ### Like this:
 
-
 Like
 
  
 Loading...
 
-
 []()
 
 ### _Related_
 
+	
 
+* * *
+
+		
+
+## 20 comments
+
+		
+
+	
+
+		
+
+[February 23, 2009 at 6:42 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34715)
+
+**[Sybil Vane](http://bitchphd.blogspot.com/)**
+
+					
+
+		
+
+I feel sad now.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 23, 2009 at 6:46 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34716)
+
+**Matt McKeon**
+
+					
+
+		
+
+What a crew of fucking assholes.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 23, 2009 at 6:49 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34717)
+
+**Sir Charles**
+
+					
+
+		
+
+They are sad, stupid, little people.
+
+What a freakin “moran” fest.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 23, 2009 at 7:01 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34718)
+
+**Colin**
+
+					
+
+		
+
+The kissing part seems like a win all around.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 23, 2009 at 7:12 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34719)
+
+**Michael Elliott**
+
+					
+
+		
+
+For some reason, my response to this comes from the same emotional place as my response to the Congressional Republicans and that crazy CNBC stockbroker who ranted about the mortgage bailout.  It’s like the far right has just decided that nothing has changed, and they aren’t going to care if they become increasingly disconnected from where the rest of the country is.  In a way, I am happy about this kind of behavior, because it means that they are on a path to make themselves entirely marginal.  I mean, can you really take the House Republican Caucus seriously after all of that grandstanding — as though conservative policies had nothing to do with the shitstorm we are in?  Can you really take seriously a blogger who has chosen to watch the Oscars but who is offended by two men kissing?  On the other hand, like a true sappy liberal, I want to believe that we all have better selves that are, finally, capable of some humility and sympathy.  So much for that.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 23, 2009 at 8:39 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34721)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+For a minute I thought you were doing the “shorter” thing, but a few spot checks (I don’t have the stomach for more) reveals that you are, in fact, quoting them. Fully and accurately.
+
+I’m flabbergasted. 
+
+I’ve met fifth graders with more class (and better jokes).
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 23, 2009 at 8:57 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34722)
+
+**Amos Anan**
+
+					
+
+		
+
+Sorry I did laugh at a few, even with the cruelty. But then the line about “Jackman” and “the gayest event” reminded me of a group of perverts and pedophiles of varied sexual persuasions and perversions that’s lead by someone named BOEHNER. They could easily put on a floor show tap dancing in diapers and probably have.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 2:59 am](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34727)
+
+**rea**
+
+					
+
+		
+
+Somehow they don’t seem to have grasped a basic point of this internet thing, which is that you’re not having a private conversation with a small group of like-minded friends–the whole world, including your mother, gets to see your boorish comments.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 3:12 am](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34728)
+
+**Michael Turner**
+
+					
+
+		
+
+Yeah, they seem to think the internet is conservative talk radio. where it’s like you’re having a private conversation with a small group of like-minded friends–and the whole world, including your mother, gets to _hear_ your boorish comments.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 4:13 am](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34729)
+
+**CharleyCarp**
+
+					
+
+		
+
+They tell their mothers that it’s just entertainment.  You know, the guys who bite the heads off live chickens have mothers too.  At least no chickens were harmed in the production of this sorry spectacle.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 6:50 am](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34730)
+
+**[Adam Roberts](http://www.adamroberts.com)**
+
+					
+
+		
+
+I’ve been reading a certain amount of the theory of Laughter (with a view to teaching a course about it next year).  It occurs to me that one problem with this notoriously problematic field is that any theory needs to account for Oscar Wilde, Jacques Tati _and_ people saying ‘breasts!’ and ‘men kissing!’ and guffawing like baboons.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 8:18 am](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34731)
+
+**[Michael Bérubé](http://www.michaelberube.com)**
+
+					
+
+		
+
+I’m still not seeing why these people aren’t more successful artists and entertainers.  I have to think the gay breasted Hollywood mafiosi are blacklisting them.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 8:22 am](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34732)
+
+**[I just don’t get it… « Blurred Productions](http://blurredproductions.wordpress.com/2009/02/24/i-just-dont-get-it/)**
+
+					
+
+		
+
+[…] (in a round about way, via) […]
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 12:31 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34746)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+_I’m still not seeing why these people aren’t more successful artists and entertainers._
+
+They’re too busy serving as the backbone of the moral majority, obviously.
+
+I wrote this post without comment because, honestly, I’m not sure what to say.  The comments above about them not realizing that the world can read what they’ve written pretty much nails it, though.  I’m sure they’ll be arguing about the sexualization of their children next week, bemoaning about sex ed. or something without a wink of cognitive dissonance.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 12:32 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34747)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+Why does the site keep doing that?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 2:54 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34750)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+There appears to be some flaw in the coding of trackback comments: a missing divider of some sort. It’s been quite consistent for a while now.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 3:14 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34754)
+
+**washerdreyer**
+
+					
+
+		
+
+The most (ok, only) interesting aspect of Big Hollywood for me is Bill Willingham’s involvement, because he writes,a href=”http://www.amazon.com/Fables-Vol-1-Legends-Exile/dp/1563899426/ref=pd\_bbs\_sr\_1?ie=UTF8&s=books&qid=1235517147&sr=8-1″&gt; a great comic book.  And I always knew he was a conservative, and didn’t care, because he wrote comic books, not punditry.  But now that I’m reading his political commentary, it’s starting to complicate the way I read his comic books, esp. the gender relations therein.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 3:49 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34756)
+
+**[eric](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+_some flaw in the coding of trackback comments: a missing divider of some sort._
+
+This just started.  I’ve no idea what’s going on.  And we have very little control over the code, inasmuch as we’re on the free wordpress.com.  But it’s annoying, isn’t it?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 24, 2009 at 4:50 pm](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34762)
+
+**[Top Posts « WordPress.com](http://botd.wordpress.com/2009/02/25/top-posts-1034/)**
+
+					
+
+		
+
+[…]  By all means, let them use their own rope. From the live-blogging of the Oscars at Big Hollywood, I present the themes of the evening: […] […]
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[February 25, 2009 at 5:06 am](https://edgeofthewest.wordpress.com/2009/02/23/by-all-means-let-them-use-their-own-rope/#comment-34782)
+
+**rhulcreativewriters**
+
+					
+
+		
+
+_This just started._
+
+It’s been doing it for ages and ages on my machine.  Maybe that’s a British computing thing.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

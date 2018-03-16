@@ -25,15 +25,123 @@ Somewhere in Tehran, an Iranian protester’s desperately punching his jerry-rig
 
 ### Like this:
 
-
 Like
 
  
 Loading...
 
-
 []()
 
 ### _Related_
 
+	
 
+* * *
+
+		
+
+## 4 comments
+
+		
+
+	
+
+		
+
+[June 25, 2009 at 9:10 pm](https://edgeofthewest.wordpress.com/2009/06/25/iranian-protesters-are-still-in-the-process-of/#comment-48534)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+As I said over at the other place:
+
+I’ll say it first: Ahmadinejad killed him. Farrah Fawcett was a warm-up, to see if it would work. Then they went for Ed McMahon. It got some of the focus away, but not enough, so they escalated. If this doesn’t work, I’d hate to be Kermit the Frog’s security detail.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 25, 2009 at 11:32 pm](https://edgeofthewest.wordpress.com/2009/06/25/iranian-protesters-are-still-in-the-process-of/#comment-48538)
+
+**RobinMarie**
+
+					
+
+		
+
+This was funny.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 26, 2009 at 2:39 am](https://edgeofthewest.wordpress.com/2009/06/25/iranian-protesters-are-still-in-the-process-of/#comment-48542)
+
+**[saintneko](http://clubneko.net)**
+
+					
+
+		
+
+Twitter got Jackrolled.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 26, 2009 at 10:04 am](https://edgeofthewest.wordpress.com/2009/06/25/iranian-protesters-are-still-in-the-process-of/#comment-48577)
+
+**[hmprescott](http://hmprescott.wordpress.com)**
+
+					
+
+		
+
+According to CNN, MJJ nearly broke the Internet:
+
+[http://www.cnn.com/2009/TECH/06/26/michael.jackson.internet/index.html](http://www.cnn.com/2009/TECH/06/26/michael.jackson.internet/index.html)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

@@ -71,3 +71,462 @@ Loading...
 ### _Related_
 
 
+	
+
+* * *
+
+		
+
+## 19 comments
+
+		
+
+	
+
+		
+
+[August 4, 2009 at 7:08 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50533)
+
+**kevin**
+
+					
+
+		
+
+I’ve always loved Rogers’ blog — and if you’ve never read Kung Fu Monkey, folks, do yourself a favor and go read [this](http://kfmonkey.blogspot.com/2004/12/i-miss-republicans.html) and [this](http://kfmonkey.blogspot.com/2005/10/lunch-discussions-145-crazification.html) right now — and checked the show out.  The first season was nice enough, but the new one is a little too flat and formulaic.  Not surprised to hear it’s succeeding.
+
+It’s certainly liberal porn, but the plots and cons are more in the tradition of _Mission: Impossible_ in that it’s a team of con artists, each with a special set of skills.  (And now that I think of it, they each play close to type — there’s a black electronics whiz, a knockout female grifter, a strong and silent type, etc.  I can only assume that Timothy Hutton will be playing the gruff old [district attorney](http://www.imdb.com/name/nm0384696/) on “Law and Order” in twenty years.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 4, 2009 at 7:28 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50535)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+_The first season was nice enough, but the new one is a little too flat and formulaic. Not surprised to hear it’s succeeding._
+
+Absolutely with you on the second season.  I suspect they’re up to something by playing to type, because Rogers is nothing if not clever . . . but outside of the premier, the second season has been dryly formulaic.  Maybe my suspicions are more like hope, but still, the first season’s easily worth a watch, no matter the measure.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 4, 2009 at 7:41 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50538)
+
+**kevin**
+
+					
+
+		
+
+Rogers is incredibly clever, but I believe he’s outranked on that show by Dean Devlin, who was the producer of what may well be the most mouthbreathing blockbuster of all time, _Independence Day_.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 4, 2009 at 8:07 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50545)
+
+**grackle**
+
+					
+
+		
+
+If, in twenty years, Timothy Hutton is not remembered first of all for the fantastic and wonderful work of his Nero Wolfe series, then there is no justice in the world.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 4, 2009 at 8:11 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50546)
+
+**ari**
+
+					
+
+		
+
+Timothy Hutton played Nero Wolfe?  What, did he gain 300 pounds when I wasn’t looking.  Or did he play Archie Goodwin?  I guess I can see that working.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 4, 2009 at 8:39 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50551)
+
+**cofax**
+
+					
+
+		
+
+I haven’t been wowed yet by the new season, although I was pleasantly surprised by Christian Kane in the MMA episode: he’s even made me forget his Evil Hand.  I do hope they’ll step up, but really, the joy of the show isn’t with the plotting, which often makes no sense and relies on science fictional versions of technology: it’s in the characters and their interactions in service of people who can’t defend themselves.
+
+It’s about time we got a popular show that was as explicitly anti-authoritarian as this one.  I’ve had too many years of cops and doctors and prosecutors and soldiers, no matter how engaging.  Give me someone operating _outside_ the system, and bent on exposing its flaws.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 4, 2009 at 9:05 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50554)
+
+**[Punning Pundit](http://www.indignantdesertbirds.com/)**
+
+					
+
+		
+
+I have to say: I’ve never heard of whatever show it is you’re writing about…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 4, 2009 at 9:23 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50556)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+Actually, I think it’s more of an American version of _Hustle_ — with all the fun moral ambiguity and helpful post-con recap stripped out — than a millenial _A-Team_, but OK.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 5, 2009 at 1:17 am](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50571)
+
+**dave**
+
+					
+
+		
+
+I always thought the A-Team was a kids’ show, but then I’m English…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 5, 2009 at 7:44 am](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50593)
+
+**Chris**
+
+					
+
+		
+
+ari: Hutton played Goodwin.  Maury Chaykin played Wolfe.  [IMDB link.](http://www.imdb.com/title/tt0283205/)
+
+And re grackle: Doesn’t that depend on what else he makes?  I mean, you could have said the same thing about Hugh Laurie and \_Jeeves and Wooster\_… which would leave you looking rather foolish when he then went on to make \_House, M.D.\_.
+
+P.S. Why no comparisons to \_The Equalizer\_?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 5, 2009 at 8:24 am](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50595)
+
+**eric s.**
+
+					
+
+		
+
+And Jim Hutton played Ellery Queen. Coincidence?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 5, 2009 at 8:49 am](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50597)
+
+**grackle**
+
+					
+
+		
+
+Chris:  True enough but I bet Jeeves and Wooster outlasts House anyway.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 5, 2009 at 10:13 am](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50599)
+
+**Hogan**
+
+					
+
+		
+
+_Timothy Hutton played Nero Wolfe?_ 
+
+It’s his series because he created and produced it and directed a bunch of episodes, not because he played the title character.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 5, 2009 at 10:16 am](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50600)
+
+**Fats Durston**
+
+					
+
+		
+
+						I always thought the A-Team was a kids’ show, but then I’m English…
+
+Even as an American fifth-grader, I knew it was rubbish.
+
+Re: 30%!a(MISSING)udience failure
+
+After showing an episode of Borat from Da Ali G Show (hey, Geography class, Central Asia week, whatelseareyagunnado?) to first years, talking about why it worked as comedy, and offering (a minuscule amount of) extra credit to write a geographic review of the then just-released feature-length _Borat_, **80%!(BADWIDTH)%!*(MISSING) of the students doing the assignment **did not get that Borat himself was fake**.  One closed her essay hopefully, saying that she believed Borat would take all the good things he learned in America back to his home country.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 5, 2009 at 10:44 am](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50601)
+
+**Gabriel**
+
+					
+
+		
+
+_One closed her essay hopefully, saying that she believed Borat would take all the good things he learned in America back to his home country._
+
+To be fair, isn’t that what actually happened?  Unless this was one of the HBO episodes.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 5, 2009 at 12:35 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50604)
+
+**Currence**
+
+					
+
+		
+
+And supposedly some inexcusable %!o(MISSING)f the viewership doesn’t know that Colbert is satire.  I don’t know if I actually believe that — I guess I thought I was a pessimist about the big things, but not about the little ones.  
+
+We either have to blunt the tools or sharpen ’em, because they’re not working out as is…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 5, 2009 at 2:10 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50610)
+
+**ben**
+
+					
+
+		
+
+Loving what one does not understand (only when American?), and desiring to believe the criminals are complex and verge on the supercriminal, are quite different! The subtler thesis: Americans (_modern_ Americans, afflicted with, like, _modernity_ n’at), love the thesis that deep doings are being done, which they would not understand if they were aware of them; the show makes them aware of some, and, sure enough, they don’t understand ’em. But they aren’t loved _qua_ things not understood, but as signs loved for what they denote: something like the big city to the calculating, calculable modern’s resentful dweller in a manicured Levittown: at least something’s happening out there. It may be beyond the imagination of this two-bit burg, but great things are afoot, somewhere. (A prof here has a paper about related matters and _The Usual Suspects_. I have no idea where it might be appearing, though.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 6, 2009 at 7:18 pm](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50710)
+
+**tpb**
+
+					
+
+		
+
+You know I once had a five minute argument with a co-worker, when I worked in a mail room, about the Onion.  I insisted that it was a satirical weekly and he insisted that the story, perhaps about moonmen but I cannot recollect, was true.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 7, 2009 at 7:23 am](https://edgeofthewest.wordpress.com/2009/08/04/leverage-and-the-liberal-pornographic/#comment-50722)
+
+**Chris**
+
+					
+
+		
+
+The one about the moonmen \*was\* true.  They throw in a few true stories once in a while to keep people guessing.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

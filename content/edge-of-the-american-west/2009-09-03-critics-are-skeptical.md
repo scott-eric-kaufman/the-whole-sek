@@ -43,15 +43,299 @@ All of which is only to say that if I don’t stop watching the news in the morn
 
 ### Like this:
 
-
 Like
 
  
 Loading...
 
-
 []()
 
 ### _Related_
 
+	
 
+* * *
+
+		
+
+## 12 comments
+
+		
+
+	
+
+		
+
+[September 3, 2009 at 4:39 am](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52316)
+
+**dave**
+
+					
+
+		
+
+But if your job-title is ‘critic’, does that mean you’re not allowed to be skeptical about anything?
+
+The ‘dishonest skeptics’ are not skeptical at all – there is no doubt, merely disinclination to agree, even over matters of observable fact.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2009 at 6:46 am](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52325)
+
+**rea**
+
+					
+
+		
+
+Someone who is skeptical of the president’s claim that it is raining is someone who wants to see the president’s proofs, not necessarily someone who affirmatively believes that it is not raining.  It would be perfectly proper for a critic to be skeptical: “We ought not to go to war with Iraq over WMD, because the president hasn’t given us adequate proofs that Iraq even has WMD.”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2009 at 7:41 am](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52335)
+
+**[Spike](http://8ball.tridelphia.com)**
+
+					
+
+		
+
+I think the construction is Critics of X are skeptical of Y, in which case I don’t see a contradiction. The confusion is that X is often implied, rather than explicit. So “Critics [of the President] are skeptical of the President’s claim….” is fine.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2009 at 8:55 am](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52349)
+
+**Chris**
+
+					
+
+		
+
+@rea: That’s precisely the kind of honest skepticism that critics of a politician/political view generally do NOT display.  Once they see the proof, they’ll remain equally “skeptical”, but for vaguer and more specious reasons.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2009 at 10:00 am](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52355)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+rea and Spike, Chris says what I would’ve: yes, critics can be skeptical; no, these critics aren’t skeptical, they merely pretend to be because they’re liars bound to a strict ideology.  They play at skepticism when encountering things contrary to that ideology, but they’re not actually skeptical.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2009 at 10:31 am](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52362)
+
+**dave**
+
+					
+
+		
+
+Hello! Didn’t I say that?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2009 at 10:35 am](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52363)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+You did!  (Sorry, I wasn’t notified of your comment, for some reason.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2009 at 1:28 pm](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52385)
+
+**[Uncle Billy Cunctator](http://www.bda.org)**
+
+					
+
+		
+
+A critical comment: Some destructive generalization going on here.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2009 at 1:33 pm](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52387)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+You’ll note that I’m talking a rhetorical tic, and never associated it with either side of the aisle.  The post works like a mirror: you’re only implicated in it if you choose to stand before it.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 3, 2009 at 4:47 pm](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52410)
+
+**[Uncle Billy Cunctator](http://www.bda.org)**
+
+					
+
+		
+
+“Scrim” stands out as one of the great “scr” words, like “screed” and “scrod.”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 4, 2009 at 8:32 pm](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52502)
+
+**TF Smith**
+
+					
+
+		
+
+Scrum?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 6, 2009 at 3:41 am](https://edgeofthewest.wordpress.com/2009/09/03/critics-are-skeptical/#comment-52593)
+
+**[Uncle Billy Cunctator](http://www.bda.org)**
+
+					
+
+		
+
+Hehe, there are a few more gems here:
+
+[http://www.morewords.com/starts-with/scr/](http://www.morewords.com/starts-with/scr/)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

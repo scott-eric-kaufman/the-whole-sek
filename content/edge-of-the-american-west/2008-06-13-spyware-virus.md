@@ -134,3 +134,134 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 5 comments
+
+		
+
+	
+
+		
+
+[June 12, 2008 at 9:56 pm](https://edgeofthewest.wordpress.com/2008/06/12/spyware-virus/#comment-12190)
+
+**Vance Maverick**
+
+					
+
+		
+
+While this is highly amusing, it made me worry that there might underlie it a shred of truth….here’s hoping your chapter has not in fact been bemalwared.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 12, 2008 at 10:05 pm](https://edgeofthewest.wordpress.com/2008/06/12/spyware-virus/#comment-12192)
+
+**urbino**
+
+					
+
+		
+
+Here’s hoping your chapter has breasts and ipods.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 13, 2008 at 12:16 am](https://edgeofthewest.wordpress.com/2008/06/12/spyware-virus/#comment-12205)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+I lost about 15 minutes worth of material … or about three and a half words, two of which I’d already decided to delete.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 13, 2008 at 9:02 am](https://edgeofthewest.wordpress.com/2008/06/12/spyware-virus/#comment-12218)
+
+**rja**
+
+					
+
+		
+
+Someday, say in 2073, your commitment to carry on working in the face of malware attacks and pop-up offers for drugs and porn will seem really heroic.  Almost as inspiring as writing without notes, from memory, at a POW camp or [being forced to edit your brilliance, due to a paper shortage.](http://books.google.com/books?id=t4VE-o27YigC&pg=PA32&lpg=PA32&dq=karl+popper+paper+shortage&source=web&ots=1j4cuxy\_jv&sig=MQm2-xBaeuUF6VxWue0p9XQ-UFs&hl=en&sa=X&oi=book\_result&resnum=4&ct=result)
+
+Seriously, though, I hate when computers conspire against us.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 13, 2008 at 9:05 am](https://edgeofthewest.wordpress.com/2008/06/12/spyware-virus/#comment-12219)
+
+**rja**
+
+					
+
+		
+
+Also, I trace my codependent relationship with my computer to too many hours of [Zork]() and [Hitchhiker’s Guide to the Galaxy]() during a particularly formative period of my life.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

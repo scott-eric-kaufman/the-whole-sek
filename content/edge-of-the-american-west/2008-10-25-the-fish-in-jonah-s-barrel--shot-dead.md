@@ -9,7 +9,6 @@ Tina told Mark that John thought Pauline knew what Sam had planned for Justine, 
 
 My shorthand’s pretty straight-forward: ALL CAPS means emphasis, en dash short pause, em dash longer pause, &c.  Some of the sentences are, yes, ungrammatical when written down—but when read aloud, they make more sense.  (There are complicated linguistic reasons for this _vis-a-vis_ the relation of written language to spoken, and one day I might get into them, but that day ain’t today.)  That said, my talk:
 
-
 I’ve taken the title of this panel–“Blogging and the Academy”–a little literally, but I’ve heard and delivered a number of talks about the role of blogging in the academy–about its intellectual utility and its community-building potential–but haven’t heard much discussion about what impact, if any, the public presence of academics has had on the general level of online discourse.  With that in mind, here are the two types of academic bloggers I won’t be discussing here today: the first is best embodied by former UCI economist Duncan Black, a.k.a. Atrios, whose blog [Eschaton](http://www.eschatonblog.com/) is, by any of the various unreliable measures of online popularity—links, hits, page views, &c.—one of the most powerful voices out there; the second comes in the form of Thers, the pseudonymous proprieter of [Whiskey Fire](http://whiskeyfire.typepad.com/) and an English professor at a small liberal arts college.
 
 Duncan Black I’m avoiding because at this point, Eschaton is little more than a link-aggregator, with his longest recent post logging in at a robust 94 words; Thers I’m avoiding because he deliberately lives up to his namesake, Thersites, and as such is blunt, surly, and coarse; the verbal equivalent of Homer’s powerfully ugly hunchback whose satirical mode is, as Laurence Sterne noted, “[of a pelting kind . . . as black as the very ink ’tis wrote with](http://books.google.com/books?id=rXYLAAAAIAAJ&pg=RA2-PA254&dq=%!T(MISSING)here+is+a+pelting+kind+of+Thersitical+satire,+as+black+as+the+very+ink+%!t(MISSING)is+wrote+with%!&(MISSING)ei=EdL\_SJfOI43gswPi\_42yAw).”  Which is only to say, he responds to people like Jonah Goldberg with deserved venom.
@@ -79,12 +78,394 @@ Thank you.
 
 ### Like this:
 
+
 Like
 
  
 Loading...
 
+
 []()
 
 ### _Related_
 
+
+	
+
+* * *
+
+		
+
+## 15 comments
+
+		
+
+	
+
+		
+
+[October 24, 2008 at 8:58 pm](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24316)
+
+**[Pete](http://wiretv.blogspot.com)**
+
+					
+
+		
+
+Wow! Shot dead indeed. I must also complement your “written “speaking voice… I can’t stand spoken papers in the style of Hegel.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 24, 2008 at 9:05 pm](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24318)
+
+**urbino**
+
+					
+
+		
+
+I like papers spoken in the style of Strother Martin.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 24, 2008 at 9:19 pm](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24319)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+Fair enough — and how do we get from the ending back to the theme? Academics should write strong books, some more and some less “popular” in style, and also engage all media, including blogs but also op-eds and talking heads, to promulgate their thought?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 25, 2008 at 12:32 am](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24325)
+
+**urbino**
+
+					
+
+		
+
+Goldberg is a boob, it’s hard to disagree.  But this doesn’t seem like the strongest of possible arguments, SEK.  Looking at it critically, it basically takes the form of, “How unserious is Goldberg?  So unserious he didn’t take **my** advice when I informed him everyone else he was reading was wrong about Spencer, and explained my own insights into Spencer.”
+
+It seems easily dismissed as personal pique.  It’s not exactly a statement against interest, if you know what I mean.  Maybe the audience made that irrelevant, I dunno.  I just found it striking, as the argument is presented here.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 25, 2008 at 4:28 am](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24330)
+
+**kid bitzer**
+
+					
+
+		
+
+your tina paragraph needs a comma after “at work meant that”.
+
+unless i misunderstood it.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 25, 2008 at 9:12 am](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24333)
+
+**[ptochos](http://ptochoi.blogspot.com/)**
+
+					
+
+		
+
+I’m not sure what your mentioning of Atrios and Thers does here for you. You also don’t offer context for understanding Thers (and even Atrios’s) writings — without this context, your essay may read as if you are engaged in some gratuitous Thers-bashing (I don’t think you are doing this, but that’s how your position-taking “sounds”). My humble suggetion: Just cut out the Thers and Atrios parts because your contrast is too thin to offer any insight.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 25, 2008 at 9:32 am](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24335)
+
+**John Emerson**
+
+					
+
+		
+
+“If you want a picture of the future, imagine a daycare worker giving a toddler a bran muffin – forever.”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 25, 2008 at 9:40 am](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24336)
+
+**John Emerson**
+
+					
+
+		
+
+Granted that SEK can be represented a self-serving in this case,  writing about an author based entirely on received opinion plus secondary authors who agree with you, while blowing off someone who just did a study of the very topic you’re writing on, is not good practice.  We must bracket out our personal feelings about SEK here and treat this question objectively, as per Kant and Bentham.
+
+Or maybe not. Scott? Kant and Bentham? Universalistic, right?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 25, 2008 at 10:15 am](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24337)
+
+**Michael**
+
+					
+
+		
+
+I just want to throw in a quibble: it’s misprision, not misprison.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 25, 2008 at 11:34 am](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24340)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+Michael, that’s an artifact of it being a speech: if I spell it correctly, I can’t pronounce it.  I’ve stuck an explanatory [_sic_] in there.
+
+_Academics should write strong books, some more and some less “popular” in style, and also engage all media, including blogs but also op-eds and talking heads, to promulgate their thought?_
+
+Basically, yes.  But these sorts of activities should be institutionally supported.
+
+_“How unserious is Goldberg? So unserious he didn’t take **my** advice when I informed him everyone else he was reading was wrong about Spencer, and explained my own insights into Spencer.”_
+
+I was being sort of coy with my Spencer expertise—so coy, I almost included the statement wrongly attributed to him, because it was apropos, then note that I knew he didn’t say it: “There is a principle which is a bar against all information, which is proof against all arguments and which cannot fail to keep a man in everlasting ignorance – that principle is contempt prior to investigation.”  But I didn’t want to be cute.
+
+That said, I wanted an example that emphasized the production of scholarly material.  I could’ve just demonstrated he was wrong, but that wouldn’t have put the focus on where I wanted it, _i.e._ that he’s only ever accidentally correct, because his methodology’s blinkered.
+
+(Or what Emerson said.)
+
+_You also don’t offer context for understanding Thers (and even Atrios’s) writings — without this context, your essay may read as if you are engaged in some gratuitous Thers-bashing_
+
+I’m definitely not Thers-bashing.  In fact, I ran my idea by Thers—I was going to quote a bit from an email he’d sent me about “fighting fire with fire,” but I ended up with this demonstration that he’s erudite instead.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 25, 2008 at 2:59 pm](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24346)
+
+**Ben Alpers**
+
+					
+
+		
+
+Semi-OT: here, courtesy of The Editors, is a picture of [Jonah Goldberg if he were an orange kitty](http://thepmi.files.wordpress.com/2008/10/jonah\_cat.jpg).
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 25, 2008 at 5:17 pm](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24359)
+
+**kid bitzer**
+
+					
+
+		
+
+odd; i pronounce it to rhyme with ‘division’ and ‘elision’.
+
+wrongly?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 26, 2008 at 7:01 pm](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24397)
+
+**[Scattered Links - 10/26/2008 (Writing Edition) « history-ing](http://historying.org/2008/10/26/scattered-links-10262008-writing-edition/)**
+
+					
+
+		
+
+[…] Edge of the American West, Scott Kaufman has a great post detailing a talk he gave on a “Blogging and the Academy” panel. The post is noteworthy […]
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 26, 2008 at 7:30 pm](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24398)
+
+**[Thers](http://whiskeyfire.typepad.com)**
+
+					
+
+		
+
+Lot to chew on Scott. Interesting piece.
+
+I always write my talks too — but am totally unable to stick to my scripts. I always get interested in what the other people on the panel are saying & end up talking about that too. Either this works or it doesn’t.
+
+For the record I am not bashed here. I write my blog as I do through a conscious choice to write it like that. This choice has its pluses and minuses. 
+
+I teach at a community college, not a liberal arts college, though.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 27, 2008 at 11:45 am](https://edgeofthewest.wordpress.com/2008/10/24/the-fish-in-jonahs-barrel-shot-dead/#comment-24472)
+
+**[Academics, Political Scholarship, and Jonah Goldberg « The Kugelmass Episodes](http://kugelmass.wordpress.com/2008/10/27/academics-political-scholarship-and-jonah-goldberg/)**
+
+					
+
+		
+
+[…] at Acephalous (and at The Edge of the American West), Scott Kaufman has posted the text of Friday’s panel presentation on Jonah Goldberg (Liberal […]
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

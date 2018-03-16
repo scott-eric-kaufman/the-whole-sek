@@ -47,3 +47,328 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 13 comments
+
+		
+
+	
+
+		
+
+[July 27, 2008 at 6:18 pm](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-16048)
+
+**Vance Maverick**
+
+					
+
+		
+
+_If Bush-is-Batman and Batman-is-Roosevelt, logic demands that middle be distributed_
+
+That depends on what the meaning of “is” is, doesn’t it?  Somehow I suspect neither one is simple equivalence.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 27, 2008 at 8:02 pm](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-16051)
+
+**[Giblets](http://fafblog.blogspot.com)**
+
+					
+
+		
+
+_Bob Kane’s Gotham_
+
+Bill Finger hates you, Scott.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 27, 2008 at 10:14 pm](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-16056)
+
+**Louis**
+
+					
+
+		
+
+“his beloved mother and wife died in the same house.”  
+
+At long last, Theodore Rex is replaced by – –   Toedipus Rex. 
+
+(Sorry)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 28, 2008 at 5:50 am](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-16062)
+
+**[Martin G](http://pen-to-paper.blogspot.com)**
+
+					
+
+		
+
+Wait, what? Airwolf is an adjective now? People, you have to tell me these things.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 28, 2008 at 6:20 am](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-16063)
+
+**[Speak In A Raspy Growl and Carry a Batarang](http://www.robmacdougall.org/index.php/2008/07/speak-in-a-raspy-growl-and-carry-a-batarang/)**
+
+					
+
+		
+
+[…] Scott Kaufman reports (without, alas, documentation) that Christopher Nolan and Christian Bale based their Batman, in part, on Teddy Roosevelt. […]
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 28, 2008 at 10:15 am](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-16073)
+
+**urbino**
+
+					
+
+		
+
+_buries a wisp-thin frame beneath layers of clothes as if to prevent circumstance from buffeting his head into a doorknob_
+
+Excellent.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 29, 2008 at 12:21 pm](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-16139)
+
+**[eric](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+Another vote for [The History Channel](http://meaningfuldistractions.wordpress.com/2008/07/22/news\_new\_batman\_historical\_identity\_revealed\_55232/) as source.  Of course, did Nolan come up with this just so the History Channel could do a documentary?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 29, 2008 at 1:17 pm](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-16152)
+
+**[movie buff](http://www.kogmedia.com)**
+
+					
+
+		
+
+looking forward to seeing Dark Knight so much… Christian Bale does a consistently great job no matter what role he takes
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 30, 2008 at 11:30 am](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-16251)
+
+**Western Dave**
+
+					
+
+		
+
+“Christian Bale does a consistently great job no matter what role he takes” Um, I guess you didn’t you see Newsies?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 30, 2008 at 11:37 am](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-16252)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+_Another vote for The History Channel as source._
+
+That summary suggests it’s just Nolan speaking, not Nolan and Bale, so I don’t think that’s my source.  (Probably something he repeated on the junket.)  Also, he doesn’t seem to have mentioned Morris, which he did in the one I saw — they even flashed the covers of both volumes as he was talking.  
+
+Plus, you know, only having three channels and all.  (I’m only being difficult because it sounds like whatever _Access Entertainment Hollywood Tonight Now Today_ show I saw seems to be a little more detailed.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 22, 2008 at 5:20 pm](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-21651)
+
+**[Photographs don’t lie. « The Edge of the American West](https://edgeofthewest.wordpress.com/2008/09/22/photographs-dont-lie/)**
+
+					
+
+		
+
+[…] 22, 2008 in history and current events by SEK    All that talk about Bush being Batman? I think conservatives may’ve been […]
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 23, 2008 at 5:03 am](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-21676)
+
+**[Josh Carrollhach](http://www.clenchandcheese.com)**
+
+					
+
+		
+
+Batman, a megalomaniac bent on revenge who uses vigilante violence and works entirely in secret. defying the law and the citizenry if it suits his “I will save you” morality vs Bush, a bumbling nincompoop who only wishes he could do the same?
+
+Roosevelt was a brilliant man who distinguished himself in combat, in science, in philosophy and in politics. Bush is a charlatan and colossal  screw-up who has more in common with Donald Trump than any man of genuine substance. 
+
+This argument is a lard balloon, I think…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[September 23, 2008 at 7:07 am](https://edgeofthewest.wordpress.com/2008/07/27/teddy-in-tights/#comment-21679)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+But is Batman just a vigilante?  A vigilante is just a man lost in the scramble for his own gratification.  But Bush, er, I mean, Batman, thinks history will justify his actions.  He didn’t invade Iraq because Saddam threatened to kill his parents, he didn’t!  I mean, really.  Nonsense, all of it.
+
+Wait, what?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

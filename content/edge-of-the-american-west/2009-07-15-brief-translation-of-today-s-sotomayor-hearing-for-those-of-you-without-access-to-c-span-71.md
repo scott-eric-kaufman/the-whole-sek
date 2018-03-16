@@ -114,3 +114,334 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 13 comments
+
+		
+
+	
+
+		
+
+[July 14, 2009 at 8:22 pm](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49447)
+
+**[Russell60](http://schnoodledog.blogspot.com)**
+
+					
+
+		
+
+Thanks for the public service, SEK.  
+
+I don’t know how my state got so lucky as to have two whole senators who are not this stupid.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 14, 2009 at 9:12 pm](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49448)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+_You’ve always been able to find a legal basis for every decision that you’ve rendered as a judge?_
+
+That’s the “just in case she’s got a guilty conscience and no common sense whatsoever. Like me” question.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 14, 2009 at 10:16 pm](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49450)
+
+**Duvall**
+
+					
+
+		
+
+_You’ve always been able to find a legal basis for every decision that you’ve rendered as a judge?_
+
+Well, she was a district court judge, so the true answer is almost certainly no.  But she could hardly be expected to \*say\* that.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 15, 2009 at 6:04 am](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49452)
+
+**rea**
+
+					
+
+		
+
+_When Judge Rehnquist says he was a strict constructionist, did you know what he was talking about?_
+
+What an odd question!  Because what Rehnquist, then an AAG, told Nixon in a memo was:
+
+“A judge who is a “strict constructionist” in constitutional matters will generally not be favorably inclined toward claims of either criminal defendants or civil rights plaintiffs”
+
+ . . . which is probably not the answer Sen. Graham wanted to hear.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 15, 2009 at 6:35 am](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49454)
+
+**human**
+
+					
+
+		
+
+OMFG.  I am glad I am not watching this s\*\*t.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 15, 2009 at 9:50 am](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49456)
+
+**TheBrucolac**
+
+					
+
+		
+
+DICK DURBIN (D): While white victims account for about one-half of all murder victims, 80 percent of death penalty cases involve victims who are white. This raises from obvious questions we have to face on this side of the table. I’m asking you if it raises questions of justice and fairness on your side of the table.
+
+    [I am a white person. You are not. Will you protect white people like me from people like you?]
+
+Isn’t this actually “[Not-white people get screwed.  Tell me about that.]”?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 15, 2009 at 9:52 am](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49457)
+
+**rea**
+
+					
+
+		
+
+_I am glad I am not watching_
+
+What, you’re going to skip David Cone testifying about how the judge saved Major League Baseball?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 15, 2009 at 9:59 am](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49458)
+
+**human**
+
+					
+
+		
+
+Would this require giving a crap about Major League Baseball?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 15, 2009 at 10:41 am](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49460)
+
+**politicalfootball**
+
+					
+
+		
+
+We need to elect SEK as AP’s Washington Bureau Chief. Here’s how the incumbent handled the same material:
+
+[http://news.yahoo.com/s/ynews/ynews\_pl508](http://news.yahoo.com/s/ynews/ynews\_pl508)
+
+And here’s Benen’s takedown of same:
+
+[http://www.washingtonmonthly.com/archives/individual/2009\_07/019055.php](http://www.washingtonmonthly.com/archives/individual/2009\_07/019055.php)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 15, 2009 at 1:02 pm](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49464)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+_We need to elect SEK as AP’s Washington Bureau Chief._ 
+
+Do they pay in money?  Because I like money and could do a damn sight better than that pap.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 15, 2009 at 2:30 pm](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49471)
+
+**docdave**
+
+					
+
+		
+
+Thanks, SEK.  You pulled on the hip-waders so we didn’t have to.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 15, 2009 at 10:45 pm](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49479)
+
+**gulo**
+
+					
+
+		
+
+Brilliant, but the thing about Kyl is he ain’t stupid, or incompetent, just purely freakin’ evil. (He was top of his class at U of Az law school, which I know ’cause a close relative wasn’t; Kyl was a rat bastard already by then.)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 16, 2009 at 12:16 pm](https://edgeofthewest.wordpress.com/2009/07/14/brief-translation-of-todays-sotomayor-hearing-for-those-of-you-without-access-to-c-span-71/#comment-49509)
+
+**Brock**
+
+					
+
+		
+
+Good Lord, the Senator’s name is actually “Jefferson Beauregard Sessions III”? I thought you were joking until I looked it up.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

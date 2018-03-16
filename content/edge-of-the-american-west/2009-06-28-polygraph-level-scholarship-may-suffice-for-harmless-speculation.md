@@ -77,3 +77,513 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 21 comments
+
+		
+
+	
+
+		
+
+[June 28, 2009 at 4:34 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48698)
+
+**[blueollie](http://blueollie.wordpress.com/)**
+
+					
+
+		
+
+Actually, I’ve written many of the top papers in topology.  How can I prove this?  Many (if not most) papers contain my line:  “let X be a topological space…”
+
+:)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 28, 2009 at 4:41 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48700)
+
+**Charlieford**
+
+					
+
+		
+
+To do:
+
+1.  Stop world.
+
+2.  Get off.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 28, 2009 at 5:16 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48701)
+
+**TF Smith**
+
+					
+
+		
+
+Nice work, Professor K…
+
+ One question I have for the various “Obama is the BLANK” theorists is don’t they have something better to do? 
+
+ I mean, seriously, the party of Lincoln (you know, the guy who saved the union, got the land grant college and homestead bills passed, and, oh yeah, guaranteed a new birth of freedom) and Eisenhower (you know, fiscal conservative, warned against thje MIC, bolstered the Atlantic Alliance, yadda yadda) is melting into the Dixiecrats Redux – shouldn’t they all be running for their local county or state party committee to try and turn things around?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 28, 2009 at 7:11 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48708)
+
+**Roger Albin**
+
+					
+
+		
+
+For a further rebuttal of this bizarre idea, see: 
+
+[http://www.philocomp.net/humanities/dreams](http://www.philocomp.net/humanities/dreams)
+
+the author is Peter Millican, a philosopher at Oxford with a professional interest in textual analysis and the developer of one of the standard programs for examining authorship.  Millican was apparently approached on the eve of the election by someone with Republican party connections and offered a substantial sum if he could provide evidence that Ayers was Obama’s ghostwriter.  For the details see:
+
+[http://www.timesonline.co.uk/tol/news/world/us\_and\_americas/us\_elections/article5063279.ece](http://www.timesonline.co.uk/tol/news/world/us\_and\_americas/us\_elections/article5063279.ece)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 28, 2009 at 8:05 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48710)
+
+**[Izabella](http://ilaba.wordpress.com)**
+
+					
+
+		
+
+Blueollie – Sure, but what about the Poincare conjecture?  No claim on that?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 28, 2009 at 8:35 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48711)
+
+**kathy a.**
+
+					
+
+		
+
+i have it on good authority that obama studied both american literature and law.  is it possible that anyone else in the nation studied the same two subjects, besides ayers?  and, um, me.  and a few dozen or hundred people i could personally identify with prompts.  and, well, i hate to bring this up, but there do seem to be quite a lot of colleges teaching literature, not to mention an abundance of law schools scattered around.  
+
+great post!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 28, 2009 at 8:51 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48713)
+
+**Jackmormon**
+
+					
+
+		
+
+_“hog butcher to the world”_ is a better line.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 28, 2009 at 9:34 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48714)
+
+**Walt**
+
+					
+
+		
+
+Until this post, I thought the line _was_ “hog butcher to the world”.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 28, 2009 at 9:38 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48715)
+
+**[Vance](https://edgeofthewest.wordpress.com/)**
+
+					
+
+		
+
+So Walt, are you Obama or Ayers?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 28, 2009 at 9:46 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48716)
+
+**ari**
+
+					
+
+		
+
+I still think that’s the right line.  And I call Ayers.  Because I’m no Muslim.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 28, 2009 at 10:08 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48718)
+
+**stevenattewell**
+
+					
+
+		
+
+Jackmormon – I agree. “Hog butcher for the world” doesn’t scan right, because it doesn’t fit the normal parlance of “purveyor of finest X to the gentry/masses/all of London.”
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 29, 2009 at 1:29 am](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48721)
+
+**[andrew](http://thewayside.wordpress.com)**
+
+					
+
+		
+
+I had no idea Obama wrote a report for the Illinois Commission on Automation and Technological Progress when he was in grade school. Audacious.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 29, 2009 at 7:51 am](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48733)
+
+**[Russell Belding](http://schnoodledog.blogspot.com)**
+
+					
+
+		
+
+I thought it was Carl Sandberg.  It seems strange that Obama and Ayers would both know the correct spelling.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 29, 2009 at 8:42 am](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48737)
+
+**Chris**
+
+					
+
+		
+
+_Ayers and Obama each refer knowingly to a “bill of particulars.” Doesn’t everyone?_
+ __ 
+
+_The answer, of course, is no._
+
+No, not everyone, but I would bet that most presidents of the Harvard Law Review would be able to refer knowingly to a bill of particulars.  A solid majority, even.
+
+Where Ayers learned the term, I don’t know, but come on, if Cashill was looking up the term, he might as well have looked up where it came from, and compared the result to the CVs of the two men he was studying.  That kind of thing is pretty high on the Top 100 Ways To Avoid Embarrassing Yourself On The Internet.
+
+Tracing manuscripts by comparing the errors in them is an actual scholarly discipline, which may have given Cashill the idea for this column.  But it’s clearly a discipline Cashill knows nothing about – his error is way too common, and is therefore an F-level match (and even a semi-aware layperson can recognize that, which relegates Cashill to whatever is below semi-awareness).  If they had both referred to Chicago as “dog butcher to the world”, or claimed that \*that\* was what Sandburg said, that might be worth something – although, by itself, still not much.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 29, 2009 at 9:02 am](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48738)
+
+**[adamhenne](http://adamhenne.wordpress.com)**
+
+					
+
+		
+
+It actually appears to me that what you’ve proved with this Sandburg misquote is that Ayers also ghostwrote for Algers, Lomax, Mencken, et al. The scope of this conspiracy clearly exceeds anything the GOP is willing to discuss out loud, but the truth will out.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 29, 2009 at 9:28 am](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48739)
+
+**Anderson**
+
+					
+
+		
+
+As the saying goes, Cashill’s article is a signed confession of his own stupidity.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 29, 2009 at 9:46 am](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48740)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+_Tracing manuscripts by comparing the errors in them is an actual scholarly discipline_
+
+That it is, says the guy who’s married to someone who does [paleographical studies](http://en.wikipedia.org/wiki/Palaeography).  Maybe that’s why I find this sort of error-culling so galling: I’ve seen what’s required to trace medieval manuscripts across Europe over centuries, so this sort of piss-ant “analysis” strikes me as both stupid _and_ lazy.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 29, 2009 at 12:52 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48746)
+
+**Charlieford**
+
+					
+
+		
+
+I have no law training and by many accounts am only half-educated–or educated beyond my intelligence–actually, no reason it can’t be both is there?–and I’ve been familiar with the phrase “bill of particulars” since time out of mind.  I think it’s got a certain amount of pop-culture purchase.  I wouldn’t have thought of it as jargon or technical language.  So, I think what we have here is, stated simply, a real dope.  He sees the world through his dopey eyes, and he comes to dopey conclusions.  This is why these people–think Horowitz et al–are so chary about higher education.  They rightly perceive it as a form of cultural aggression, a threat to their tribe.  The more people who are effectively educated, the more their tribe of paranoid, parochial dopes will dwindle.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 29, 2009 at 2:18 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48748)
+
+**[kth](http://ktheintz.wordpress.com/)**
+
+					
+
+		
+
+That he doesn’t know from ‘baleful’, I can’t really believe. Must be another explanation, like a failed attempt at faux-populist self-deprecation.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 29, 2009 at 9:19 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48772)
+
+**The Tragically Flip**
+
+					
+
+		
+
+This is some Sadly No! level stuff.   And that is a compliment.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[June 30, 2009 at 1:57 pm](https://edgeofthewest.wordpress.com/2009/06/28/polygraph-level-scholarship-may-suffice-for-harmless-speculation-about-the-authorship-of-midsummers-night-dream-but-not-for-dreams-from-my-father-too-much-is-at-stake/#comment-48845)
+
+**touhy**
+
+					
+
+		
+
+Any one who has even spent any time in the presence of Bill Ayers must know that he would never ghost write for anyone.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

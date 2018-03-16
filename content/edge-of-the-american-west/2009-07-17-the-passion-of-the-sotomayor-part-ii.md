@@ -173,3 +173,170 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 6 comments
+
+		
+
+	
+
+		
+
+[July 17, 2009 at 12:27 am](https://edgeofthewest.wordpress.com/2009/07/16/the-passion-of-the-sotomayor-part-ii/#comment-49535)
+
+**max**
+
+					
+
+		
+
+_what is your generic opinion about how the federal should handle who individual states let marry?_
+
+Goddammit, I believe in states’ rights! States should be allowed to 
+marry
+ gaymarry any other state they want!
+
+max  
+
+[‘I really can’t believe you guys are watching this.’]
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 17, 2009 at 5:43 am](https://edgeofthewest.wordpress.com/2009/07/16/the-passion-of-the-sotomayor-part-ii/#comment-49538)
+
+**rea**
+
+					
+
+		
+
+_Do you believe that judges ever change the law?_
+
+And of course, any rational discourse abut the epistemology of common law would be isntantly disqualifying.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 17, 2009 at 7:17 am](https://edgeofthewest.wordpress.com/2009/07/16/the-passion-of-the-sotomayor-part-ii/#comment-49539)
+
+**[Scott Madin](http://smadin.wordpress.com/)**
+
+					
+
+		
+
+Cornyn’s edging up to Birther territory, here.  That’s kind of awesome.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 17, 2009 at 8:07 am](https://edgeofthewest.wordpress.com/2009/07/16/the-passion-of-the-sotomayor-part-ii/#comment-49541)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+_Judge Sotomayor, what is the difference, to your mind, between a political contribution and a bribe?_
+
+That is, without a doubt, one of the most hypocritical, ironic, and potentially self-destructive questions I’ve ever heard in a political setting. 
+
+Whoever is running against Cornyn, if they’ve got an ounce of strategic sense, is going to run that clip over and over again with a list of Cornyn’s more interesting contributors.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 17, 2009 at 8:45 am](https://edgeofthewest.wordpress.com/2009/07/16/the-passion-of-the-sotomayor-part-ii/#comment-49543)
+
+**ben**
+
+					
+
+		
+
+This is a valuable service you’re performing, SEK. Keep it up.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[July 17, 2009 at 12:48 pm](https://edgeofthewest.wordpress.com/2009/07/16/the-passion-of-the-sotomayor-part-ii/#comment-49548)
+
+**Gabriel**
+
+					
+
+		
+
+_Judge Sotomayor, what is the difference, to your mind, between a political contribution and a bribe?_
+
+I’ve already made up my mind on the vote, but I’ve got this campaign contributor who’s just \*begging\* to give me money, and I was hoping to get some free legal advice while you’re here…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

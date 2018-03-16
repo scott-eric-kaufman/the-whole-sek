@@ -102,3 +102,226 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 9 comments
+
+		
+
+	
+
+		
+
+[October 5, 2008 at 5:33 pm](https://edgeofthewest.wordpress.com/2008/10/05/an-american-carol-funny-or-funniest-film-ever/#comment-22692)
+
+**[ben wolfson](http://waste.typepad.com)**
+
+					
+
+		
+
+_persuaded that names like David Zucker, Steve McEveety, Myrna Sokoloff, Jon Voight, Kelsey Grammar, Robert Davi, and An American Carol star Kevin Farley will one day be recognized as revolutionaries._
+
+The names will be revolutionaries?
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 5, 2008 at 5:50 pm](https://edgeofthewest.wordpress.com/2008/10/05/an-american-carol-funny-or-funniest-film-ever/#comment-22693)
+
+**expat lumberjack**
+
+					
+
+		
+
+In Soviet Russia, even the words have revolutionary ardor.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 5, 2008 at 8:03 pm](https://edgeofthewest.wordpress.com/2008/10/05/an-american-carol-funny-or-funniest-film-ever/#comment-22696)
+
+**tf smith**
+
+					
+
+		
+
+I’m still trying to figure out who the literature expert confused Jack London with – Joseph Conrad, maybe? Of course, Conrad emigrated to the U.K., not the U.S., but given the level of expertise displayed…
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 5, 2008 at 8:56 pm](https://edgeofthewest.wordpress.com/2008/10/05/an-american-carol-funny-or-funniest-film-ever/#comment-22699)
+
+**Brad**
+
+					
+
+		
+
+Come on, Jack London must have taught himself English.  He was born in San Francisco, which is certainly not _Real America_.  Goshdarnit, they speak Spanish there!
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 5, 2008 at 9:02 pm](https://edgeofthewest.wordpress.com/2008/10/05/an-american-carol-funny-or-funniest-film-ever/#comment-22700)
+
+**Josh**
+
+					
+
+		
+
+_noted comedic genius, David Zucker.\*_
+
+I was sure that the asterisk was going to note that in the trailer for _An American Carol_, the source for the quote about David Zucker being “the master of movie satire” was… David Zucker.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 5, 2008 at 9:59 pm](https://edgeofthewest.wordpress.com/2008/10/05/an-american-carol-funny-or-funniest-film-ever/#comment-22704)
+
+**[Ortho](http://baudrillardsbastard.blogspot.com/)**
+
+					
+
+		
+
+Real Americans are flocking to see _Proud American_.
+
+[http://www.proudamericanfilm.com/pages/PAtrailer.html](http://www.proudamericanfilm.com/pages/PAtrailer.html)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 6, 2008 at 2:51 am](https://edgeofthewest.wordpress.com/2008/10/05/an-american-carol-funny-or-funniest-film-ever/#comment-22710)
+
+**[andrew](http://thewayside.wordpress.com)**
+
+					
+
+		
+
+It would be great if Real America were a Spanish soccer team.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 6, 2008 at 6:36 am](https://edgeofthewest.wordpress.com/2008/10/05/an-american-carol-funny-or-funniest-film-ever/#comment-22712)
+
+**[Ahistoricality](http://ahistoricality.blogspot.com)**
+
+					
+
+		
+
+_Over the weekend, both Bill Maher’s film “Religulous” and David Zucker’s right-wing “An American Carol” opened up at the box office. Although “An American Carol” was playing on three times as many screens as “Religulous,” three times as many people went to see Maher’s film, and [box office receipts](http://boxofficemojo.com/weekend/chart/) were roughly the same._ — [Think Progress](http://thinkprogress.org/2008/10/06/thinkfast-october-6-2008/#more-30274)
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 6, 2008 at 11:45 am](https://edgeofthewest.wordpress.com/2008/10/05/an-american-carol-funny-or-funniest-film-ever/#comment-22726)
+
+**Brad**
+
+					
+
+		
+
+America is a Mexican team.  Mexican’s don’t go in much for the real stuff for, um, historical reasons.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

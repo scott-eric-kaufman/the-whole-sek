@@ -17,9 +17,12 @@ And the man responsible for this quintessential American photograph?  A German 
 
 \*Only F. Lee Bailey remains skeptical.  “If you honestly believe something you won’t flunk a polygraph,” the man who orchestrated O.J. Simpson’s defense [told ABC news](http://abcnews.go.com/US/Story?id=3422191&page=2) in 2007.  Shortly after the murders of Nicole Brown Simpson and Ron Goldman, he “[stopped [Simpson’s polygraph test] because it was not going well](http://query.nytimes.com/gst/fullpage.html?res=9404E7DA163FF936A35755C0A9669C8B63).”  Seems Simpson didn’t honestly believe in his innocence in June 1994.  ([Nor since](http://www.slate.com/id/2157652/pagenum/2/), for that matter.)
 
+
 \*\*Also lost to history: Ebbets Field.  The Jackie Robinson Apartments — [artfully, if a bit ominously, framed by yours truly courtesy of Google Street View](http://maps.google.com/maps?f=q&hl=en&geocode=&q=jackie+robinson+apartments,+brooklyn,+ny&ie=UTF8&ll=40.664412,-73.95907&spn=0.002262,0.004141&t=h&z=18&layer=c&cbll=40.663392,-73.95915&panoid=GFreLZyAltJ3m253\_Fylxg&cbp=1,35.318402938884674,,0,-26.998751511678194) — now occupy that block.
 
+
 \*\*\*Just like the video, today’s “Kiss Cam” featured a marriage proposal.  It went better than [this one](http://www.chron.com/disp/story.mpl/sports/5070401.html), but maybe only barely: a quick chaste peck, a man on his knee, a woman’s face screwed as if scalded, then the stadium PA blared “SHE SAID YES!” and the [fancy digital scoreboard](http://www.thebirdwatch.com/archives/everett.jpg) cut to a shot of the [clunky, retro scoreboard](http://lh5.ggpht.com/kylemuegge/SFfer4c2AnI/AAAAAAAAADQ/Tk75M1rug1k/DSCN4300.JPG?imgmax=512) flashing “SHE SAID YES!”  I suspect tears, recriminations, then years of therapy for all involved.
+
 
 \*\*\*\*In the face with a shovel until it whimpered.  Then some more.
 
@@ -39,12 +42,176 @@ And the man responsible for this quintessential American photograph?  A German 
 
 ### Like this:
 
+
 Like
 
  
 Loading...
 
+
 []()
 
 ### _Related_
 
+
+	
+
+* * *
+
+		
+
+## 6 comments
+
+		
+
+	
+
+		
+
+[August 3, 2008 at 8:18 pm](https://edgeofthewest.wordpress.com/2008/08/03/baseball-and-iconic-pda-tdih-fwiw-ok/#comment-16624)
+
+**urbino**
+
+					
+
+		
+
+I say we allow any octogenarian with enough vim to want to be identified as the sailing smoocher to be so identified.  And celebrated.  Feted, even.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 3, 2008 at 9:24 pm](https://edgeofthewest.wordpress.com/2008/08/03/baseball-and-iconic-pda-tdih-fwiw-ok/#comment-16627)
+
+**Vance Maverick**
+
+					
+
+		
+
+And SEK FTW.  Nice post (I inadvertently posted my pedantry on your specialist blog).
+
+The statue [linked from that Wikipedia page](http://en.wikipedia.org/wiki/Image:Unconditional\_Surrender\_statue\_San\_Diego.jpg) is something else.  Tasteful title, too.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 3, 2008 at 9:27 pm](https://edgeofthewest.wordpress.com/2008/08/03/baseball-and-iconic-pda-tdih-fwiw-ok/#comment-16628)
+
+**grackle**
+
+					
+
+		
+
+I second Urbino even while I earnestly hope that you, SEK, have completed and handed in your dissertation.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 3, 2008 at 10:38 pm](https://edgeofthewest.wordpress.com/2008/08/03/baseball-and-iconic-pda-tdih-fwiw-ok/#comment-16634)
+
+**urbino**
+
+					
+
+		
+
+Ooo, yes.  That, too.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 4, 2008 at 5:11 am](https://edgeofthewest.wordpress.com/2008/08/03/baseball-and-iconic-pda-tdih-fwiw-ok/#comment-16646)
+
+**[zunguzungu](http://zunguzungu.wordpress.com)**
+
+					
+
+		
+
+That life magazine article is a gold-mine. For example, it speaks of how “she went to see the V-J Day melee–and was promptly set upon. Then single, she was unastonished–“at that time in my life everyone was kissing me.” But wait! It wasn’t only the being of a nurse that was apparently cause for being “set upon” with regularity, but on “that unforgetable day–August 15, 1945–any swabbie worth his bell-bottoms kissed any girl within reach.” Man, we are a strange culture. 
+
+There’s also something interesting about how “LIFE magazine has never identified the couple in the historic embrace–and probably never will.” Like they know but prefer not to tell, sort of a less morbid “tomb of the unknown soldier.” Actually, thinking about it, there’s a kind of lovely symmetry to that.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[August 4, 2008 at 10:04 am](https://edgeofthewest.wordpress.com/2008/08/03/baseball-and-iconic-pda-tdih-fwiw-ok/#comment-16661)
+
+**[SEK](http://acephalous.typepad.com/)**
+
+					
+
+		
+
+_I second Urbino even while I earnestly hope that you, SEK, have completed and handed in your dissertation._
+
+Almost!  (The sooner, the better, as deadlines loom like hurricanes.)
+
+_Man, we are a strange culture._
+
+The video of the kiss — as presented in the PBS series _The History of New York_ — makes it seem far less creepy.  It was like they were all, um, still in Times’ Square, only on New Years’ Eve.  Everyone was soliciting random displays of celebratory affection.  But yes, the descriptions entail a forceful masculinity we associate with rapists.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  

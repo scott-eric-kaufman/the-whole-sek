@@ -32,3 +32,68 @@ Loading...
 
 ### _Related_
 
+	
+
+* * *
+
+		
+
+## 2 comments
+
+		
+
+	
+
+		
+
+[October 13, 2008 at 12:25 pm](https://edgeofthewest.wordpress.com/2008/10/13/the-secretary-of-awesome/#comment-23306)
+
+**[Stephen](http://www.cogitamusblog.com)**
+
+					
+
+		
+
+That’s where he is.
+
+Kotsko’s great – we recovering Nazarenes need to keep track of each other, so thanks for pointing out his digs.
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+[October 13, 2008 at 10:02 pm](https://edgeofthewest.wordpress.com/2008/10/13/the-secretary-of-awesome/#comment-23369)
+
+**[Adam Kotsko](http://itself.wordpress.com/)**
+
+					
+
+		
+
+Thanks for the link. I’ve often despaired at the decline in linking culture in blogs nowadays. Why, in my day….
+
+		
+
+		
+
+						
+
+	
+
+	
+
+		
+
+		
+
+	
+
+	  
