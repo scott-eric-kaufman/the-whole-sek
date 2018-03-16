@@ -15,19 +15,19 @@ They are.
 
 All the outrage centers around a conference call designed, in the words soon-to-be-becked\* Yosi Sergant, “to raise the visibility” for a program [whose purpose](http://www.911dayofservice.org/Mission/) is to encourage “all Americans and others throughout the world to voluntarily perform at least one good deed or another service activity on the anniversary of 9/11 each year, and on other days marked by terrorist events.”  The problem, it seems, is that the NEA is supposed to be above partisanship, and supporting the President’s United We Serve initiative is seen by conservatives to be a partisan issue.  Here are some of its highly partisan goals:
 
-We want to make Americans’ lives better by asking everybody to participate in shaping the life of their community and make the quality of life better.
+> We want to make Americans’ lives better by asking everybody to participate in shaping the life of their community and make the quality of life better.
 
 Clearly, “making Americans’ lives better” is a partisan issue.  Which would be acceptable, were the administration not being so heavy-handed:
 
-[H]ow do we move the people who look to each of you for guidance to get involved?  We have to leave that to you because nobody else knows how to do it better than you do[.]
+> [H]ow do we move the people who look to each of you for guidance to get involved?  We have to leave that to you because nobody else knows how to do it better than you do[.]
 
 Clearly, dictating that individual organizations ought to do what they think is appropriate in a manner of their own choosing is but one step from installing Obama as Dictator for Life.  Which is what they will do, because these are doggedly partisan projects:
 
-I hearken back to an example that happened right before election day during the campaign when a bunch of DJs got together and put on a conference call for all the top radio and club DJs around the country who got onto a telephone call and encouraged everyone to make DJ mixes using songs that would encourage people to get out and vote.
+> I hearken back to an example that happened right before election day during the campaign when a bunch of DJs got together and put on a conference call for all the top radio and club DJs around the country who got onto a telephone call and encouraged everyone to make DJ mixes using songs that would encourage people to get out and vote.
 
 And when these hip-hop-listening kids went out and voted for whomever they so desired, who did they vote for?  _The_ _Dictator for Life_, who now wants them to
 
-to go out and donate blood or adopt an alley way or identify some walls in [their] neighborhood that have been stricken with graffiti that need a mural.
+> to go out and donate blood or adopt an alley way or identify some walls in [their] neighborhood that have been stricken with graffiti that need a mural.
 
 According to conservatives, encouraging artists to encourage kids to donate blood is now a partisan activity because it falls under the heading of “service,” and “service” is communism; “service” is socialism; “service” is Marxism; “service” is fascism.
 
@@ -43,47 +43,7 @@ Alternatively (and [to maintain my honor](http://www.unfogged.com/archives/comme
 
 ([_x-posted_](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/).)
 
-		
-
-			
-
-				[](https://wordpress.com/about-these-ads/)
-				
-
-					
-				
-
-			
-
-		
-
-### Like this:
-
-
-Like
-
- 
-Loading...
-
-
-[]()
-
-### _Related_
-
-
-	
-
 * * *
-
-		
-
-## 72 comments
-
-		
-
-	
-
-		
 
 [September 21, 2009 at 2:51 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53397)
 
@@ -106,6 +66,7 @@ Loading...
 	
 
 		
+* * *
 
 [September 21, 2009 at 4:04 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53403)
 
@@ -128,6 +89,7 @@ genius.
 	
 
 		
+* * *
 
 [September 21, 2009 at 4:28 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53406)
 
@@ -152,6 +114,7 @@ Next up:  Arbor Day and the Fifth Column.
 	
 
 		
+* * *
 
 [September 21, 2009 at 8:37 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53417)
 
@@ -174,6 +137,7 @@ You spelled that verb wrong.  The correct spelling is “bork.”
 	
 
 		
+* * *
 
 [September 21, 2009 at 9:40 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53419)
 
@@ -198,6 +162,7 @@ This is almost as dumb as the yodeling that transpired when Obama ordered dijon 
 	
 
 		
+* * *
 
 [September 21, 2009 at 10:18 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53421)
 
@@ -220,6 +185,7 @@ Didn’t you know, dave, that the Hatch Act could be violated without nary a dol
 	
 
 		
+* * *
 
 [September 21, 2009 at 11:08 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53423)
 
@@ -244,6 +210,7 @@ SEK: Great post.
 	
 
 		
+* * *
 
 [September 21, 2009 at 11:20 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53425)
 
@@ -266,6 +233,7 @@ Shouldn’t these folks be worrying about their precious bodily fluids, or flori
 	
 
 		
+* * *
 
 [September 21, 2009 at 11:40 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53427)
 
@@ -288,6 +256,7 @@ Oh fiddlesticks.  Conservatives aren’t complaining about the attempt to enlist
 	
 
 		
+* * *
 
 [September 22, 2009 at 12:08 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53428)
 
@@ -316,6 +285,7 @@ max
 	
 
 		
+* * *
 
 [September 22, 2009 at 4:34 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53432)
 
@@ -340,6 +310,7 @@ Conservatives should have yelled about what Bush did, but thats no excuse for wh
 	
 
 		
+* * *
 
 [September 22, 2009 at 6:25 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53435)
 
@@ -364,6 +335,7 @@ It’s also worth noting that the website’s other big claim to fame is the Vic
 	
 
 		
+* * *
 
 [September 22, 2009 at 7:52 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53437)
 
@@ -390,6 +362,7 @@ Not many other purposes qualify – certainly not arts and humanities.
 	
 
 		
+* * *
 
 [September 22, 2009 at 7:56 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53438)
 
@@ -412,6 +385,7 @@ oh fuck off to a country that thinks like that then.
 	
 
 		
+* * *
 
 [September 22, 2009 at 8:07 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53439)
 
@@ -438,6 +412,7 @@ I hope you also refuse to use socialist highways. Use an ATV from place to place
 	
 
 		
+* * *
 
 [September 22, 2009 at 8:17 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53441)
 
@@ -462,6 +437,7 @@ You haven’t made much of a case that it **is** happening, given that the confe
 	
 
 		
+* * *
 
 [September 22, 2009 at 8:23 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53442)
 
@@ -486,6 +462,7 @@ No conservative has ever earned anything honestly. They’re all skimmers off so
 	
 
 		
+* * *
 
 [September 22, 2009 at 8:50 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53444)
 
@@ -514,6 +491,7 @@ Then there is the claim that the right has highlighted and therefore distorted t
 	
 
 		
+* * *
 
 [September 22, 2009 at 8:59 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53446)
 
@@ -536,6 +514,7 @@ I thought that, finally, electing Obama would make me not ashamed to be American
 	
 
 		
+* * *
 
 [September 22, 2009 at 9:51 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53449)
 
@@ -562,6 +541,7 @@ Eventually I’ll come to grips with the hypocrisy of the right-wing calling nat
 	
 
 		
+* * *
 
 [September 22, 2009 at 10:15 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53451)
 
@@ -584,6 +564,7 @@ By the way, the NEA did not “listen in” on the call;  Mr. Sargant sponsored 
 	
 
 		
+* * *
 
 [September 22, 2009 at 12:35 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53462)
 
@@ -608,6 +589,7 @@ True — SEK forgot about that part.  But I haven’t!  I am holding a rock that
 	
 
 		
+* * *
 
 [September 22, 2009 at 12:52 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53463)
 
@@ -630,6 +612,7 @@ Well-played, sir.
 	
 
 		
+* * *
 
 [September 22, 2009 at 1:29 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53469)
 
@@ -652,6 +635,7 @@ Thanks!  I take this kind of thing very seriously.  Because I used to be a Democ
 	
 
 		
+* * *
 
 [September 22, 2009 at 1:39 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53472)
 
@@ -680,6 +664,7 @@ Call it “Riefenstahlism.”  Call it the return of  Albert Speer.  I don’t c
 	
 
 		
+* * *
 
 [September 22, 2009 at 1:59 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53475)
 
@@ -704,6 +689,7 @@ The point is there is no evidence at all of that.
 	
 
 		
+* * *
 
 [September 22, 2009 at 2:21 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53476)
 
@@ -728,6 +714,7 @@ Christ, my committee keeps getting bigger all the time.
 	
 
 		
+* * *
 
 [September 22, 2009 at 2:33 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53478)
 
@@ -752,6 +739,7 @@ I sense a possible new bumper sticker.
 	
 
 		
+* * *
 
 [September 22, 2009 at 2:49 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53479)
 
@@ -774,6 +762,7 @@ I can never find when my cadre’s meeting times are.  I suspect I’m not in th
 	
 
 		
+* * *
 
 [September 22, 2009 at 2:51 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53480)
 
@@ -854,6 +843,7 @@ Because look at all this junk that used to be the sky?  If only there were some 
 	
 
 		
+* * *
 
 [September 22, 2009 at 3:19 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53483)
 
@@ -882,6 +872,7 @@ The bloggers here specialize in faux ignorance, as it happens.  It’s one of th
 	
 
 		
+* * *
 
 [September 22, 2009 at 6:45 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53501)
 
@@ -908,6 +899,7 @@ I am trying to get used to this blog’s shuffling of comments to appear under t
 	
 
 		
+* * *
 
 [September 22, 2009 at 7:08 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53507)
 
@@ -946,6 +938,7 @@ That doesn’t sound like cap and trade to me.  Not even agenda-driven, at least
 	
 
 		
+* * *
 
 [September 22, 2009 at 9:52 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53514)
 
@@ -968,6 +961,7 @@ I am an artist very willing to paint crypto-Soviet murals if the government will
 	
 
 		
+* * *
 
 [September 22, 2009 at 9:55 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53515)
 
@@ -990,6 +984,7 @@ what you don’t understand, SEK, is that Cody Hudson is going to take all of th
 	
 
 		
+* * *
 
 [September 22, 2009 at 10:04 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53516)
 
@@ -1014,6 +1009,7 @@ Oh come on, you should have been proud to be an American when Bush was in office
 	
 
 		
+* * *
 
 [September 23, 2009 at 5:34 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53520)
 
@@ -1036,6 +1032,7 @@ Didn’t Soros write _Dreams from My Father_?
 	
 
 		
+* * *
 
 [September 23, 2009 at 5:39 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53521)
 
@@ -1058,6 +1055,7 @@ This is why no matter how badly Obama does as President that we’re going to ha
 	
 
 		
+* * *
 
 [September 23, 2009 at 6:12 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53522)
 
@@ -1082,6 +1080,7 @@ It’s not about “the nation”: it’s about moving the base, motivating them
 	
 
 		
+* * *
 
 [September 23, 2009 at 7:21 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53523)
 
@@ -1108,6 +1107,7 @@ Look, the whole point of this discussion is that it is not appropriate for the N
 	
 
 		
+* * *
 
 [September 23, 2009 at 7:57 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53524)
 
@@ -1136,6 +1136,7 @@ Did you find ANY of the comments made on the call …questionable?
 	
 
 		
+* * *
 
 [September 23, 2009 at 8:59 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53526)
 
@@ -1160,6 +1161,7 @@ I don’t know about SEK, but I wonder if some of the people making a fuss about
 	
 
 		
+* * *
 
 [September 23, 2009 at 10:58 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53530)
 
@@ -1184,6 +1186,7 @@ Well, I think some of the comments were clever.  And, I even understand how actu
 	
 
 		
+* * *
 
 [September 23, 2009 at 11:14 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53531)
 
@@ -1206,6 +1209,7 @@ Can I just say thank you right-wingers for responding in full panic mode over th
 	
 
 		
+* * *
 
 [September 23, 2009 at 11:49 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53532)
 
@@ -1236,6 +1240,7 @@ Not crazy alarmist knee-jerkery at all, but rather an actual discussion of an ac
 	
 
 		
+* * *
 
 [September 23, 2009 at 12:15 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53534)
 
@@ -1261,6 +1266,8 @@ I vote we rename the blog to this.
 
 		
 
+* * *
+
 [September 23, 2009 at 12:30 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53535)
 
 **politicalfootball**
@@ -1284,6 +1291,7 @@ I occasionally tell my conservative blue-state friends that if they think things
 	
 
 		
+* * *
 
 [September 23, 2009 at 1:17 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53537)
 
@@ -1317,7 +1325,7 @@ Robert, you’ve written a lot of words here, but I’m not seeing where you act
 
 	
 
-		
+* * *
 
 [September 23, 2009 at 4:51 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53541)
 
@@ -1354,6 +1362,7 @@ No.  If you did, I’d love to hear what it was and why.
 	
 
 		
+* * *
 
 [September 23, 2009 at 5:34 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53542)
 
@@ -1384,6 +1393,7 @@ I know that you are baiting me to get me to say something that you can pretend t
 	
 
 		
+* * *
 
 [September 23, 2009 at 6:05 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53543)
 
@@ -1406,6 +1416,7 @@ Stop feeding the troll, people.  Robert, didn’t you say you were leaving?
 	
 
 		
+* * *
 
 [September 23, 2009 at 6:07 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53544)
 
@@ -1428,6 +1439,7 @@ Robert, it didn’t sound like baiting to me.  It sounded like Scott was just tr
 	
 
 		
+* * *
 
 [September 23, 2009 at 6:38 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53545)
 
@@ -1460,6 +1472,7 @@ Nevertheless, the above quote summarizes what I find objectionable in the call. 
 	
 
 		
+* * *
 
 [September 23, 2009 at 6:44 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53546)
 
@@ -1486,6 +1499,7 @@ So if you think there’s something untoward in there, by all means, present it.
 	
 
 		
+* * *
 
 [September 23, 2009 at 6:54 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53547)
 
@@ -1518,6 +1532,7 @@ No money exchanged hands or was promised; therefore, the Hatch Act doesn’t app
 	
 
 		
+* * *
 
 [September 23, 2009 at 6:56 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53548)
 
@@ -1542,6 +1557,7 @@ He really is, Robert. He wants to know what triggered you, and where your anger 
 	
 
 		
+* * *
 
 [September 23, 2009 at 10:30 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53559)
 
@@ -1568,6 +1584,7 @@ Who are the “paranoic hordes”?
 	
 
 		
+* * *
 
 [September 23, 2009 at 11:02 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53561)
 
@@ -1592,6 +1609,7 @@ Oh, come on.  No one mentioned a slippery slope to fascism or even an ungentle n
 	
 
 		
+* * *
 
 [September 24, 2009 at 12:08 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53562)
 
@@ -1624,6 +1642,7 @@ Sarcasm alert.
 	
 
 		
+* * *
 
 [September 24, 2009 at 12:51 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53563)
 
@@ -1646,6 +1665,7 @@ You know, the rails ain’t even that slippery, yet you’ve still managed to tu
 	
 
 		
+* * *
 
 [September 24, 2009 at 5:59 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53566)
 
@@ -1678,6 +1698,7 @@ In a word, you seem to be quite insane.
 	
 
 		
+* * *
 
 [September 24, 2009 at 7:38 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53568)
 
@@ -1700,6 +1721,7 @@ The thing is that I’m certain that Robert is a fully self-aware concern troll 
 	
 
 		
+* * *
 
 [September 24, 2009 at 8:00 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53569)
 
@@ -1724,6 +1746,7 @@ Yeah, this is very strange.  Nine comments and counting.
 	
 
 		
+* * *
 
 [September 24, 2009 at 8:12 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53571)
 
@@ -1748,6 +1771,7 @@ Since you have stated that “What was said was quite sufficient.” (I interpre
 	
 
 		
+* * *
 
 [September 24, 2009 at 11:00 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53575)
 
@@ -1770,6 +1794,7 @@ If the NEA gives drama queen grants, Robert Fulton need never go hungry again.
 	
 
 		
+* * *
 
 [September 24, 2009 at 11:13 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53576)
 
@@ -1814,6 +1839,7 @@ The Anti-Lobbying Act, according to government handbooks, prevents government em
 	
 
 		
+* * *
 
 [September 24, 2009 at 11:21 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53577)
 
@@ -1836,6 +1862,7 @@ I’m going to ask again that people please stop engaging with Robert.  And Robe
 	
 
 		
+* * *
 
 [September 24, 2009 at 11:34 am](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53578)
 
@@ -1858,6 +1885,7 @@ Bye
 	
 
 		
+* * *
 
 [September 24, 2009 at 12:36 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53581)
 
@@ -1880,6 +1908,7 @@ Dang, you didn’t even give him a chance to document just where the money chang
 	
 
 		
+* * *
 
 [September 24, 2009 at 3:05 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53588)
 
@@ -1904,6 +1933,7 @@ Because the actual ask is totally innocuous.
 	
 
 		
+* * *
 
 [September 25, 2009 at 9:07 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53659)
 
@@ -1928,6 +1958,7 @@ I just have to thank you for the hardest laugh i have had in days. If only I cou
 	
 
 		
+* * *
 
 [September 25, 2009 at 10:38 pm](https://edgeofthewest.wordpress.com/2009/09/21/conservatives-are-outraged-over-an-actual-outrage-color-me-impressed/#comment-53661)
 
