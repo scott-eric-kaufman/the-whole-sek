@@ -7,6 +7,7 @@ for i in $HERE/*.html; do
 	       	-date "meta[property='article:published_time']" \
        		-date-property content \
 		-date-format '2006-01-02T15:04:05-07:00' \
-		-content "div[class='post-content'], div[class='comments']" \
+		-content "div.post-content, div.commentlist" \
 		-in $i -out-dir ..
 done
+
