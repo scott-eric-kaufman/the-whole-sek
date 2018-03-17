@@ -3,9 +3,7 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2014/04/seks-game-of-thrones-recap-now-with-more-eye-lasers.html
  * Monday, April 28, 2014
 
-
-
-[![oath08](http://www.lawyersgunsmoneyblog.com/wp-content/uploads/2014/04/oath081.jpg)](http://www.lawyersgunsmoneyblog.com/wp-content/uploads/2014/04/oath081.jpg)
+[![oath08](../../images/acephalous/oath081.jpg)](http://www.lawyersgunsmoneyblog.com/wp-content/uploads/2014/04/oath081.jpg)
 
 It’s [the only _Game of Thrones_ recap worth reading](http://www.rawstory.com/rs/2014/04/28/recap-game-of-thrones-season-four-episode-four-oathkeeper/) even if you’ve already seen the episode.
 
@@ -13,25 +11,7 @@ About which — I’m still not entirely sure why people like to read recaps of 
 
 I must be the outlier here.
 
-		
-
 * * *
-
-### 3 Comments 
-
-		
-
-                
-[]()
-
-	
-
-		![Rich Puchalsky](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
 
 I thought twice about checking in just to argue... but why not.  People read recaps for the same reason they read criticism of a book they've just read, to see if a reading of it by a critic will give them a different way of thinking about it, and point out things they've missed.  Of course you know this, so are you indicating tension about what you're writing, or what the format is constraining you to write?
 
@@ -39,22 +19,9 @@ Because the whole eye laser thing ... well, to me it seems like literary critici
 
 I looked back over the last few recaps and saw the one in which you mentioned the Ember Island Players episode of Avatar: The Last Airbender as being similar to the episode in Joffrey is poisoned in that both have the audience rooting for the death of a child.  And I read the completely predictable comment thread.  And it's possible to have a really long argument about this, especially if you look in detail at what that Ember Island Players episode was trying to do, but it seems that you're writing in a place where that can't happen.  Is that a solid constraint?
 
-	
+Posted by: [Rich Puchalsky](http://profile.typepad.com/puchalsky) | [Monday, 28 April 2014 at 10:13 PM](http://acephalous.typepad.com/acephalous/2014/04/seks-game-of-thrones-recap-now-with-more-eye-lasers.html?cid=6a00d8341c2df453ef01a511ab9f8a970c#comment-6a00d8341c2df453ef01a511ab9f8a970c)
 
-		Posted by:
-		[Rich Puchalsky](http://profile.typepad.com/puchalsky) |
-		[Monday, 28 April 2014 at 10:13 PM](http://acephalous.typepad.com/acephalous/2014/04/seks-game-of-thrones-recap-now-with-more-eye-lasers.html?cid=6a00d8341c2df453ef01a511ab9f8a970c#comment-6a00d8341c2df453ef01a511ab9f8a970c)
-
-[]()
-
-	
-
-		![Scott Eric Kaufman](http://up4.typepad.com/6a00d8341c2df453ef019aff119d9c970c-50si)
-	
-
-	
-
-		
+* * *
 
 _I thought twice about checking in just to argue..._
 
@@ -84,22 +51,9 @@ I'm not going to say it _can't_ happen, only that it hasn't yet. There have been
 
 That said, as sites as large as Raw Story, you sort of have the audience you have, not the one you deserve (or think you deserve), just as a matter of scale. 
 
-	
+Posted by: [Scott Eric Kaufman](http://profile.typepad.com/scotterickaufman) | [Tuesday, 29 April 2014 at 06:52 AM](http://acephalous.typepad.com/acephalous/2014/04/seks-game-of-thrones-recap-now-with-more-eye-lasers.html?cid=6a00d8341c2df453ef01a3fcfc2be3970b#comment-6a00d8341c2df453ef01a3fcfc2be3970b)
 
-		Posted by:
-		[Scott Eric Kaufman](http://profile.typepad.com/scotterickaufman) |
-		[Tuesday, 29 April 2014 at 06:52 AM](http://acephalous.typepad.com/acephalous/2014/04/seks-game-of-thrones-recap-now-with-more-eye-lasers.html?cid=6a00d8341c2df453ef01a3fcfc2be3970b#comment-6a00d8341c2df453ef01a3fcfc2be3970b)
-
-[]()
-
-	
-
-		![Rich Puchalsky](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Well, here's the outline of the Ember Island Players argument: the differences between the two cases outweigh the surface similarity.  It comes down to an interpretation of why the show is showing that scene (i.e. the kind of thing that a focus on eye-lasers tends to displace).
 
@@ -113,12 +67,5 @@ Why does George R.R. Martin do this?  It's central to the apparent purpose which
 
 Does the TV series play up cheering for Joffrey's death in a way that the book doesn't?  I don't know; haven't seen it.  Btu the book's politics make the scene necessary, in pretty much the exact same way that the Red Wedding was necessary, and that's diametrically opposed from Avatar's emphasis on a multiplicity of possible outcomes.  It's not fundamentally a good comparison except at the most summarized level.
 
-	
+Posted by: [Rich Puchalsky](http://profile.typepad.com/puchalsky) | [Tuesday, 29 April 2014 at 06:35 PM](http://acephalous.typepad.com/acephalous/2014/04/seks-game-of-thrones-recap-now-with-more-eye-lasers.html?cid=6a00d8341c2df453ef01a3fcfd439b970b#comment-6a00d8341c2df453ef01a3fcfd439b970b)
 
-		Posted by:
-		[Rich Puchalsky](http://profile.typepad.com/puchalsky) |
-		[Tuesday, 29 April 2014 at 06:35 PM](http://acephalous.typepad.com/acephalous/2014/04/seks-game-of-thrones-recap-now-with-more-eye-lasers.html?cid=6a00d8341c2df453ef01a3fcfd439b970b#comment-6a00d8341c2df453ef01a3fcfd439b970b)
-
-		
-
-        

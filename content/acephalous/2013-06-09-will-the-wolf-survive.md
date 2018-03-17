@@ -3,38 +3,11 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html
  * Sunday, June 09, 2013
 
+It’s been brought to my attention that [the two posts](http://www.lawyersgunsmoneyblog.com/2013/06/its-always-been-raining-in-castamere/) [I’ve produced about](http://www.lawyersgunsmoneyblog.com/2013/06/awful-greek-words-that-apply-to-the-rains-of-castamere) “The Rains of Castamere” were written under the influence of Los Lobos’s [_How Will the Wolf Survive?_](http://www.amazon.com/exec/obidos/ASIN/B000002L6Z/diesekoschmar-20) (1985). Weeks ago, insomnia guided me to some 3 a.m. PBS documentary that placed Los Lobos between Public Enemy and the Rolling Stones in terms of the most influential bands of the 20th Century, and since then I’ve been revisiting their catalog.
 
-
-It’s been brought to my attention that [the two posts](http://www.lawyersgunsmoneyblog.com/2013/06/its-always-been-raining-in-castamere/) [I’ve produced about](http://www.lawyersgunsmoneyblog.com/2013/06/awful-greek-words-that-apply-to-the-rains-of-castamere) “The Rains of Castamere” were written under the influence of Los Lobos’s [_How Will the Wolf Survive?_](http://www.amazon.com/exec/obidos/ASIN/B000002L6Z/diesekoschmar-20)
- (1985). Weeks ago, insomnia guided me to some 3 a.m. PBS documentary 
-that placed Los Lobos between Public Enemy and the Rolling Stones in 
-terms of the most influential bands of the 20th Century, and since then 
-I’ve been revisiting their catalog.
-
-I just didn’t realize how biased this non-deigetic sound may have 
-made my past couple of analyses. Maybe the Lannister’s deserve more 
-benefit of the doubt than the “none” I’ve been extending them? The 
-Boltons too?
-
-		
+I just didn’t realize how biased this non-deigetic sound may have made my past couple of analyses. Maybe the Lannister’s deserve more benefit of the doubt than the “none” I’ve been extending them? The Boltons too?
 
 * * *
-
-### 5 Comments 
-
-		
-
-                
-[]()
-
-	
-
-		![Doctor Memory](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/15-50si.gif)
-	
-
-	
-
-		
 
 The Boltons deserve no credit.  They're the North Koreans of the ASoIaF universe: a useful tool for the superpower that controls them, but insane on their own merits.  (Or if you prefer a less contemporarily fraught metaphor, they're the early S.A. to the Nazi party: useful shock troops who in all likelihood will be purged the moment their ambition outstrips their usefulness.)
 
@@ -46,43 +19,17 @@ And as much as the Starks keep mournfully intoning that Winter is Coming, they a
 
 Of the real contenders for power at the time of Robert's death, only Tywin Lannister has both the understanding that a militarily united kingdom is an absolute necessity, and the combination of existing wealth, power and tactical skills to actually pull it of.   The single best thing that could have happened to Westeros would have been for the Starks to immediately sue for peace.
 
-	
+Posted by: [Doctor Memory](http://blahg.blank.org) | [Sunday, 09 June 2013 at 05:56 PM](http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html?cid=6a00d8341c2df453ef019103281334970c#comment-6a00d8341c2df453ef019103281334970c)
 
-		Posted by:
-		[Doctor Memory](http://blahg.blank.org) |
-		[Sunday, 09 June 2013 at 05:56 PM](http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html?cid=6a00d8341c2df453ef019103281334970c#comment-6a00d8341c2df453ef019103281334970c)
-
-[]()
-
-	
-
-		![mxyzptlk](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/20-50si.gif)
-	
-
-	
-
-		
+* * *
 
 _Wake Up Dolores_, _That Train Don’t Stop Here_. If the _Lil’ King of Everything_ got his way, the _Wicked Rain_ of Castemere would wash away everything but the _Bare Necessities_, leaving the kingdoms on the _Short Side of Nothing_, and there’d never be _Peace_. House Targaryen and House Stark would be left like _Two Dogs and a Bone_, looking at _The Mess We’re In_ and wondering _Is That All There Is_?
 
 (you might have already seen that.)
 
-	
+Posted by: mxyzptlk | [Sunday, 09 June 2013 at 08:53 PM](http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html?cid=6a00d8341c2df453ef01901d333a55970b#comment-6a00d8341c2df453ef01901d333a55970b)
 
-		Posted by:
-		mxyzptlk |
-		[Sunday, 09 June 2013 at 08:53 PM](http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html?cid=6a00d8341c2df453ef01901d333a55970b#comment-6a00d8341c2df453ef01901d333a55970b)
-
-[]()
-
-	
-
-		![mxyzptlk](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/20-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Doctor Memory, that's an interesting argument. Let me play with it a bit:
 
@@ -100,22 +47,9 @@ In other words, I think you present an interesting argument, but I don't see eno
 
 /nerdmode
 
-	
+Posted by: mxyzptlk | [Sunday, 09 June 2013 at 10:46 PM](http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html?cid=6a00d8341c2df453ef01901d33ffe2970b#comment-6a00d8341c2df453ef01901d33ffe2970b)
 
-		Posted by:
-		mxyzptlk |
-		[Sunday, 09 June 2013 at 10:46 PM](http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html?cid=6a00d8341c2df453ef01901d33ffe2970b#comment-6a00d8341c2df453ef01901d33ffe2970b)
-
-[]()
-
-	
-
-		![Doctor Memory](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/01-50si.gif)
-	
-
-	
-
-		
+* * *
 
 MXYZPTLK: yeah, it's an argument that works best if you've only read the first book or seen the first season of the show.  By the time AFFC rolls around, it's crystal clear that Tywin is not without his own massive tactical blinkers (especially as regards his own children, but also completely overestimating his ability to play both the Tyrells and the Martells) and is missing the greater strategic picture viz the North just as much as anyone else in Westeros.  
 
@@ -123,33 +57,13 @@ MXYZPTLK: yeah, it's an argument that works best if you've only read the first b
 
 Still, it's hard to argue the point that of all of the policy options for the just-barely-united kingdoms of Westeros to pick on the eve of the worst winter ever, a multi-way civil was was by a long yard the worst possible one.  _Any_ other option, including both total capitulation to the Lannisters and for that matter restoring _Viserys_ to the Iron Throne, would have left the realm in better shape.
 
-	
+Posted by: [Doctor Memory](http://blahg.blank.org) | [Monday, 10 June 2013 at 01:08 AM](http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html?cid=6a00d8341c2df453ef0191032b21df970c#comment-6a00d8341c2df453ef0191032b21df970c)
 
-		Posted by:
-		[Doctor Memory](http://blahg.blank.org) |
-		[Monday, 10 June 2013 at 01:08 AM](http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html?cid=6a00d8341c2df453ef0191032b21df970c#comment-6a00d8341c2df453ef0191032b21df970c)
-
-[]()
-
-	
-
-		![mxyzptlk](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/20-50si.gif)
-	
-
-	
-
-		
+* * *
 
 I just wanted to make it clear that I wrote my post 15 minutes before the third season finale aired, and in that episode Tywin pretty much went ahead and admitted personal and family power and reputation are more important than anything else. And so did Balon Greyjoy. And so did Walder Frey. And like Balon, Stannis was about to put the idea of family ahead of an actual member of his family, until he got word that the white walkers were approaching the wall and they were all frozen toast. And all of them know they can't unite what's left of the different kingdoms to do much of anything about it. Bet they wish they had a Robert Baratheon to whip the lords into line and a fearless Stark family guarding the north now. 
 
 But you're right -- after just the first book, because Tywin's so shadowy and behind the scenes, I think you could push the case that he's the hero of A Game of Thrones. He's at least the most successful.  
 
-	
+Posted by: mxyzptlk | [Monday, 10 June 2013 at 01:26 AM](http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html?cid=6a00d8341c2df453ef0191032b3ef4970c#comment-6a00d8341c2df453ef0191032b3ef4970c)
 
-		Posted by:
-		mxyzptlk |
-		[Monday, 10 June 2013 at 01:26 AM](http://acephalous.typepad.com/acephalous/2013/06/will-the-wolf-survive.html?cid=6a00d8341c2df453ef0191032b3ef4970c#comment-6a00d8341c2df453ef0191032b3ef4970c)
-
-		
-
-        
