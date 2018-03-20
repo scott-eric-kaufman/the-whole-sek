@@ -3,8 +3,6 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2012/08/forest-what-forest-all-i-see-is-trees.html
  * Wednesday, August 08, 2012
 
-
-
 The vehemence with which a conservative denies the veracity of [this particular advertisement](http://whitehouse.blogs.cnn.com/2012/08/07/ad-linking-romney-to-death-of-the-wife-of-a-laid-off-steelworker-not-accurate/) is directly proportional to their awareness that it speaks to the truth  that occupies their nightmares: that so many millions of people will  genuinely benefit from the Affordable Care Act that it’ll become  increasingly difficult to elect Republicans. The brown people who once  populated their nightmares have been replaced by roaming hordes of  healthy Americans who appreciate the legislation that saved their lives.  These people will pull the lever for Democratic candidates because they  feel indebted to the party. But they’re even more frightened by another  group of people: those who have lost loved ones due to dropped coverage  or lifetime limits. Why?
 
 Because it’s impossible to defend a system in which corporations  invest in the deaths of their clients to the relatives of the deceased.  Rationing works according to a terrible but understandable rationale:  “You must die so that others may live.” But the current system works  according to a singularly grim calculation: “You must die so that others  might profit.” That’s not a winning argument and those responding to  this advertisement know it. They need to transform its message into  something palatable. [For example](http://hotair.com/archives/2012/08/07/cnn-wife-of-steelworker-in-new-obama-super-pac-ad-still-had-job-and-health-insurance-after-he-lost-his/):
@@ -19,63 +17,19 @@ Because if they focus on the specific facts presented in this  particular argume
 
 It’ll be about any and everything except what it’s about: the fact  that the impoverished and unemployed have a better chance of living a  full life than they did before Obama was elected.
 
-		
-
 * * *
-
-### 3 Comments 
-
-		
-
-                
-[]()
-
-	
-
-		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
 
 I’m not sure what this means, but I just re-read this to make sure it all still made sense and noticed that, somehow, I wrote this entire post without using a single comma.
 
-	
+Posted by: [SEK](http://acephalous.typepad.com/) | [Wednesday, 08 August 2012 at 07:32 PM](http://acephalous.typepad.com/acephalous/2012/08/forest-what-forest-all-i-see-is-trees.html?cid=6a00d8341c2df453ef01774401b4fe970d#comment-6a00d8341c2df453ef01774401b4fe970d)
 
-		Posted by:
-		[SEK](http://acephalous.typepad.com/) |
-		[Wednesday, 08 August 2012 at 07:32 PM](http://acephalous.typepad.com/acephalous/2012/08/forest-what-forest-all-i-see-is-trees.html?cid=6a00d8341c2df453ef01774401b4fe970d#comment-6a00d8341c2df453ef01774401b4fe970d)
-
-[]()
-
-	
-
-		![xaaronx](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/17-50si.gif)
-	
-
-	
-
-		
+* * *
 
 So you used three in one sentence to make up for it? I like your style, sir.
 
-	
+Posted by: xaaronx | [Wednesday, 08 August 2012 at 10:30 PM](http://acephalous.typepad.com/acephalous/2012/08/forest-what-forest-all-i-see-is-trees.html?cid=6a00d8341c2df453ef0176171c5037970c#comment-6a00d8341c2df453ef0176171c5037970c)
 
-		Posted by:
-		xaaronx |
-		[Wednesday, 08 August 2012 at 10:30 PM](http://acephalous.typepad.com/acephalous/2012/08/forest-what-forest-all-i-see-is-trees.html?cid=6a00d8341c2df453ef0176171c5037970c#comment-6a00d8341c2df453ef0176171c5037970c)
-
-[]()
-
-	
-
-		![circadianwolf](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/15-50si.gif)
-	
-
-	
-
-		
+* * *
 
 _"that relying on an insurance system that’s only affordable when partially subsidized by an employer leads to a situation in which chronic unemployment is tantamount to a death sentence."_
 
@@ -85,12 +39,5 @@ _"the fact that the impoverished and unemployed have a better chance of living a
 
 Unless they're undocumented immigrants or citizens of Pakistan, Afghanistan, Iraq, Somalia, Yemen, Libya, Syria, Iran... (There's some morbid humor to the fact that Obama has actually set up a literal death panel, just of a form few Republicans are willing to criticize.)
 
-	
+Posted by: [circadianwolf](http://circadianwolf.com) | [Thursday, 09 August 2012 at 10:49 AM](http://acephalous.typepad.com/acephalous/2012/08/forest-what-forest-all-i-see-is-trees.html?cid=6a00d8341c2df453ef017744054523970d#comment-6a00d8341c2df453ef017744054523970d)
 
-		Posted by:
-		[circadianwolf](http://circadianwolf.com) |
-		[Thursday, 09 August 2012 at 10:49 AM](http://acephalous.typepad.com/acephalous/2012/08/forest-what-forest-all-i-see-is-trees.html?cid=6a00d8341c2df453ef017744054523970d#comment-6a00d8341c2df453ef017744054523970d)
-
-		
-
-        

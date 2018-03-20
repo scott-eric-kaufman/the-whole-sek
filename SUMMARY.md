@@ -1948,7 +1948,7 @@
 * [I hate children. They have too many notes.](content/acephalous/2012-09-16-i-hate-children-they-have-too-many-notes.md)
 * [*Breaking Bad*: "Gliding Over All" I've written](content/acephalous/2012-09-17-breaking-bad--gliding-over-all-i-ve-written.md)
 * [*Game of Thrones*: "Winter Is Coming" for Poor Will](content/acephalous/2012-09-19-game-of-thrones--winter-is-coming-for-poor-will.md)
-* [Anyone wanna pay me $1,000,000 to produce a video of Obama choking on a matzo ball?](content/acephalous/2012-09-20-anyone-wanna-pay-me-$1-000-000-to-produce-a-video-of-obama-choking-on-a-matzo-ball.md)
+* [Anyone wanna pay me $1,000,000 to produce a video of Obama choking on a matzo ball?](content/acephalous/2012-09-20-anyone-wanna-pay-me-1-000-000-to-produce-a-video-of-obama-choking-on-a-matzo-ball.md)
 * [People who only talk to themselves either already are or drive themselves crazy.](content/acephalous/2012-09-20-people-who-only-talk-to-themselves-either-already-are-or-drive-themselves-crazy.md)
 * [Every time I have this dream I want to kill myself.](content/acephalous/2012-09-21-every-time-i-have-this-dream-i-want-to-kill-myself.md)
 * [*Game of Thrones*: "Winter Is Coming" for Bran](content/acephalous/2012-09-21-game-of-thrones--winter-is-coming-for-bran.md)

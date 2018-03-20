@@ -3,14 +3,8 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2012/09/disconvention.html
  * Thursday, September 06, 2012
 
+\[_Previous installments of Sekocom, Inc. games include [DISADVENTURE!](http://acephalous.typepad.com/acephalous/2006/04/disadventure.html), [DISADDENDUM!](http://acephalous.typepad.com/acephalous/2006/04/disaddendum.html), [DISMORALIZED!](http://acephalous.typepad.com/acephalous/2006/04/dismoralized.html), [DISINSOMNIA!](http://acephalous.typepad.com/acephalous/2006/08/disinsomnia.html), [WHARTON!](http://acephalous.typepad.com/acephalous/2007/06/wharton.html), [GRADING!](http://acephalous.typepad.com/acephalous/2009/03/grading.html) and [DISBELIEF!](http://acephalous.typepad.com/acephalous/2012/06/disbelief.html). This installment holds no candle to those but since its sell-by date is fast approaching I figure better late than never._\]
 
-
-[_Previous installments of Sekocom, Inc. games include [DISADVENTURE!](http://acephalous.typepad.com/acephalous/2006/04/disadventure.html), [DISADDENDUM!](http://acephalous.typepad.com/acephalous/2006/04/disaddendum.html), [DISMORALIZED!](http://acephalous.typepad.com/acephalous/2006/04/dismoralized.html), [DISINSOMNIA!](http://acephalous.typepad.com/acephalous/2006/08/disinsomnia.html), [WHARTON!](http://acephalous.typepad.com/acephalous/2007/06/wharton.html), [GRADING!](http://acephalous.typepad.com/acephalous/2009/03/grading.html) and [DISBELIEF!](http://acephalous.typepad.com/acephalous/2012/06/disbelief.html). This installment holds no candle to those but since its sell-by date is fast approaching I figure better late than never._]
-
-		
-
-					[]()
-			
 
 Copyright (c) 1980, 1982, 2006, 2012 Sekocom, Inc. All rights reserved.  
  DISCONVENTION! is a registered trademark of Sekocom, Inc.  
@@ -215,55 +209,17 @@ What did he take from you?
 
 &gt; BIFURCATING BIFURCATING BIFURCATING
 
-			
-
 * * *
-
-### 2 Comments 
-
-		
-
-                
-[]()
-
-	
-
-		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
 
 Feel free to offer revisions and/or suggestions for, you know, an ending in the comments. I got stuck with this one.
 
-	
+Posted by: [SEK](http://acephalous.typepad.com/) | [Thursday, 06 September 2012 at 08:01 PM](http://acephalous.typepad.com/acephalous/2012/09/disconvention.html?cid=6a00d8341c2df453ef0177448f88c1970d#comment-6a00d8341c2df453ef0177448f88c1970d)
 
-		Posted by:
-		[SEK](http://acephalous.typepad.com/) |
-		[Thursday, 06 September 2012 at 08:01 PM](http://acephalous.typepad.com/acephalous/2012/09/disconvention.html?cid=6a00d8341c2df453ef0177448f88c1970d#comment-6a00d8341c2df453ef0177448f88c1970d)
-
-[]()
-
-	
-
-		![nnyhav](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/09-50si.gif)
-	
-
-	
-
-		
+* * *
 
 praps thisll help:  
 
 [http://blogs.smithsonianmag.com/smartnews/2012/08/the-long-history-of-americans-debating-empty-chairs#comment-689](http://blogs.smithsonianmag.com/smartnews/2012/08/the-long-history-of-americans-debating-empty-chairs#comment-689)
 
-	
+Posted by: [nnyhav](http://nnyhav.blogspot.com/) | [Sunday, 09 September 2012 at 11:30 PM](http://acephalous.typepad.com/acephalous/2012/09/disconvention.html?cid=6a00d8341c2df453ef017d3bf13798970c#comment-6a00d8341c2df453ef017d3bf13798970c)
 
-		Posted by:
-		[nnyhav](http://nnyhav.blogspot.com/) |
-		[Sunday, 09 September 2012 at 11:30 PM](http://acephalous.typepad.com/acephalous/2012/09/disconvention.html?cid=6a00d8341c2df453ef017d3bf13798970c#comment-6a00d8341c2df453ef017d3bf13798970c)
-
-		
-
-        
