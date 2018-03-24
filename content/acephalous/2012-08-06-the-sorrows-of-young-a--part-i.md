@@ -3,8 +3,6 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html
  * Monday, August 06, 2012
 
-
-
 [_If this strikes you as a peculiar thing to appear on this blog,   that's only because it is. It's a serialized novel that I'll be writing   over the next few months._]
 
 He remembers the first time it happened. It is his earliest memory.   A. had awoken eager to walk along the banks of one of the city's three   rivers—he cannot remember which one—on that morning. He cherished these   rare moments to himself, far from the wailing of E., his new brother.   His mother insisted he not stray too far from home, but A. knew the area   well and that E. would prevent her from following him, so he ranged   rather further than he led her to believe.
@@ -29,112 +27,35 @@ It was light when he awoke, in his own bed, still very much in pain.   Outside t
 
 But think about it he would, again and again, because this was only the first time it happened.
 
-		
-
 * * *
-
-### 5 Comments 
-
-		
-
-                
-[]()
-
-	
-
-		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
 
 This is likely the goofiest thing I've ever posted. But fun to write! (And need to be write better well. Editor come?)
 
-	
+Posted by: [SEK](http://acephalous.typepad.com/) | [Monday, 06 August 2012 at 07:38 PM](http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html?cid=6a00d8341c2df453ef0167691b3d47970b#comment-6a00d8341c2df453ef0167691b3d47970b)
 
-		Posted by:
-		[SEK](http://acephalous.typepad.com/) |
-		[Monday, 06 August 2012 at 07:38 PM](http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html?cid=6a00d8341c2df453ef0167691b3d47970b#comment-6a00d8341c2df453ef0167691b3d47970b)
-
-[]()
-
-	
-
-		![Karl Steel](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/03-50si.gif)
-	
-
-	
-
-		
+* * *
 
 oh hell yes, Scott. \*applause\*
 
-	
+Posted by: Karl Steel | [Monday, 06 August 2012 at 08:02 PM](http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html?cid=6a00d8341c2df453ef0167691b5491970b#comment-6a00d8341c2df453ef0167691b5491970b)
 
-		Posted by:
-		Karl Steel |
-		[Monday, 06 August 2012 at 08:02 PM](http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html?cid=6a00d8341c2df453ef0167691b5491970b#comment-6a00d8341c2df453ef0167691b5491970b)
-
-[]()
-
-	
-
-		![Ahistoricality](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/04-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Editor need clue as to purpose...
 
-	
+Posted by: [Ahistoricality](http://ahistoricality.blogspot.com) | [Monday, 06 August 2012 at 08:03 PM](http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html?cid=6a00d8341c2df453ef017743f68161970d#comment-6a00d8341c2df453ef017743f68161970d)
 
-		Posted by:
-		[Ahistoricality](http://ahistoricality.blogspot.com) |
-		[Monday, 06 August 2012 at 08:03 PM](http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html?cid=6a00d8341c2df453ef017743f68161970d#comment-6a00d8341c2df453ef017743f68161970d)
-
-[]()
-
-	
-
-		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Thanks, y'all. As for why I need an editor: I overwrite things. Or I get stuck in repetitive sentence structures. Plus I'm still undecided if this works better if you know the spoilers or don't. In other words, I don't write much fiction and worry I'm making an ass of myself when I do.
 
-	
+Posted by: [SEK](http://acephalous.typepad.com/) | [Monday, 06 August 2012 at 08:05 PM](http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html?cid=6a00d8341c2df453ef017743f6841b970d#comment-6a00d8341c2df453ef017743f6841b970d)
 
-		Posted by:
-		[SEK](http://acephalous.typepad.com/) |
-		[Monday, 06 August 2012 at 08:05 PM](http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html?cid=6a00d8341c2df453ef017743f6841b970d#comment-6a00d8341c2df453ef017743f6841b970d)
-
-[]()
-
-	
-
-		![Ahistoricality](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/04-50si.gif)
-	
-
-	
-
-		
+* * *
 
 I don't think the header was there when I read this yesterday....
 
 A _novel with a punchline_?!? That's a hell of a lot of work for a shaggy-dog chuckle. Unless the payoff goes well beyond the punchline, isn't that why God gave us short stories? (cf. Asimov, "Shah Guido G.", "In Bad Taste", etc, ad nauseum, unless you like that sort of thing, as I do)
 
-	
+Posted by: [Ahistoricality](http://ahistoricality.blogspot.com) | [Tuesday, 07 August 2012 at 10:10 AM](http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html?cid=6a00d8341c2df453ef0167691e5f07970b#comment-6a00d8341c2df453ef0167691e5f07970b)
 
-		Posted by:
-		[Ahistoricality](http://ahistoricality.blogspot.com) |
-		[Tuesday, 07 August 2012 at 10:10 AM](http://acephalous.typepad.com/acephalous/2012/08/the-sorrows-of-young-a-part-i.html?cid=6a00d8341c2df453ef0167691e5f07970b#comment-6a00d8341c2df453ef0167691e5f07970b)
-
-		
-
-        

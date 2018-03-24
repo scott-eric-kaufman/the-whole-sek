@@ -3,8 +3,6 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2010/11/recipes-from-the-headless-chef-cheeseless-cheesecake.html
  * Wednesday, November 24, 2010
 
-
-
 In the interest of being topical, I think it's high time I share [another recipe](http://acephalous.typepad.com/acephalous/2009/11/recipes-from-the-headless-chef-chorizo-cilantro-chili.html).\*  You will need:
 
 *   1 medium-sized metal bowl
@@ -27,97 +25,33 @@ Pour the mixture into the pie crust.  If you'd like to make your own crust, you
 
 Remove from the refrigerator and amaze everyone with the quality cheesecake you just made.  They'll be genuinely impressed _so long as you don't tell them what's in it_. 
 
-\*I meant to make this a series, but then again, I've meant to write a lot of things I've never gotten around to writing, so there you go.
+\* I meant to make this a series, but then again, I've meant to write a lot of things I've never gotten around to writing, so there you go.
 
-\*\*Myself included.
-
-		
+\*\* Myself included.
 
 * * *
 
-### 4 Comments 
-
-		
-
-                
-[]()
-
-	
-
-		![tomemos](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/07-50si.gif)
-	
-
-	
-
-		
-
 Scott, I didn't know you were veg! Awesome. I take it you're not vegan, due to the honey in the recipe...
 
-	
+Posted by: [tomemos](http://tomemos.wordpress.com) | [Friday, 26 November 2010 at 12:11 AM](http://acephalous.typepad.com/acephalous/2010/11/recipes-from-the-headless-chef-cheeseless-cheesecake.html?cid=6a00d8341c2df453ef0147e0298525970b#comment-6a00d8341c2df453ef0147e0298525970b)
 
-		Posted by:
-		[tomemos](http://tomemos.wordpress.com) |
-		[Friday, 26 November 2010 at 12:11 AM](http://acephalous.typepad.com/acephalous/2010/11/recipes-from-the-headless-chef-cheeseless-cheesecake.html?cid=6a00d8341c2df453ef0147e0298525970b#comment-6a00d8341c2df453ef0147e0298525970b)
-
-[]()
-
-	
-
-		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
+* * *
 
 _I didn't know you were veg!_
 
 I was, for about 15 years, until I got cancer.  Vegan first, for ethical reasons; vegetarian afterward, for health reasons; then, after cancer, I decided that clearly wasn't working and started eating meat.  I'm not (and likely never will be) a full-fledged, meat-thrice daily omnivore, but I do include some in my diet.
 
-	
+Posted by: [SEK](http://acephalous.typepad.com) | [Friday, 26 November 2010 at 12:27 PM](http://acephalous.typepad.com/acephalous/2010/11/recipes-from-the-headless-chef-cheeseless-cheesecake.html?cid=6a00d8341c2df453ef0147e02cc91f970b#comment-6a00d8341c2df453ef0147e02cc91f970b)
 
-		Posted by:
-		[SEK](http://acephalous.typepad.com) |
-		[Friday, 26 November 2010 at 12:27 PM](http://acephalous.typepad.com/acephalous/2010/11/recipes-from-the-headless-chef-cheeseless-cheesecake.html?cid=6a00d8341c2df453ef0147e02cc91f970b#comment-6a00d8341c2df453ef0147e02cc91f970b)
-
-[]()
-
-	
-
-		![tomemos](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/07-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Then this friendship is over!
 
-	
+Posted by: [tomemos](http://tomemos.wordpress.com) | [Friday, 26 November 2010 at 03:39 PM](http://acephalous.typepad.com/acephalous/2010/11/recipes-from-the-headless-chef-cheeseless-cheesecake.html?cid=6a00d8341c2df453ef0147e02d902b970b#comment-6a00d8341c2df453ef0147e02d902b970b)
 
-		Posted by:
-		[tomemos](http://tomemos.wordpress.com) |
-		[Friday, 26 November 2010 at 03:39 PM](http://acephalous.typepad.com/acephalous/2010/11/recipes-from-the-headless-chef-cheeseless-cheesecake.html?cid=6a00d8341c2df453ef0147e02d902b970b#comment-6a00d8341c2df453ef0147e02d902b970b)
-
-[]()
-
-	
-
-		![riley](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/07-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Huh. I have a version of this recipe which includes peppermint essence in place of the liquor. It's good, but I think I'll give this one a whirl, too.  
 
-	
+Posted by: riley | [Wednesday, 26 January 2011 at 06:15 PM](http://acephalous.typepad.com/acephalous/2010/11/recipes-from-the-headless-chef-cheeseless-cheesecake.html?cid=6a00d8341c2df453ef0147e201c1c0970b#comment-6a00d8341c2df453ef0147e201c1c0970b)
 
-		Posted by:
-		riley |
-		[Wednesday, 26 January 2011 at 06:15 PM](http://acephalous.typepad.com/acephalous/2010/11/recipes-from-the-headless-chef-cheeseless-cheesecake.html?cid=6a00d8341c2df453ef0147e201c1c0970b#comment-6a00d8341c2df453ef0147e201c1c0970b)
-
-		
-
-        

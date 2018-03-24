@@ -3,8 +3,6 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html
  * Monday, June 28, 2010
 
-
-
 My love of Caravaggio [should be no secret](http://acephalous.typepad.com/acephalous/2009/04/visual-rhetoric-primer.html)—I did have the entire history of painting to choose from and went with that—but apparently I've never shared the story of Scott's Great Caravaggio Hunt.  It starts like this: 
 
 Scott and his wife were staying with friends of hers outside of Rome. Scott's Italian was laughably poor, but because he had been in Italian-speaking parts for a while, it approached passable-for-a-tourist.  Still, when venturing about in Rome, he allowed his wife—who speaks it, among many other languages, fluently—to do all the talking.  On the day he and had wife had dedicated to seeing the Caravaggios, their last in Rome, his wife took ill.  
@@ -43,18 +41,13 @@ She gestured him to the side and pointed again, so that despite her tiny stature
 
 He did not.  
 
-When he did eventually arrive at where his map said it should have been, it was only after he had spent hours tracing a pattern across the city not unlike [this](http://maps.google.com/maps?f=d&source=s\_d&saddr=vatican+city&daddr=41.896304,12.454591+to:Viale+Vaticano+to:Via+Cola+di+Rienzo+to:Via+Pietro+Cavallini+to:Via+Garibaldi+to:Lungotevere+Tor+di+Nona+to:Via+della+Scrofa+to:Via+dei+Farnesi+to:Via+di+Monte+Giordano+to:Via+Giuseppe+Zanardelli+to:Piazza+del+Drago+to:San+Luigi+dei+Francesi,+Rome,+Italy&geocode=FURjfwIdDQa-ACk9LdRXCoklEzGwfjqymk8JAA%!B(MISSING)%!B(MISSING)FXRzfwIdige-AA%!B(MISSING)FQR0fwIdFSi-AA%!B(MISSING)FRZtfwId6lG-AA%!B(MISSING)FW8pfwId\_Dm-AA%!B(MISSING)FW5ffwId-kq-AA%!B(MISSING)FYphfwIdxVq-AA%!B(MISSING)Fe5EfwIdtkm-AA%!B(MISSING)FZZWfwIdCkG-AA%!B(MISSING)FfdcfwIdME--AA%!B(MISSING)Fc4tfwId9lm-AA%!B(MISSING)FT9WfwIdK1m-ACktyZ0vUGAvEzHL7bGtub-CTg&gl=us&hl=en&mra=dme&mrcr=0&mrsp=1&sz=15&via=1,2,3,4,5,6,7,8,9,10,11&sll=41.897166,12.46871&sspn=0.025779,0.066047&ie=UTF8&ll=41.897166,12.466779&spn=0.025779,0.066047&t=h&z=15):
+When he did eventually arrive at where his map said it should have been, it was only after he had spent hours tracing a pattern across the city not unlike [this](http://maps.google.com/maps?f=d&source=s_d&saddr=vatican+city&daddr=41.896304,12.454591+to:Viale+Vaticano+to:Via+Cola+di+Rienzo+to:Via+Pietro+Cavallini+to:Via+Garibaldi+to:Lungotevere+Tor+di+Nona+to:Via+della+Scrofa+to:Via+dei+Farnesi+to:Via+di+Monte+Giordano+to:Via+Giuseppe+Zanardelli+to:Piazza+del+Drago+to:San+Luigi+dei+Francesi,+Rome,+Italy&geocode=FURjfwIdDQa-ACk9LdRXCoklEzGwfjqymk8JAA%3B%3BFXRzfwIdige-AA%3BFQR0fwIdFSi-AA%3BFRZtfwId6lG-AA%3BFW8pfwId_Dm-AA%3BFW5ffwId-kq-AA%3BFYphfwIdxVq-AA%3BFe5EfwIdtkm-AA%3BFZZWfwIdCkG-AA%3BFfdcfwIdME--AA%3BFc4tfwId9lm-AA%3BFT9WfwIdK1m-ACktyZ0vUGAvEzHL7bGtub-CTg&gl=us&hl=en&mra=dme&mrcr=0&mrsp=1&sz=15&via=1,2,3,4,5,6,7,8,9,10,11&sll=41.897166,12.46871&sspn=0.025779,0.066047&ie=UTF8&ll=41.897166,12.466779&spn=0.025779,0.066047&t=h&z=15):
 
-		
-
-					[]()
-			
-
-[![Scottsromeadventure](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8b6fe970b-pi "Scottsromeadventure")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8b6fe970b-popup)
+[![Scottsromeadventure](../../image/acephalous/6a00d8341c2df453ef0133f1e8b6fe970b-pi.jpg "Scottsromeadventure")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8b6fe970b-popup)
 
 Moreover, although he had arrived at his destination, he had no clue which of the various buildings was the actual church.  That's because churches in Rome look like this:
 
-[![San luigi dei francesi via neoflicks](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8bd99970b-500wi)](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8bd99970b-popup)
+[![San luigi dei francesi via neoflicks](../../images/acephalous/6a00d8341c2df453ef0133f1e8bd99970b-500wi)](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8bd99970b-popup)
 
 Which basically means they look like most of the other buildings.  So there Scott was, standing in front of the building pictured above, when a door opens and out comes _a priest_.  "That has to be the church!" he thought to himself.  So he runs up to the priest, and in an Italian in which, after a day of constant miscommunications, he now had little confidence, said:
 
@@ -82,74 +75,30 @@ Defeat!  It must have shown on his face, too, because the priest asked him what
 
 The priest led Scott into the door from which he'd just exited.  While Scott wondered whether priests really have enough pull to stop the trains from running on time, it being Rome after all, the priest directed him into this room:
 
-[![Inside san luigi dei francesi via ad\_jester](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8e1b5970b-500wi)](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8e1b5970b-popup)  
+[![Inside san luigi dei francesi via ad\_jester](../../images/acephalous/6a00d8341c2df453ef0133f1e8e1b5970b-500wi.jpg)](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8e1b5970b-popup)  
+
 Which looked, at the time, remarkably like that, only slightly darker because of the rain.  It was only then that Scott realized where the priest was leading him.  He started sputtering something, but the priest cut him off:
 
 "So long as you leave a donation," he said, gesturing toward a box of some sort.
 
 "Yes sir," Scott replied as he rooted all the change from all his pockets.  With each coin he deposited in the box, a sharp metallic clank would rattle from wall to wall, around the room, as if the coin were being ferried around the church through a series of rusty pneumatic tubes.  The sound pierced his ears, but it was accompanied by a flicker of footlights and there, [tucked in a corner](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0134850e7963970c-500wi), Scott saw: 
-
-[![Caravaggio](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8ef83970b-500wi)](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8ef83970b-popup)
-
-			
+[![Caravaggio](../../images/acephalous/6a00d8341c2df453ef0133f1e8ef83970b-500wi)](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0133f1e8ef83970b-popup)
 
 * * *
 
-### 8 Comments 
-
-		
-
-                
-[]()
-
-	
-
-		![Karl Steel](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/03-50si.gif)
-	
-
-	
-
-		
-
 HURRAH! Great story. The wife and I depart for Italy on Wednesday, and, inter alia places, we'll spend a week in Rome. I hope my adventures end so well. Noi anche non siamo the Vatican, so far as we know.
 
-	
+Posted by: Karl Steel | [Monday, 28 June 2010 at 02:57 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0133f1e95837970b#comment-6a00d8341c2df453ef0133f1e95837970b)
 
-		Posted by:
-		Karl Steel |
-		[Monday, 28 June 2010 at 02:57 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0133f1e95837970b#comment-6a00d8341c2df453ef0133f1e95837970b)
-
-[]()
-
-	
-
-		![p.t.smith](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/14-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Scott, I've gotten to used to your stories and was looking and waiting for that one final turn of absurdity and despair. I thought I'd found it when you wrote that you threw all of your change in as a donation. All of it! There it is, I thought. He's going to get back to the train on time, rushing and huffing, but be out of change and by the time he gets change, train is gone. 
 
 But, I'm happy to be wrong. 
 
-	
+Posted by: p.t.smith | [Monday, 28 June 2010 at 03:31 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0134850f93f2970c#comment-6a00d8341c2df453ef0134850f93f2970c)
 
-		Posted by:
-		p.t.smith |
-		[Monday, 28 June 2010 at 03:31 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0134850f93f2970c#comment-6a00d8341c2df453ef0134850f93f2970c)
-
-[]()
-
-	
-
-		![emily](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/19-50si.gif)
-	
-
-	
-
-		
+* * *
 
 I was recently in Rome for one day.  I had asked around for tips on what One Thing I should try to see, since clearly one cannot see Rome in one day, and someone had suggested visiting the Caravaggio exhibit that's going on now.  He pointed out that all the marble men will be there when I eventually return to Rome, but that one won't have the chance to see all those paintings collected together again.  He told me the name of the museum.
 
@@ -163,60 +112,21 @@ Full of art and a little lost, we stopped at the contemporary art museum to wait
 
 I am glad to read your story, and I hope mine is welcome.  It seems a quest for Caravaggio will run roundabout, yet it will get somewhere worthwhile in the end.
 
-	
+Posted by: emily | [Monday, 28 June 2010 at 03:36 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0134850f997a970c#comment-6a00d8341c2df453ef0134850f997a970c)
 
-		Posted by:
-		emily |
-		[Monday, 28 June 2010 at 03:36 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0134850f997a970c#comment-6a00d8341c2df453ef0134850f997a970c)
-
-[]()
-
-	
-
-		![p.t.smith](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/14-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Emily, thanks so much for that story. I love encounters like that -- it's what I end up feeling deepest about when I travel, the passing encounters with people. You open up more because you know you won't see the person again. I'm setting off for some travels alone in a few short months and this reminded me of something else to look forward to in it all. 
 
-	
+Posted by: p.t.smith | [Monday, 28 June 2010 at 03:54 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0134850fb681970c#comment-6a00d8341c2df453ef0134850fb681970c)
 
-		Posted by:
-		p.t.smith |
-		[Monday, 28 June 2010 at 03:54 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0134850fb681970c#comment-6a00d8341c2df453ef0134850fb681970c)
-
-[]()
-
-	
-
-		![Karl Steel](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/03-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Lovely stuff, Emily.
 
-	
+Posted by: Karl Steel | [Monday, 28 June 2010 at 03:55 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0133f1ea4ecf970b#comment-6a00d8341c2df453ef0133f1ea4ecf970b)
 
-		Posted by:
-		Karl Steel |
-		[Monday, 28 June 2010 at 03:55 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0133f1ea4ecf970b#comment-6a00d8341c2df453ef0133f1ea4ecf970b)
-
-[]()
-
-	
-
-		![deniz](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/11-50si.gif)
-	
-
-	
-
-		
+* * *
 
 What a great story! I'll look it up again if I ever make it to Rome - someday soon I hope! - since I'll be hunting for Caravaggio too.  
 
@@ -226,50 +136,17 @@ Deniz
 
 – win a copy of Joanna Bourne’s The Forbidden Rose at [http://www.thegirdleofmelian.blogspot.com](http://www.thegirdleofmelian.blogspot.com) –
 
-	
+Posted by: [deniz](http://www.thegirdleofmelian.blogspot.com) | [Monday, 28 June 2010 at 06:17 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0134851175a1970c#comment-6a00d8341c2df453ef0134851175a1970c)
 
-		Posted by:
-		[deniz](http://www.thegirdleofmelian.blogspot.com) |
-		[Monday, 28 June 2010 at 06:17 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0134851175a1970c#comment-6a00d8341c2df453ef0134851175a1970c)
-
-[]()
-
-	
-
-		![Bourgeois Nerd](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
+* * *
 
 In one of The Little Professor's novels, this incident would have led to your immediate conversion to the Roman Catholic Church and your dedication to the nearest monastery.  Then you'd die from the pneumonia brought on by the rain, wherein you'd die (after an appropriate exhortation to your friends and family to find the One True Church) with a smile on your face, assured of holy eternity.  
 
-	
+Posted by: [Bourgeois Nerd](http://vulpes82.blogspot.com/) | [Monday, 28 June 2010 at 09:13 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0133f1ed058e970b#comment-6a00d8341c2df453ef0133f1ed058e970b)
 
-		Posted by:
-		[Bourgeois Nerd](http://vulpes82.blogspot.com/) |
-		[Monday, 28 June 2010 at 09:13 PM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef0133f1ed058e970b#comment-6a00d8341c2df453ef0133f1ed058e970b)
-
-[]()
-
-	
-
-		![The Necromancer](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/02-50si.gif)
-	
-
-	
-
-		
+* * *
 
 This is a great story. The sight of these hidden Caravaggios in 2003 was a highlight of my lengthy Roman tour, and I sometimes thought to transcribe my travelogue from this experience, but this story is a billion times better. It makes me wonder of Baroque beat.
 
-	
+Posted by: [The Necromancer](http://thenecromancer.wordpress.com) | [Thursday, 01 July 2010 at 01:30 AM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef01348520ccce970c#comment-6a00d8341c2df453ef01348520ccce970c)
 
-		Posted by:
-		[The Necromancer](http://thenecromancer.wordpress.com) |
-		[Thursday, 01 July 2010 at 01:30 AM](http://acephalous.typepad.com/acephalous/2010/06/caravaggio.html?cid=6a00d8341c2df453ef01348520ccce970c#comment-6a00d8341c2df453ef01348520ccce970c)
-
-		
-
-        
