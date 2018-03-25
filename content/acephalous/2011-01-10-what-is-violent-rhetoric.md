@@ -3,22 +3,17 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html
  * Monday, January 10, 2011
 
-
-
 As someone who teaches rhetoric, I can only say that I've been profoundly disappointed in the quality of the conversation about the assassination attempt on Gabrielle Giffords.  Despite all the condemnation of everyone else's "violent rhetoric," I've yet to see one post in which the term itself is defined.  It seems to mean, in the current political vernacular, anything said by someone else that involves anything even remotely violent.  Katrina Trinko's [attempt](http://www.nationalreview.com/articles/256747/mr-civility-katrina-trinko) to _tu quoque_ Keith Olbermann is particularly enlightening, as it describes a number of angry statements by Olbermann that are neither violent nor rhetorical, _e.g._
 
-In 2007, Olbermann called rival network Fox News “worse than al-Qaeda ... for our society” and said the channel was “as dangerous  as the Ku Klux Klan ever was.”
+> In 2007, Olbermann called rival network Fox News “worse than al-Qaeda ... for our society” and said the channel was “as dangerous  as the Ku Klux Klan ever was.”
 
 Neither of those statements are rhetorical because neither of them attempts to call its audience to action.  For them to be rhetorical, [as per Aristotle in _On Rhetoric_](http://classics.mit.edu/Aristotle/rhetoric.1.i.html), they would need to be intended to _persuade_.  Moreover, they would need to be intended to persuade _a particular audience_ to undertake _a particular action_.  This is the rhetorical triangle:
 
-		
+[![Rhetorical\_triangle](../../images/acephalous/6a00d8341c2df453ef0147e1731b9f970b-500wi.png "Rhetorical_triangle")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0147e1731b9f970b-popup)
 
-					[]()
-			
-
-[![Rhetorical\_triangle](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0147e1731b9f970b-500wi "Rhetorical\_triangle")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0147e1731b9f970b-popup)   
 Note the interconnectedness of the speaker and audience.  The general problem with discussing rhetoric in the current media  environment is that the particularity of the audience is absent.  Anyone  can read or watch or listen to anything without regard for their  relation to the intended audience and without reference to the action  whose commission the rhetor intends.  In such a situation, it is not surprising when the mode of persuasion favored by speakers is the one that is most effectively general.  To quote Aristotle again:
-The first [mode of persuasion] depends on the personal character of the speaker [_ethos_];  the second on putting the audience into a certain frame of mind [_pathos_]; the third  on the proof, or apparent proof, provided by the words of the speech itself [_logos_].
+
+> The first [mode of persuasion] depends on the personal character of the speaker [_ethos_];  the second on putting the audience into a certain frame of mind [_pathos_]; the third  on the proof, or apparent proof, provided by the words of the speech itself [_logos_].
 
 Though _pathos_ is typically translated as an "appeal to emotion," it is better understood as an "appeal to imagination."  Anything that stokes the imagination, be it an image or a narrative, fits the bill.  It goes without saying that the majority of political rhetoric in America is, in this technical sense, pathetic.  This is simply because most politicians have questionable _ethos_ and very few have speechwriters sufficiently talented to produce persuasive _logos_.  But it is also because most Americans are too suspicious of political motives to allow politicians to establish an _ethos_ and too untrained in the literary arts to understand an appeal to _logos_. 
 
@@ -28,58 +23,29 @@ If we posit his intended audience is liberals and leftists who believe President
 
 Consider a slightly more infamous example:
 
-[![Map2-thumb-600x398-37217](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0148c77ce826970c-500wi "Map2-thumb-600x398-37217")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0148c77ce826970c-popup)   
+[![Map2-thumb-600x398-37217](../../images/acephalous/6a00d8341c2df453ef0148c77ce826970c-500wi "Map2-thumb-600x398-37217")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0148c77ce826970c-popup)   
+
 Here the intended audience is those who believe President Obama is a radical leftist and associates itself with the center-right.  Unlike the audience of liberals and leftists, who oppose war and favor a restrictive interpretation of the Second Amendment, this audience is more hawkish and more likely to support of an expansive interpretation of the Second Amendment.  I would contend that this is an example of "violent rhetoric" not because it contains crosshairs aimed at "the candidates" who represent "the problem" in need of "solution," and despite the fact that talking about "solving" human beings has a rather untoward history, but because its violence is a product of whose imaginations are being stoked and how it is being done. 
 
 The intended effect of this image is _not_ to encourage the assassination of candidates; however, the pathetic appeal being made to this particular audience is certainly intended to stoke their imaginations in ways related to their ideological belief in an expansive interpretation of the Second Amendment.  This rhetoric is violent, then, because it was intended to appeal to an audience whose imaginations would be stoked by a reference to shooting things.  The same cannot be said of [this similar map](http://patterico.com/2011/01/09/left-and-media-but-i-repeat-myself-in-a-fact-free-frenzy-to-blame-palin-for-giffords-shooting/):
 
-[![Leftists-Target-Republicans-2](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0147e173616d970b-500wi "Leftists-Target-Republicans-2")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0147e173616d970b-popup)   
+[![Leftists-Target-Republicans-2](../../images/acephalous/6a00d8341c2df453ef0147e173616d970b-500wi "Leftists-Target-Republicans-2")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0147e173616d970b-popup)   
+
 Why not?  Are bullseye that different from crosshairs?  Of course not.  However, the intended audience is: the imaginations of liberals and leftists who support a restrictive interpretation of the Second Amendment are not stoked by images of bullseyes.  They generally have no pathetic investment in crossbows and so appeals of this sort are less likely to be effective than those like the one above.  In terms of rhetoric, then, only the first of these two maps can be designated as "violent" because only it attempts to persuade its audience into action by stoking imaginations by referencing shooting things.\*
 
 So now that we have something resembling a proper working definition of "violent rhetoric," the next question is whether "violent rhetoric" like Palin's is responsible for the assassination attempt on Gifford.  The answer is that I'm not convinced.\*\*  From what I've read, he never expressed interest in guns until last November, so the likelihood of ads like hers stoking his imagination is slim.  The more pernicious rhetoric here is the conspiratorial variety being mainstreamed by the likes of Glenn Beck: rabid and ahistorical anti-federalism feeds into the beliefs of those who believe they're being persecuted by vast faceless conspiracies. 
 
-\*I suppose one possible objection is that shooting is not, in and of  itself, a violent act, but given that it specifically links the  crosshairs to candidates, I think that would be a difficult argument to  make here.
+\* I suppose one possible objection is that shooting is not, in and of  itself, a violent act, but given that it specifically links the  crosshairs to candidates, I think that would be a difficult argument to  make here.
 
-\*\*That said, I do believe whichever party was responsible for the dismantling the mental health system—generally in the 1980s and more recently in Arizona—and consistently lobbies for fewer restrictions on the purchasing of powerful weaponry is partly culpable for what happened on Saturday. 
-
-			
+\*\* That said, I do believe whichever party was responsible for the dismantling the mental health system—generally in the 1980s and more recently in Arizona—and consistently lobbies for fewer restrictions on the purchasing of powerful weaponry is partly culpable for what happened on Saturday. 
 
 * * *
 
-### 13 Comments 
-
-		
-
-                
-[]()
-
-	
-
-		![Matt Gabriele](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/02-50si.gif)
-	
-
-	
-
-		
-
 Wow, this is good.  I had some thoughts on this from a historical perspective ([http://bit.ly/htZ0Q1),](http://bit.ly/htZ0Q1),) but this is better.  
 
-	
+Posted by: [Matt Gabriele](http://modernmedieval.blogspot.com/) | [Monday, 10 January 2011 at 06:12 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e173a88c970b#comment-6a00d8341c2df453ef0147e173a88c970b)
 
-		Posted by:
-		[Matt Gabriele](http://modernmedieval.blogspot.com/) |
-		[Monday, 10 January 2011 at 06:12 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e173a88c970b#comment-6a00d8341c2df453ef0147e173a88c970b)
-
-[]()
-
-	
-
-		![nutellaontoast](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/03-50si.gif)
-	
-
-	
-
-		
+* * *
 
 This is good, but the assertion that Palin's rhetoric is violent and Olbermann's isn't is entirely founded on the assumption that Palin's fans are violent and Olbermann's are not, and that seems to me as very close to begging the question, doesn't it?
 
@@ -89,22 +55,9 @@ So yea, define violent rhetoric and contextualize specifically enough and it may
 
 Otherwise, you're basically defending the assertion that the right has a monopoly on violent rhetoric, which seems dismissable out of hand.
 
-	
+Posted by: nutellaontoast | [Monday, 10 January 2011 at 06:56 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e173ec4e970b#comment-6a00d8341c2df453ef0147e173ec4e970b)
 
-		Posted by:
-		nutellaontoast |
-		[Monday, 10 January 2011 at 06:56 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e173ec4e970b#comment-6a00d8341c2df453ef0147e173ec4e970b)
-
-[]()
-
-	
-
-		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
+* * *
 
 @Matt: Thanks!
 
@@ -118,41 +71,15 @@ _you're basically defending the assertion that the right has a monopoly on viole
 
 If that were the extent of violent rhetoric instead of an example of it, I'd agree ... but to reverse what I wrote, it makes sense that imagery of the sort Palin used wouldn't be nearly as effective on Olbermann's audience, no?
 
-	
+Posted by: [SEK](http://acephalous.typepad.com) | [Monday, 10 January 2011 at 07:07 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e173ff43970b#comment-6a00d8341c2df453ef0147e173ff43970b)
 
-		Posted by:
-		[SEK](http://acephalous.typepad.com) |
-		[Monday, 10 January 2011 at 07:07 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e173ff43970b#comment-6a00d8341c2df453ef0147e173ff43970b)
-
-[]()
-
-	
-
-		![Blogenspiel.blogspot.com](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/18-50si.gif)
-	
-
-	
-
-		
+* * *
 
 What Matt said
 
-	
+Posted by: [Blogenspiel.blogspot.com](http://profile.typepad.com/blogenspielblogspotcom) | [Monday, 10 January 2011 at 07:45 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0148c77dd095970c#comment-6a00d8341c2df453ef0148c77dd095970c)
 
-		Posted by:
-		[Blogenspiel.blogspot.com](http://profile.typepad.com/blogenspielblogspotcom) |
-		[Monday, 10 January 2011 at 07:45 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0148c77dd095970c#comment-6a00d8341c2df453ef0148c77dd095970c)
-
-[]()
-
-	
-
-		![That Guy](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/13-50si.gif)
-	
-
-	
-
-		
+* * *
 
 This is a fine definition, however the fact that it excludes the Clear and Present Danger Test is — in my frank opinion — inappropriate. Oliver Wendell Holmes was faced with this type of problem in 1919, in _Schenck v. the United States_. Another important Supreme Court case to consider in this imbroglio is 1969's _Brandenburg v. Ohio_.  Although I'm no legal professional, it is my opinion that these rulings should inform us as to what "dangerous" speech happens to be — especially since they are what would really matter in this situation. 
 
@@ -164,41 +91,16 @@ Again, it seems that Turner's case is a no brainer — especially considering th
 
 Presumably, one against Glenn Beck could be just as hard; although I haven't regularly watched his program since he switched to Fox News, so all bets are off. 
 
-	
+Posted by: That Guy | [Monday, 10 January 2011 at 09:35 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e174ebc1970b#comment-6a00d8341c2df453ef0147e174ebc1970b)
 
-		Posted by:
-		That Guy |
-		[Monday, 10 January 2011 at 09:35 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e174ebc1970b#comment-6a00d8341c2df453ef0147e174ebc1970b)
-
-[]()
-
-	
-
-		![That Guy](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/13-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Not really necessary for a second post, but sincerest apologies for the italics faux pas. 
 
-	
+Posted by: That Guy | [Monday, 10 January 2011 at 09:59 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e1750c93970b#comment-6a00d8341c2df453ef0147e1750c93970b)
 
-		Posted by:
-		That Guy |
-		[Monday, 10 January 2011 at 09:59 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e1750c93970b#comment-6a00d8341c2df453ef0147e1750c93970b)
+* * *
 
-[]()
-
-	
-
-		![Fritz](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/05-50si.gif)
-	
-
-	
-
-		
 Unlike the audience of liberals and leftists, who oppose war
 
 Let me stop you right there.  Particular wars?  Yes.  War generally?  No.
@@ -207,22 +109,9 @@ Second, the notion of an "expansive interpretation of the Second Amendment" is i
 
 Also, since liberals favor a greater role for government in private life, by nature a coercive power, it seems just as likely that liberals would favor using force to achieve their political ends.
 
-	
+Posted by: [Fritz](http://frederickmhemker.blogspot.com) | [Monday, 10 January 2011 at 10:16 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e175298c970b#comment-6a00d8341c2df453ef0147e175298c970b)
 
-		Posted by:
-		[Fritz](http://frederickmhemker.blogspot.com) |
-		[Monday, 10 January 2011 at 10:16 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e175298c970b#comment-6a00d8341c2df453ef0147e175298c970b)
-
-[]()
-
-	
-
-		![Matt](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/19-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Fritz, 
 
@@ -230,22 +119,9 @@ Liberals tend to use "coercive power" in government (and have done so historical
 
 And you're probably right that if we had laxer gun laws, with more people armed, things like the massacre in Tucson wouldn't have happened, right?  
 
-	
+Posted by: [Matt](http://modernmedieval.blogspot.com/) | [Tuesday, 11 January 2011 at 07:40 AM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e17829a5970b#comment-6a00d8341c2df453ef0147e17829a5970b)
 
-		Posted by:
-		[Matt](http://modernmedieval.blogspot.com/) |
-		[Tuesday, 11 January 2011 at 07:40 AM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e17829a5970b#comment-6a00d8341c2df453ef0147e17829a5970b)
-
-[]()
-
-	
-
-		![vkb](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/01-50si.gif)
-	
-
-	
-
-		
+* * *
 
 "It goes without saying that the majority of political rhetoric in America is, in this technical sense, pathetic.  This is simply because most politicians have questionable ethos..."
 
@@ -253,22 +129,9 @@ That seems wrong to me.  Isn't Sarah Palin's Alaska essentially about projecting
 
 Ethos is pervasive in political discourse and, I would say, as important as pathos.    
 
-	
+Posted by: vkb | [Tuesday, 11 January 2011 at 09:18 AM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0148c7825688970c#comment-6a00d8341c2df453ef0148c7825688970c)
 
-		Posted by:
-		vkb |
-		[Tuesday, 11 January 2011 at 09:18 AM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0148c7825688970c#comment-6a00d8341c2df453ef0148c7825688970c)
-
-[]()
-
-	
-
-		![nutellaontoast](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/03-50si.gif)
-	
-
-	
-
-		
+* * *
 
 C'mon SEK, the left implies violence plenty. right wing sites have found examples of guns in Dem's TV ads.  MoveOn made a plea from a future, militarized Olivia Wilde.  I think Olberman's example is fairly violent.  Giffords herself is now being passed around for her quote about owning a Glock and being a good shot in response to acts committed against her.  
 
@@ -278,74 +141,29 @@ The "left" has engaged in violent acts and rhetoric a plenty in the past 60 year
 
 Using your own definition, Obama himself is constantly saying things with the intent to cause violence to an audience he knows will respond.  He calls them "orders."
 
-	
+Posted by: nutellaontoast | [Tuesday, 11 January 2011 at 10:23 AM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0148c782c311970c#comment-6a00d8341c2df453ef0148c782c311970c)
 
-		Posted by:
-		nutellaontoast |
-		[Tuesday, 11 January 2011 at 10:23 AM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0148c782c311970c#comment-6a00d8341c2df453ef0148c782c311970c)
+* * *
 
-[]()
-
-	
-
-		![Fritz](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/05-50si.gif)
-	
-
-	
-
-		
 Liberals tend to use "coercive power" in government (and have done so historically) as a check on individual liberty when that liberty infringes on the rights of others - my "right" to discriminate against someone else. Conservatives are the ones who have shown that they use "coercive power" to limit individual freedom, even when that freedom effects no one else - the right to marry, etc.
 
 That's the automatic first move, Matt, but it doesn't hold water.  Suffice to say, the only people consistent on this point are Libertarians, Anarchists, and your various totalitarian philosophies.
 
-	
+Posted by: [Fritz](http://frederickmhemker.blogspot.com) | [Tuesday, 11 January 2011 at 10:29 AM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e17946d7970b#comment-6a00d8341c2df453ef0147e17946d7970b)
 
-		Posted by:
-		[Fritz](http://frederickmhemker.blogspot.com) |
-		[Tuesday, 11 January 2011 at 10:29 AM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e17946d7970b#comment-6a00d8341c2df453ef0147e17946d7970b)
+* * *
 
-[]()
-
-	
-
-		![The Objective Mind](http://graph.facebook.com/1359138861/picture?type=square)
-	
-
-	
-
-		
-
-[http://www.alternet.org/newsandviews/article/438587/the\_word\_%!r(MISSING)hetoric%!\(MISSING)_doesn't\_mean\_what\_the\_pundits\_think\_it\_means/#paragraph7](http://www.alternet.org/newsandviews/article/438587/the\_word\_%!r(MISSING)hetoric%!\(MISSING)_doesn't\_mean\_what\_the\_pundits\_think\_it\_means/#paragraph7)
+[http://www.alternet.org/newsandviews/article/438587/the\_word\_%22rhetoric%22\_doesn't\_mean\_what\_the\_pundits\_think\_it\_means/#paragraph7](http://www.alternet.org/newsandviews/article/438587/the_word_%22rhetoric%22_doesn't_mean_what_the_pundits_think_it_means/#paragraph7)
 
 Did you write this ?
 
-	
+Posted by: [The Objective Mind](http://profile.typepad.com/theobjective) | [Friday, 14 January 2011 at 03:08 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e1953464970b#comment-6a00d8341c2df453ef0147e1953464970b)
 
-		Posted by:
-		[The Objective Mind](http://profile.typepad.com/theobjective) |
-		[Friday, 14 January 2011 at 03:08 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e1953464970b#comment-6a00d8341c2df453ef0147e1953464970b)
-
-[]()
-
-	
-
-		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
+* * *
 
 _Did you write this?_
 
 The majority of it quotes my post, but the citation is clear, so I don't have a problem with it.  Why?
 
-	
+Posted by: [SEK](http://acephalous.typepad.com) | [Friday, 14 January 2011 at 03:19 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e195456c970b#comment-6a00d8341c2df453ef0147e195456c970b)
 
-		Posted by:
-		[SEK](http://acephalous.typepad.com) |
-		[Friday, 14 January 2011 at 03:19 PM](http://acephalous.typepad.com/acephalous/2011/01/what-is-violent-rhetoric-.html?cid=6a00d8341c2df453ef0147e195456c970b#comment-6a00d8341c2df453ef0147e195456c970b)
-
-		
-
-        

@@ -3,58 +3,25 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html
  * Wednesday, August 11, 2010
 
-
-
 When the _Huffington Post_ decided to byline Anis Shivani as "Writer," they were sorta onto something, because he's certainly not a "Reader."  By [his lights](http://www.huffingtonpost.com/anis-shivani/the-15-most-overrated-con\_b\_672974.html#s123718), John Ashbery is "[m]ore responsible than anyone else for turning late twentieth-century  American poetry into a hermetic, self-enclosed, utterly private affair."  Which would be true, only it isn't, as confessional poets like Anne Sexton had long ago already planted a flag there.  But I'm not sure "Writer" fits him either, at least not as evidenced by his broadside against Amy Tan:
 
-Helped deflect Asian-American writing's oppositional energies by  promoting convenient multicultural myths.  Her facile multicultural  template has had vast implications for the entire culture industry.   Flattened politics and history to private angst in depiction of minority  assimilation.  Empowered other immigrant writers to make mountains out  of the molehills of their minor adjustment struggles.
+> Helped deflect Asian-American writing's oppositional energies by  promoting convenient multicultural myths.  Her facile multicultural  template has had vast implications for the entire culture industry.   Flattened politics and history to private angst in depiction of minority  assimilation.  Empowered other immigrant writers to make mountains out  of the molehills of their minor adjustment struggles.
 
-I think "Over-Writer" might have made for a more accurate byline.  (As I always tell my students, 99 percent of the time people write the word "facile," it's because their understanding of the topic is as superficial as the one they're dismissing.)  (Except when [I use it](http://www.google.com/search?q=site%!A(MISSING)http%!A(MISSING)%!F(MISSING)%!F(MISSING)acephalous.typepad.com+facile&ie=utf-8&oe=utf-8&aq=t&rls=org.mozilla:en-US:official&client=firefox-a), because I'm a one-percenter, damn it.)  Consider his description of Jonathan Safran Foer's literary sins:
+I think "Over-Writer" might have made for a more accurate byline.  (As I always tell my students, 99 percent of the time people write the word "facile," it's because their understanding of the topic is as superficial as the one they're dismissing.)  (Except when [I use it](http://www.google.com/search?q=site%3Ahttp%3A%2F%2Facephalous.typepad.com+facile&ie=utf-8&oe=utf-8&aq=t&rls=org.mozilla:en-US:official&client=firefox-a), because I'm a one-percenter, damn it.)  Consider his description of Jonathan Safran Foer's literary sins:
 
-Always quick to jump on to the bandwagon of the moment.  Debuted with harmless multiculturalism for the perennially bored in _Everything Is Illuminated_,  with cute lovable foreigners and the slacker generation digging  lovableness; a more pretentious "magical realist" novel was never  written.
+> Always quick to jump on to the bandwagon of the moment.  Debuted with harmless multiculturalism for the perennially bored in _Everything Is Illuminated_,  with cute lovable foreigners and the slacker generation digging  lovableness; a more pretentious "magical realist" novel was never  written.
 
 Anyone who believes _Everything Is Illuminated_ is the most pretentious magic realist novel ever written hasn't read many magic realist novels.
 
-		
-
 * * *
-
-### 11 Comments 
-
-		
-
-                
-[]()
-
-	
-
-		![Vance Maverick](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/13-50si.gif)
-	
-
-	
-
-		
 
 Not sure what you're on about with Sexton. Ashbery was her elder by a year. He won the Yale Younger Poets prize in 1956, while her first book was accepted for publication in 1959.
 
 But more seriously, claims of the form "Avant-gardist X destroyed her art form by being too obscure/private/difficult" fail because there's no plausible causal mechanism that can preserve X's responsibility. If Ashbery was so terrible, why would anyone have imitated him?
 
-	
+Posted by: Vance Maverick | [Wednesday, 11 August 2010 at 11:50 AM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348622c4e7970c#comment-6a00d8341c2df453ef01348622c4e7970c)
 
-		Posted by:
-		Vance Maverick |
-		[Wednesday, 11 August 2010 at 11:50 AM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348622c4e7970c#comment-6a00d8341c2df453ef01348622c4e7970c)
-
-[]()
-
-	
-
-		![Amardeep](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/11-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Agreed. This was an atrocious little list. 
 
@@ -66,22 +33,9 @@ If he were a Facebook Friend, I would unfriend him.
 
 If I were Twitter's God, I would untrend him. 
 
-	
+Posted by: [Amardeep](http://www.lehigh.edu/~amsp/blog.html) | [Wednesday, 11 August 2010 at 12:01 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348622d1c5970c#comment-6a00d8341c2df453ef01348622d1c5970c)
 
-		Posted by:
-		[Amardeep](http://www.lehigh.edu/~amsp/blog.html) |
-		[Wednesday, 11 August 2010 at 12:01 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348622d1c5970c#comment-6a00d8341c2df453ef01348622d1c5970c)
-
-[]()
-
-	
-
-		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
+* * *
 
 _Not sure what you're on about with Sexton. Ashbery was her elder by a year. He won the Yale Younger Poets prize in 1956, while her first book was accepted for publication in 1959._
 
@@ -99,62 +53,23 @@ In these eleven stories of novelistic breadth and ambition, global tensions and 
 
 So as it turns out, _no_.
 
-	
+Posted by: [SEK](http://acephalous.typepad.com) | [Wednesday, 11 August 2010 at 12:34 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348622fabd970c#comment-6a00d8341c2df453ef01348622fabd970c)
 
-		Posted by:
-		[SEK](http://acephalous.typepad.com) |
-		[Wednesday, 11 August 2010 at 12:34 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348622fabd970c#comment-6a00d8341c2df453ef01348622fabd970c)
-
-[]()
-
-	
-
-		![Vance Maverick](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/13-50si.gif)
-	
-
-	
-
-		
+* * *
 
 OK, I misguessed why you brought in Sexton -- you meant that it's "the confessionals" who are "responsible" for making our poetry "hermetic, self-enclosed, utterly private". I thought Shivani was dragging in Ashbery as a representative "difficult" poet, for a different sense of hermeticism -- poetry (supposedly) intelligible only to its author or to initiates.
 
-	
+Posted by: Vance Maverick | [Wednesday, 11 August 2010 at 02:30 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348623cbfa970c#comment-6a00d8341c2df453ef01348623cbfa970c)
 
-		Posted by:
-		Vance Maverick |
-		[Wednesday, 11 August 2010 at 02:30 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348623cbfa970c#comment-6a00d8341c2df453ef01348623cbfa970c)
-
-[]()
-
-	
-
-		![GeoX](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/17-50si.gif)
-	
-
-	
-
-		
+* * *
 
 _your book of short stories on a vanity press_
 
 Is it a vanity press?  It doesn't look like that to me, unless we're using the phrase in totally difference senses.  A small press isn't even slightly the same thing.
 
-	
+Posted by: [GeoX](http://inchoatia.blogspot.com) | [Wednesday, 11 August 2010 at 04:49 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef013486256a14970c#comment-6a00d8341c2df453ef013486256a14970c)
 
-		Posted by:
-		[GeoX](http://inchoatia.blogspot.com) |
-		[Wednesday, 11 August 2010 at 04:49 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef013486256a14970c#comment-6a00d8341c2df453ef013486256a14970c)
-
-[]()
-
-	
-
-		![Matthew Merlino](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/06-50si.gif)
-	
-
-	
-
-		
+* * *
 
 I actually think this piece is quite spot on.
 
@@ -170,79 +85,27 @@ As far as Foer goes, sure, it's not the most pretentious magical realist novel, 
 
 Back to Ashbery -- you're misreading what he means by turning poetry into a hermetic, self-enclosed private affair.  He's not talking about vanity or self-centeredness (which he attacks in Louise Gluck).  He's talking about the transformation of poetry into a self-enclosed block of non-referential language.  And here again he's completely right.  Ashbery is not the only influence, but he's the most popular, the one that has given the most license to young poets to write such verse.  And again, since \*The Tennis Court Oath\*, Ashbery hasn't taken any artistic risks, leaving it up to the next generation of Language Poets to suffer stupid attacks on their poetry while he finds crossover success in the mainstream (especially as his poetry backed down from the radical fragmentation of the \*Oath\* and he found a kind of airbrushed sheen for his parataxis. 
 
-	
+Posted by: Matthew Merlino | [Wednesday, 11 August 2010 at 06:27 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348625c474970c#comment-6a00d8341c2df453ef01348625c474970c)
 
-		Posted by:
-		Matthew Merlino |
-		[Wednesday, 11 August 2010 at 06:27 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348625c474970c#comment-6a00d8341c2df453ef01348625c474970c)
-
-[]()
-
-	
-
-		![Matthew Merlino](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/06-50si.gif)
-	
-
-	
-
-		
+* * *
 
 And by the way, it's "Ashbery," not "Ashberry."
 
-	
+Posted by: Matthew Merlino | [Wednesday, 11 August 2010 at 06:27 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348625c533970c#comment-6a00d8341c2df453ef01348625c533970c)
 
-		Posted by:
-		Matthew Merlino |
-		[Wednesday, 11 August 2010 at 06:27 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348625c533970c#comment-6a00d8341c2df453ef01348625c533970c)
+* * *
 
-[]()
+I never had you pegged as a one-percenter, Scott.  [http://www.urbandictionary.com/define.php?term=one%20percenter](http://www.urbandictionary.com/define.php?term=one%20percenter)
 
-	
+Posted by: James T | [Wednesday, 11 August 2010 at 07:01 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef0133f3026386970b#comment-6a00d8341c2df453ef0133f3026386970b)
 
-		![James T](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/04-50si.gif)
-	
-
-	
-
-		
-
-I never had you pegged as a one-percenter, Scott.  [http://www.urbandictionary.com/define.php?term=one%!p(MISSING)ercenter](http://www.urbandictionary.com/define.php?term=one%!p(MISSING)ercenter)
-
-	
-
-		Posted by:
-		James T |
-		[Wednesday, 11 August 2010 at 07:01 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef0133f3026386970b#comment-6a00d8341c2df453ef0133f3026386970b)
-
-[]()
-
-	
-
-		![SeanH](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/18-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Now, a [Five Percenter](http://en.wikipedia.org/wiki/Five\_Percenter), sure, I could see that. Word is bond.
 
-	
+Posted by: SeanH | [Wednesday, 11 August 2010 at 07:47 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef013486261cf5970c#comment-6a00d8341c2df453ef013486261cf5970c)
 
-		Posted by:
-		SeanH |
-		[Wednesday, 11 August 2010 at 07:47 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef013486261cf5970c#comment-6a00d8341c2df453ef013486261cf5970c)
-
-[]()
-
-	
-
-		![SEK](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Vance:
 
@@ -268,33 +131,13 @@ James and Sean:
 
 I am, apparently, not a percenter at all (nor do I want to be).
 
-	
+Posted by: [SEK](http://acephalous.typepad.com) | [Thursday, 12 August 2010 at 11:05 AM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348629c6e5970c#comment-6a00d8341c2df453ef01348629c6e5970c)
 
-		Posted by:
-		[SEK](http://acephalous.typepad.com) |
-		[Thursday, 12 August 2010 at 11:05 AM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef01348629c6e5970c#comment-6a00d8341c2df453ef01348629c6e5970c)
-
-[]()
-
-	
-
-		![latinist](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/12-50si.gif)
-	
-
-	
-
-		
+* * *
 
 In general, it's really frustrating that people who write about authors being "overrated" tend to pay no attention to how they are, in fact, rated by mainstream critics. I mean Amy Tan is very widely thought of as an overly sappy middlebrow novelist, no? I've never read her, so I can't comment on the accuracy of that assessment, but it's ridiculous to pretend that Shivani's position is a daring, revolutionary one. Similarly, unqualified praise of Vollmann is pretty rare, and Shivani is far from the first person to point out that his books are rather long and dense.
 
 Going back to your first point in the post, calling someone a "writer" reminds me of the History Channel's habit, when discussing Nostradamus or ancient astronauts or similar infuriating crap, of interviewing people who are identified below their names with credentials such as "author" or "Nostradamus expert," when they might as well just come out and say "crackpot."
 
-	
+Posted by: latinist | [Thursday, 12 August 2010 at 12:19 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef0133f306952b970b#comment-6a00d8341c2df453ef0133f306952b970b)
 
-		Posted by:
-		latinist |
-		[Thursday, 12 August 2010 at 12:19 PM](http://acephalous.typepad.com/acephalous/2010/08/contemporary-literature-deserves-better-trolls.html?cid=6a00d8341c2df453ef0133f306952b970b#comment-6a00d8341c2df453ef0133f306952b970b)
-
-		
-
-        
