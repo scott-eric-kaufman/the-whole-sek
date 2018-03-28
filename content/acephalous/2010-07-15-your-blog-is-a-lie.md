@@ -3,75 +3,25 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html
  * Thursday, July 15, 2010
 
-
-
 So declares the subject line of an email I just received from someone who, according to her own testimony, probably has better things to be doing:
-i came here thru google becuz [my husbands ring is stuck on his finger](http://acephalous.typepad.com/acephalous/2007/08/how-to-remove-a.html)
-and this was supposedly to tell me how to remove it BUT IT DOES NOT. 
-His finger really hurts and now i have wasted TIME reading your website
-that i should have been reading others.  you need to tell people that
-this is ALL LIES becuz what if they have to cut his finger off HOW
-WOULD YOU FEEL THEN!!!!!!!!
+
+> i came here thru google becuz [my husbands ring is stuck on his finger](http://acephalous.typepad.com/acephalous/2007/08/how-to-remove-a.html) and this was supposedly to tell me how to remove it BUT IT DOES NOT.  His finger really hurts and now i have wasted TIME reading your website that i should have been reading others.  you need to tell people that this is ALL LIES becuz what if they have to cut his finger off HOW WOULD YOU FEEL THEN!!!!!!!!
 
 Like you maybe have something more important to be doing than writing an email?  I'm just saying.
 
-		
-
 * * *
-
-### 6 Comments 
-
-		
-
-                
-[]()
-
-	
-
-		![tomemos](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/07-50si.gif)
-	
-
-	
-
-		
 
 So you couldn't be persuaded to replace the Ephraim Chambers quote at the top of the page with the words "This is ALL LIES"?
 
-	
+Posted by: [tomemos](http://tomemos.wordpress.com) | [Thursday, 15 July 2010 at 08:05 PM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef01348576308d970c#comment-6a00d8341c2df453ef01348576308d970c)
 
-		Posted by:
-		[tomemos](http://tomemos.wordpress.com) |
-		[Thursday, 15 July 2010 at 08:05 PM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef01348576308d970c#comment-6a00d8341c2df453ef01348576308d970c)
-
-[]()
-
-	
-
-		![nutellaontoast](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/03-50si.gif)
-	
-
-	
-
-		
+* * *
 
 You know, she was kind of rude about it, but I've been meaning to tell you the same thing myself.
 
-	
+Posted by: [nutellaontoast](http://firemeganmcardle.blogspot.com) | [Friday, 16 July 2010 at 01:25 AM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef0133f25215a5970b#comment-6a00d8341c2df453ef0133f25215a5970b)
 
-		Posted by:
-		[nutellaontoast](http://firemeganmcardle.blogspot.com) |
-		[Friday, 16 July 2010 at 01:25 AM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef0133f25215a5970b#comment-6a00d8341c2df453ef0133f25215a5970b)
-
-[]()
-
-	
-
-		![JaneDoe](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/20-50si.gif)
-	
-
-	
-
-		
+* * *
 
 She's very rude, but it's awesome your blog comes up in a Google search for stuck rings!
 
@@ -79,22 +29,9 @@ And I sincerely hope the finger didn't lose more circulation while she was sendi
 
 Hopefully, he has a support system apart from his wife, but still I would love to see you reply to the charges of LIES, LIES, LIES, ALL LIES! 
 
-	
+Posted by: JaneDoe | [Friday, 16 July 2010 at 11:18 PM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef0134857ccaad970c#comment-6a00d8341c2df453ef0134857ccaad970c)
 
-		Posted by:
-		JaneDoe |
-		[Friday, 16 July 2010 at 11:18 PM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef0134857ccaad970c#comment-6a00d8341c2df453ef0134857ccaad970c)
-
-[]()
-
-	
-
-		![anonymous](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/06-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Damnit, I spent the better part of an hour writing a comment for the anime/manga post only to find out that comments are apparently locked on older posts. So I'm just posting this here, so _nyah_
 
@@ -126,50 +63,17 @@ etc. etc.
 
 There's a whole universe of manga-and-anime-that-people-won't-recommend-to-a-literature-professor out there. You're missing out on veritable oceans of derivative, puerile schlock! But this comment is being written anonymously (and the email address is a Lucky Star reference), so I have no such shame: If you want to seriously understand anime/manga as a whole, you need to read a lot of stuff you're going to absolutely loathe. Because that's a giant chunk of the market. "Love Hina" ran for twelve volumes, but "Negima!" is still going strong after 32.
 
-	
+Posted by: [anonymous](http://sohdan.blogspot.com/) | [Saturday, 17 July 2010 at 06:54 PM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef0133f25bb621970b#comment-6a00d8341c2df453ef0133f25bb621970b)
 
-		Posted by:
-		[anonymous](http://sohdan.blogspot.com/) |
-		[Saturday, 17 July 2010 at 06:54 PM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef0133f25bb621970b#comment-6a00d8341c2df453ef0133f25bb621970b)
-
-[]()
-
-	
-
-		![anonymous](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/06-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Damnit. Didn't notice that the URL field did not stay empty when I moved from one post to another. Oh well, genuine anonymity is for cowards (and attentive people).
 
-	
+Posted by: anonymous | [Saturday, 17 July 2010 at 06:56 PM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef0133f25bb7fb970b#comment-6a00d8341c2df453ef0133f25bb7fb970b)
 
-		Posted by:
-		anonymous |
-		[Saturday, 17 July 2010 at 06:56 PM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef0133f25bb7fb970b#comment-6a00d8341c2df453ef0133f25bb7fb970b)
-
-[]()
-
-	
-
-		![JohnR](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/11-50si.gif)
-	
-
-	
-
-		
+* * *
 
 Don't take it too hard - it's not \_all\_ lies (although that may be more by accident than by design).  Anyway, her last, anguished, question pleads for a response, so I'll take it upon myself to say "I'd feel fine - it's no skin off my nose."  It's just too bad that this comforting thought will never reach her.  On the one hand, I wonder if her husband ever got his ring off (so that he could meet other, perhaps more interesting women? We can only speculate), but on the other hand, I don't really care.
 
-	
+Posted by: JohnR | [Monday, 19 July 2010 at 11:32 AM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef0133f264ee1d970b#comment-6a00d8341c2df453ef0133f264ee1d970b)
 
-		Posted by:
-		JohnR |
-		[Monday, 19 July 2010 at 11:32 AM](http://acephalous.typepad.com/acephalous/2010/07/your-blog-is-a-lie.html?cid=6a00d8341c2df453ef0133f264ee1d970b#comment-6a00d8341c2df453ef0133f264ee1d970b)
-
-		
-
-        

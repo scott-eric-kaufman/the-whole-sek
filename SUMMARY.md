@@ -3508,4 +3508,5 @@
 ## Miscellanous
 
 * [An Enthusiast's View of Academic Blogs](content/miscellaneous/2007-11-01-enthusiasts-view-academic-blogs.md)
+* [Obituary: Scott Eric Kaufman, PhD](content/miscellaneous/obituary.md)
 
