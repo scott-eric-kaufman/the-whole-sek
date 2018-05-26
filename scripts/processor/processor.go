@@ -9,12 +9,13 @@ import (
 	"bytes"
 	"flag"
 	"fmt"
-	"github.com/PuerkitoBio/goquery"
-	"github.com/lunny/html2md"
 	"io/ioutil"
 	"os"
 	"strings"
 	"time"
+
+	"github.com/PuerkitoBio/goquery"
+	"github.com/lunny/html2md"
 )
 
 var (
@@ -136,7 +137,7 @@ func sanitizeSlugName(name string) string {
 	trimout := []string{
 		" ", "!", "&amp;", "&", "_", "%", "#", "@", ";", ":",
 		",", "’", "'", "(", ")", "'", `"`, "[", "]", "*", ".",
-		"”", "“", "?", "…", "—", "<em>", "</em>", "–", 
+		"”", "“", "?", "…", "—", "<em>", "</em>", "–",
 		"\r", "\n", "\t",
 	}
 	x := strings.Trim(strings.ToLower(name), " .-!")
