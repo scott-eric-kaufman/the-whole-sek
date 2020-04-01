@@ -16,6 +16,7 @@ import (
 
 	"github.com/PuerkitoBio/goquery"
 	"github.com/lunny/html2md"
+	"golang.org/x/net/html"
 )
 
 var (
@@ -29,6 +30,7 @@ var (
 	dateProperty   = flag.String("date-property", "", "Date HTML selector attribute")
 	dateFormat     = flag.String("date-format", "Monday, 02 January 2006", "Date format (Mon Jan 2 15:04:05 MST 2006)")
 	contentElement = flag.String("content", "div.entry-content", "Content HTML selector")
+	purgeElements  = flag.String("purge-elements", "", "Comma-separated element list to purge from content")
 )
 
 func main() {
@@ -75,6 +77,9 @@ func main() {
 		date, _ = time.Parse(*dateFormat, dateText)
 	})
 	doc.Find(*contentElement).Each(func(i int, s *goquery.Selection) {
+		s.Find(*purgeElements).Each(func(i int, s2 *goquery.Selection) {
+			removeNode(s.Get(0), s2.Get(0))
+		})
 		contentBodySegment, _ := s.Html()
 		if contentBody != "" {
 			contentBody += "\n<hr/>\n"
@@ -104,6 +109,34 @@ func main() {
 	fn := *outDir + string(os.PathSeparator) + slug + ".md"
 	fmt.Println("Writing to " + fn)
 	ioutil.WriteFile(fn, buf.Bytes(), 0600)
+}
+
+// removeNode searches node siblings (and child siblings and so on)
+// and after successfully found - remove it
+func removeNode(rootNode *html.Node, removeMe *html.Node) {
+	foundNode := false
+	checkNodes := make(map[int]*html.Node)
+	i := 0
+
+	// loop through siblings
+	for n := rootNode.FirstChild; n != nil; n = n.NextSibling {
+		if n == removeMe {
+			foundNode = true
+			n.Parent.RemoveChild(n)
+		}
+
+		checkNodes[i] = n
+		i++
+	}
+
+	// check if removing node is found
+	// if yes no need to check childs returning
+	// if no continue loop through childs and so on
+	if foundNode == false {
+		for _, item := range checkNodes {
+			removeNode(item, removeMe)
+		}
+	}
 }
 
 func sanitizeHtmlInput(i string) string {
