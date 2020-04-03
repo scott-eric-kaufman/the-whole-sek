@@ -13,255 +13,140 @@ Revision 23 / Serial number 8940726
 
 [In Apartment Complex](http://upload.wikimedia.org/wikipedia/en/c/ce/Zork\_screenshot.png)
 
-&gt; go to library website
+> go to library website
 
 Before you is the UCI Library website.  To your left are the crumbling remains of an ancient civilization.
 
-&gt; really?
+> really?
 
 No.
 
-&gt; open newspaper database asshole
+> open newspaper database asshole
 
 Firefox will not open crap links to spoofed addresses.
 
-&gt; is library is safe open newspaper database
+> is library is safe open newspaper database
 
 Firefox declines invitations to virus orgies on principle.  Perhaps a more gullible browser would be more to your liking.
 
-&gt; open internet explorer
+> open internet explorer
 
 You feel more vulnerable already.  Before you is the UCI Library website.  To your left is the a visual representation of what is about to happen to your computer.
 
-&gt; what?
+> what?
 
 Nothing.
 
-&gt; open newspaper database
+> open newspaper database
 
 YOU HAVE A SMALL PENIS!  WOMEN LAUGH AT IT!  VIEW PORNOGRAPHY!  STAY HARD FOR HOURS!  YOU MIGHT ALREADY BE A WINNER!
 
-&gt; what?
+> what?
 
 INVESTMENT OPPORTUNITIES ABOUND!  YOU COULD BE HARDER LONGER!  SUBSCRIBE TO THE WALL STREET JOURNAL!  YOUR PENIS IS SMALL!
 
-&gt; is not
+> is not
 
 IS TOO!  INVEST IN GOLD!  WHO IS THIS FAMOUS PERSON NAMED PRESIDENT BUSH!  IDENTIFY HIM CORRECTLY AND WIN A FREE IPOD!
 
-&gt; thanks but no what about those newspaper articles
+> thanks but no what about those newspaper articles
 
 YOU WENT TO HIGH SCHOOL WITH THIS PERSON!  NOW THEY ARE HOT!  SHOW THEM YOUR HARD PENIS!  THEY ARE CHRISTIAN SINGLES!  WIN A PLASMA TV!
 
-&gt; close internet explorer
+> close internet explorer
 
 Your attempt to close a window spawns seven others.  They collectively inform you—
 
-&gt; yes i know small flaccid penis on poor jew with normal tv
+> yes i know small flaccid penis on poor jew with normal tv
 
 You confront your inadequacies with admirable resignation.  You should consider a career in academia.
 
-&gt; har har close internet explorer
+> har har close internet explorer
 
 As you reset your computer you remember you have not saved the work you did today.
 
-&gt; NO RESET
+> NO RESET
 
 You watch Windows reload.
 
-&gt; UN RESET
+> UN RESET
 
 You fear everything you wrote today has been sacrificed to a security hole.  Sweat drips down your face onto YOUR SMALL PENIS!  DO YOU REMEMBER HER?  NOW SHE HAS A HARD PENIS!
 
-&gt; open twain chapter
+> open twain chapter
 
 I don’t know what you mean.
 
-&gt; open twain chapter NOW
+> open twain chapter NOW
 
 You mean the one with webcams?
 
-&gt; no with words
+> no with words
 
 I don’t know what you mean.
 
-&gt; thing i write with words for future
+> thing i write with words for future
 
 YOUR THING!  YOUR THING IS TOO SMALL AND NOT HARD!  VIEW THIS WOMAN WITH BREASTS!  YOU WENT TO HIGH SCHOOL WITH HER!  SHE IS THE PRESIDENT!  IDENTIFY HER AND WIN AN IPOD!
 
-&gt; i hate you
+> i hate you
 
 GENERIC PROZAC DELIVERED TO YOUR DOOR!  BUY MORE NOW!
 
-&gt; open uci library page
+> open uci library page
 
 Through the dense thicket of ads trumpeting your lameness you are just able to make out the form field for ProQuest Historical Newspapers.
 
-&gt; search ny times articles from 1898 for mention of galton book
+> search ny times articles from 1898 for mention of galton book
 
 FREE EBOOKS FOR LIMP PEOPLE WHO ARE SAD AND WENT TO HIGH SCHOOL WITH IPODS!  CHEAPER ONLINE AND WITH BREASTS!
 
-&gt; kill self
+> kill self
 
 Then the unscrupulous Russians win.
 
-&gt; dont care want death
+> dont care want death
 
 You would.
 
-		
-
-			
-
-				[](https://wordpress.com/about-these-ads/)
-				
-
-					
-				
-
-			
-
-		
-
-### Like this:
-
-Like
-
- 
-Loading...
-
-[]()
-
-### _Related_
-
-	
-
 * * *
-
-		
-
-## 5 comments
-
-		
-
-	
-
-		
 
 [June 12, 2008 at 9:56 pm](https://edgeofthewest.wordpress.com/2008/06/12/spyware-virus/#comment-12190)
 
 **Vance Maverick**
 
-					
-
-		
-
 While this is highly amusing, it made me worry that there might underlie it a shred of truth….here’s hoping your chapter has not in fact been bemalwared.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 12, 2008 at 10:05 pm](https://edgeofthewest.wordpress.com/2008/06/12/spyware-virus/#comment-12192)
 
 **urbino**
 
-					
-
-		
-
 Here’s hoping your chapter has breasts and ipods.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 13, 2008 at 12:16 am](https://edgeofthewest.wordpress.com/2008/06/12/spyware-virus/#comment-12205)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 I lost about 15 minutes worth of material … or about three and a half words, two of which I’d already decided to delete.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 13, 2008 at 9:02 am](https://edgeofthewest.wordpress.com/2008/06/12/spyware-virus/#comment-12218)
 
 **rja**
 
-					
-
-		
-
 Someday, say in 2073, your commitment to carry on working in the face of malware attacks and pop-up offers for drugs and porn will seem really heroic.  Almost as inspiring as writing without notes, from memory, at a POW camp or [being forced to edit your brilliance, due to a paper shortage.](http://books.google.com/books?id=t4VE-o27YigC&pg=PA32&lpg=PA32&dq=karl+popper+paper+shortage&source=web&ots=1j4cuxy\_jv&sig=MQm2-xBaeuUF6VxWue0p9XQ-UFs&hl=en&sa=X&oi=book\_result&resnum=4&ct=result)
 
 Seriously, though, I hate when computers conspire against us.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 13, 2008 at 9:05 am](https://edgeofthewest.wordpress.com/2008/06/12/spyware-virus/#comment-12219)
 
 **rja**
 
-					
-
-		
-
 Also, I trace my codependent relationship with my computer to too many hours of [Zork]() and [Hitchhiker’s Guide to the Galaxy]() during a particularly formative period of my life.
-
-		
-
-		
-
-						
-
-	
-
-	
-
-		
-
-		
-
-	
-
-	  

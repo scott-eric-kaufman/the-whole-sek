@@ -34,122 +34,39 @@ But he really hasn’t left her any choice, has he?
 * * *
 \*I can’t find a transcript or the video, but it’s at the end of [this interview](http://politicalticker.blogs.cnn.com/2008/06/07/mcauliffe-i-want-to-go-to-the-magic-kingdom-with-hillary/). The screen’s split between King and Blitzer, so when McAuliffe turns to King and says “Congratulations on your win,” you’re treated to two reaction shots.  I know what you’re thinking — “I’m not hearing about this anywhere else, so why would I trust the deaf guy’s ears?” — but this deaf guy watches television with the captions on. Of course, the caption suggested McAuliffe congratulated King on his “wind,” but given the [rank creepiness of McAullife’s media-animosity](http://www.thedailyshow.com/video/index.jhtml?videoId=171030&title=terry-mcauliffe), I’m pretty sure he said “win.”
 
-		
-
-			
-
-				[](https://wordpress.com/about-these-ads/)
-				
-
-					
-				
-
-			
-
-		
-
-### Like this:
-
-Like
-
- 
-Loading...
-
-[]()
-
-### _Related_
-
-	
-
 * * *
-
-		
-
-## 9 comments
-
-		
-
-	
-
-		
 
 [June 7, 2008 at 3:54 pm](https://edgeofthewest.wordpress.com/2008/06/07/congratulations-on-your-win/#comment-11687)
 
 **urbino**
 
-					
-
-		
-
 I’m curious what from the speech makes you quasi-certain she wants the VP slot, SEK.
 
 I was listening to it from the next room, while doing other things, so I must’ve missed something.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 7, 2008 at 5:47 pm](https://edgeofthewest.wordpress.com/2008/06/07/congratulations-on-your-win/#comment-11697)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 Blitzer and Olbermann and King all said so.  It must be true.
 
 But seriously, the tone of the speech — most notably, her attempt to rile up the audience with Obama’s “Yes! We! Can!” — went far beyond conciliatory.  His words kept coming out of her mouth in what seemed to me a deliberate attempt to communicate to him and his staff that she’s 1) comfortable with his message and 2) communicates it ably.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 7, 2008 at 8:31 pm](https://edgeofthewest.wordpress.com/2008/06/07/congratulations-on-your-win/#comment-11706)
 
 **Brad**
 
-					
-
-		
-
 Didn’t they spend an hour together in Feinstein’s house?  She must practically know by now whether or not she is the VP candidate.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 7, 2008 at 9:43 pm](https://edgeofthewest.wordpress.com/2008/06/07/congratulations-on-your-win/#comment-11715)
 
 **urbino**
-
-					
-
-		
 
 _went far beyond conciliatory_
 
@@ -157,69 +74,27 @@ See, I’m not so sure that has anything to do with being the veep.
 
 Given the very hard feelings among many of her supporters, and the lines Clinton herself crossed during her campaign, I think she had to go “beyond conciliatory” just to start the reconciliation.  After the hold-out-to-the-last-person tone of her speech after the last primary, and the reaction of some of her supporters at the RBC meeting, she needed to send a _clear_ signal that she really was done and she really did want her supporters to come together behind Obama.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 7, 2008 at 9:45 pm](https://edgeofthewest.wordpress.com/2008/06/07/congratulations-on-your-win/#comment-11716)
 
 **urbino**
 
-					
-
-		
-
 OTOH, far be it from me to contradict Larry King and his apparently remarkable wind.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 8, 2008 at 5:40 am](https://edgeofthewest.wordpress.com/2008/06/07/congratulations-on-your-win/#comment-11731)
 
 **jhm**
 
-					
-
-		
-
 Ms. Dowd is a Pulitzer laureate?  That makes me respect the honor a little less from now on.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 8, 2008 at 9:11 am](https://edgeofthewest.wordpress.com/2008/06/07/congratulations-on-your-win/#comment-11744)
 
 **[SEK](http://acephalous.typepad.com/)**
-
-					
-
-		
 
 _Didn’t they spend an hour together in Feinstein’s house? She must practically know by now whether or not she is the VP candidate._
 
@@ -241,66 +116,20 @@ _Ms. Dowd is a Pulitzer laureate? That makes me respect the honor a little less 
 
 To be honest, the award for “distinguished commentary” varies more from year-to-year than any other Pulitzer.  I’m not sure what the committee’s rules are regarding it, but any award Dave Barry, Charles Krauthammer, Anna Quindlen and Jim Murray can win is a _wee_ schizophrenic.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 8, 2008 at 11:09 am](https://edgeofthewest.wordpress.com/2008/06/07/congratulations-on-your-win/#comment-11752)
 
 **urbino**
 
-					
-
-		
-
 _I think he listed the conditions under which he’d take her on as VP_
 
 Maybe this is where our real disagreement lies.  Short of a divorce, I don’t think there are any “conditions under which he’d take her on as VP.”
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 8, 2008 at 8:25 pm](https://edgeofthewest.wordpress.com/2008/06/07/congratulations-on-your-win/#comment-11768)
 
 **ari**
 
-					
-
-		
-
 I have no idea what Obama will do about the veep slot (though I trust him to make a good decision, regardless).  But Scott’s right:  Clinton’s endorsement was an audition to be Obama’s running mate.  It was also an audition, I’d guess, for the rest of her career.  And it was a great speech.
-
-		
-
-		
-
-						
-
-	
-
-	
-
-		
-
-		
-
-	
-
-	  
