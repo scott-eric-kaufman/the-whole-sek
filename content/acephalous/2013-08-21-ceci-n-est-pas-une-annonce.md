@@ -3,7 +3,8 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2013/08/ceci-nest-pas-une-annonce.html
  * Wednesday, August 21, 2013
 
-[![Image sent to me with subject line, "This is what I think you look like." I don't know what to make of that either.](../../images/acephalous/6a00d8341c2df453ef0192aca977e2970d-500wi.jpg "Image sent to me with subject line, "This is what I think you look like." I don't know what to make of that either.")](http://acephalous.typepad.com/.a/6a00d8341c2df453ef0192aca977e2970d-popup)  
+![Image sent to me with subject line, "This is what I think you look like." I don't know what to make of that either.](../../images/acephalous/6a00d8341c2df453ef0192aca977e2970d-500wi.jpg "Image sent to me with subject line, "This is what I think you look like." I don't know what to make of that either.")]
+
 Matt Zoller Seitz has [an article on Vulture](www.vulture.com/2013/08/there-has-been-no-better-time-for-tv-criticism.html) that helps answer a question many of you have asked me: "Where can I can find more stuff like the stuff you do?" Here's MSZ:
 
 > It’s customary to decry much TV writing, recaps especially, as  plot summary plus snark; I’ve done it myself. But as television  criticism has evolved, this catch-all insult has started to seem as lazy  and out-of-touch as cinephiles writing off the whole of television as an idiot box.
