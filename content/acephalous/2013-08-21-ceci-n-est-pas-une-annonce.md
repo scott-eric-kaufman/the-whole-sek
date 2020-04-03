@@ -3,7 +3,7 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2013/08/ceci-nest-pas-une-annonce.html
  * Wednesday, August 21, 2013
 
-![Image sent to me with subject line, "This is what I think you look like." I don't know what to make of that either.](../../images/acephalous/6a00d8341c2df453ef0192aca977e2970d-500wi.jpg "Image sent to me with subject line, "This is what I think you look like." I don't know what to make of that either.")]
+![Image sent to me with subject line, "This is what I think you look like." I don't know what to make of that either.](../../images/acephalous/6a00d8341c2df453ef0192aca977e2970d-500wi.jpg)
 
 Matt Zoller Seitz has [an article on Vulture](www.vulture.com/2013/08/there-has-been-no-better-time-for-tv-criticism.html) that helps answer a question many of you have asked me: "Where can I can find more stuff like the stuff you do?" Here's MSZ:
 
