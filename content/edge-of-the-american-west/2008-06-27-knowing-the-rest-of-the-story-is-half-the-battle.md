@@ -25,166 +25,55 @@ Not that this is the first time his name has appeared, as the father and grandfa
 
 What can I say?  I’m like Paul Harvey.  (Only macabre.)
 
-		
-
-			
-
-				[](https://wordpress.com/about-these-ads/)
-				
-
-					
-				
-
-			
-
-		
-
-### Like this:
-
-Like
-
- 
-Loading...
-
-[]()
-
-### _Related_
-
-	
-
 * * *
-
-		
-
-## 24 comments
-
-		
-
-	
-
-		
 
 [June 27, 2008 at 3:53 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13227)
 
 **Vance Maverick**
 
-					
-
-		
-
 _He is become historical_
 
 Patterned on [“I am become Death”](http://books.google.com/books?q=%!i(MISSING)+am+become+death%!&(MISSING)btnG=Search+Books)?
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 3:55 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13228)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 That’s what I was aiming for.  Free candy for Vance!
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 5:00 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13231)
 
 **Charlieford**
 
-					
-
-		
-
 Perhaps at some point you could give us an Arthur Lovejoy-ish taxonomy, such as “13 Varieties of Historicism,” or some such?  Only shorter, of course.  I once tried to trace the history of the New Historicism back thru its various foreshadowings and such, but it gave me a headache.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 5:01 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13232)
 
 **urbino**
 
-					
-
-		
-
 Good day.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 7:24 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13233)
 
 **[Pete](http://wiretv.blogspot.com)**
 
-					
-
-		
-
 Obama’s NYT’s “moment”- February 6, 1990- “First Black Elected to Head Harvard’s Law Review”
 
 Let’s compare their entry into the “record”- being elected to one of the most prestigious law reviews and breaking down barriers in the act vs. almost being blown to bits in an unfortunate naval accident.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 8:02 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13234)
 
 **[SEK](http://acephalous.typepad.com/)**
-
-					
-
-		
 
 Charlieford:
 
@@ -212,205 +101,79 @@ _Let’s compare their entry into the “record”- being elected to one of the 
 
 I’m no fan of McCain, but I’ll begrudge him the horrible luck he’s had.  I mean, it’s not his fault he happened to be in queue when someone else dropped something explosive.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 8:14 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13236)
 
 **[Jason B](http://thecynicaldog.blogspot.com)**
 
-					
-
-		
-
 The scene that passage paints makes me think that in a biopic of McCain, the best possible leading man might be Leslie Nielsen.
 
 No matter how old he is when the project starts.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 8:15 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13237)
 
 **Charlieford**
 
-					
-
-		
-
 That looks useful!  But wouldn’t or shouldn’t David Reynolds’ Whitman book, as well as Beneath the American Renaissance, be up there beside AD’s TH?
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 8:22 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13238)
 
 **ari**
 
-					
-
-		
-
 I love _Beneath the American Renaissance_.  Even if I hate Reynolds’s John Brown book.  Um, just saying is all.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 8:32 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13239)
 
 **Charlieford**
 
-					
-
-		
-
 I liked it too, and the Whitman too.  But what did you “hate” about JB?  Did you agree with Wilentz’s review?
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 8:39 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13240)
 
 **ari**
 
-					
-
-		
-
 No, I agreed with  [my review](http://tls.timesonline.co.uk/article/0,,25340-2597455,00.html).
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 9:14 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13241)
 
 **[Kieran](http://www.kieranhealy.org)**
 
-					
-
-		
-
 _I’m an historicist instead of an historian_
 
 Were I either, I would be a historicist or a historian.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 9:34 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13243)
 
 **[teofilo](http://sunlitwater.wordpress.com/)**
 
-					
-
-		
-
 Damn Irish sociologists with their aspirated aitches.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 9:46 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13244)
 
 **urbino**
 
-					
-
-		
-
 I think you mean haitches.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 9:50 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13246)
 
 **urbino**
-
-					
-
-		
 
 _Didn’t happen today! In this respect, I’m not the best today-in-history blogger._
 
@@ -422,25 +185,11 @@ True story: as I was reading that report, I was sure it would finish by telling 
 
 True story.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 11:21 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13249)
 
 **Ben Alpers**
-
-					
-
-		
 
 My inner historian of material culture immediately noticed this:
 
@@ -448,25 +197,11 @@ This malfunction, comparable to what happens when a cigarette lighter is ignited
 
 No doubt in 1967, this analogy would have been entirely familiar, but between the decline in smoking and the rise of the Bic® disposable lighter ([introduced in 1973](http://www.flickyourbic.com/timeline.cfm)) it would soon become much more obscure to most Americans.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 28, 2008 at 6:53 am](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13255)
 
 **[Kieran](http://www.kieranhealy.org)**
-
-					
-
-		
 
 _Damn Irish sociologists with their aspirated aitches._
 
@@ -474,69 +209,27 @@ Irish orthography is filled with sequences of silent letters, so when we get the
 
 Writing “an historian” or “an historic event” brings to mind Eliza Doolittle — “I am of an archival bent / I will study an ‘istoric event / An ‘istory buff is wot I’ll be / Oh wooooooouldn’t it be luverly.”
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 28, 2008 at 9:32 am](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13263)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 [I’ve pre-dealt with this complaint](http://acephalous.typepad.com/acephalous/2007/12/the-future-of-p.html#comment-93774388), Kieran.  But if you want me to repeat myself, give me a hour to get an uniform off and I’ll do it.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 28, 2008 at 9:59 am](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13264)
 
 **[eric](https://edgeofthewest.wordpress.com/)**
 
-					
-
-		
-
 It reminds me of John Holmes saying “let’s have a look at an letter.”
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 28, 2008 at 1:07 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13269)
 
 **[Pete](http://wiretv.blogspot.com)**
-
-					
-
-		
 
 SEK:  
 
@@ -546,110 +239,36 @@ _I’m no fan of McCain, but I’ll begrudge him the horrible luck he’s had. I
 
 2. Of course you can’t place a whole lot of historical meaning on the events which precipitated mention in the Times and their fitness to be President. I just found it interesting/amusing that Obama’s first mention- first African American President of the Harvard Law Review, is something in his oft mentioned “bio” whereas McCain’s was a freak accident of history.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 29, 2008 at 8:38 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13314)
 
 **kenmeer livermaile**
 
-					
-
-		
-
 “What can I say?  I’m like Paul Harvey.  (Only macabre.)”
 
 It’s like seeing you for the first time, sir.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 29, 2008 at 8:39 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13315)
 
 **[jerums89](http://moltomarcato.com)**
 
-					
-
-		
-
 I must say this blog is one of the most stimulating I’ve ever subscribed to. Posts like these are things you really don’t see anywhere else.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 30, 2008 at 12:40 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13326)
 
 **urbino**
 
-					
-
-		
-
 Except, of course, for the several hundred other blogs where SEK posts.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 30, 2008 at 1:46 pm](https://edgeofthewest.wordpress.com/2008/06/27/knowing-the-rest-of-the-story-is-half-the-battle/#comment-13334)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 I HEARD THAT!
-
-		
-
-		
-
-						
-
-	
-
-	
-
-		
-
-		
-
-	
-
-	  

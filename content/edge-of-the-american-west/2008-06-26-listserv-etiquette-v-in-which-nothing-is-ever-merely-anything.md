@@ -21,7 +21,7 @@ Such grievous offense requires a brave crusader to parse every last permutation 
 
 Should someone respond to this email with a sarcastic recommendation that the letters be stacked, so as to avoid the any possibility of untoward LTR directional privilege, this person will write _another_ 5,000 words, this time about how unfunny the resulting mess would be:
 
-![Stacked\_2](https://i2.wp.com/acephalous.typepad.com/photos/uncategorized/2008/06/26/stacked\_2.jpg)
+![Stacked\_2](../../images/edge-of-the-american-west/stacked\_2.jpg)
 
 Only it is not merely unfunny—nothing is ever “merely” anything for this person—it is also symptomatic of the desire by hegemons to obliterate the unique identities of the various groups represented by each letter by transforming their hard-won bonds into an amorphous blob of non-identity, thereby effacing the personal struggles of people, like this person, some of which he or she will now share with the entire department no matter how inappropriate discussing the loss of your virginity on a departmental listserv might seem.
 
@@ -37,98 +37,30 @@ _Previous Installments:_
 2.  _[My CFP is infinitely more important than your email](http://acephalous.typepad.com/acephalous/2007/09/more-on-listser.html)_
 3.  [_Does anyone know if Marx wrote anything substantial on capital-qua-capital?_](http://acephalous.typepad.com/acephalous/2007/12/more-listserv-e.html)__
 4.  [_From the desk of Dr. Elderly Jew Deserving of Scorn_](http://acephalous.typepad.com/acephalous/2008/02/dearest-colleag.html)
-		
-
-			
-
-				[](https://wordpress.com/about-these-ads/)
-				
-
-					
-				
-
-			
-
-		
-
-### Like this:
-
-Like
-
- 
-Loading...
-
-[]()
-
-### _Related_
-
-	
 
 * * *
-
-		
-
-## 29 comments
-
-		
-
-	
-
-		
 
 [June 26, 2008 at 2:13 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13132)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 FTR: Poorly written on purpose, _i.e._ I’m a-imitatin’ the person I’m a-satirizin’.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 2:23 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13133)
 
 **Charlieford**
 
-					
-
-		
-
 1.  Do things like this ever happen out-side of California?  
 
 2.  Only tangentially related:  Harpers reprinted, many years ago, a memo from Student Governance that went out at Harvard Divinity School.  (Cue Twilight Zone theme.)  There were two boxes for recycling paper, one labeled “white paper,” the other, “colored paper.”  Some wag changed the latter sign to “paper of color,” and the memo was excoriating said wag for inappropriate humor, insensitivity to language issues, etc., etc.  The memo concluded by admitting there just might be a legitimate social justice concern regarding how the sign should be phrased, and that if that were the motivation for the change, would the individual please contact said Student Governance board.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 2:26 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13136)
 
 **[SEK](http://acephalous.typepad.com/)**
-
-					
-
-		
 
 1.  _Do things like this ever happen out-side of California?_ 
 
@@ -136,403 +68,151 @@ I don’t know — I can only speak to my experience on this departmental listse
 
 2.  That’s a damn funny story.  We ought to try collect all such stories into a compendium of only-insiders-_really_-get-it academic humor.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 2:32 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13137)
 
 **[eric](https://edgeofthewest.wordpress.com/)**
 
-					
-
-		
-
 I like the stacked letters. It looks like a cat.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 3:19 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13140)
 
 **joel hanes**
 
-					
-
-		
-
 Confusing the map with the territory, the symbol with the thing symbolized, is a very common kind of stupidity.
 
 And the connection between stupid and evil is deep.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 3:57 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13143)
 
 **Charlieford**
 
-					
-
-		
-
 Joel!  Say “hi” to Todd.  Love his films.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 4:39 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13144)
 
 **joel hanes**
 
-					
-
-		
-
 Charlieford:  I beg your pardon.  I have no idea to what you’re referring.  Can you explain?
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 4:45 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13145)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 Joel, I think he’s mistaken you for [this guy](http://www.imdb.com/name/nm0001331/)‘s brother.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 4:53 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13146)
 
 **ari**
 
-					
-
-		
-
 I think he was just kidding around a bit.  Charlie’s at his best when giddy.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 4:55 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13147)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 No doubt on the kidding front, it just seemed kind of random.  (So much so I wondered whether Charlie didn’t know something I didn’t, like who Meekins is.)
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 4:56 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13148)
 
 **ari**
 
-					
-
-		
-
 Wait, speaking of random, you don’t know either?  Because it’s weird, right?  Assuming we’re talking about the same thing.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 5:06 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13149)
 
 **[eric](https://edgeofthewest.wordpress.com/)**
 
-					
-
-		
-
 Would you take that nonsense where it belongs?
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 5:07 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13150)
 
 **ari**
 
-					
-
-		
-
 Fair point.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 5:08 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13151)
 
 **urbino**
 
-					
-
-		
-
 Uh-oh.  Daddy’s home.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 5:10 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13152)
 
 **[eric](https://edgeofthewest.wordpress.com/)**
 
-					
-
-		
-
 You kids, honestly.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 5:10 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13153)
 
 **urbino**
 
-					
-
-		
-
 The apple doesn’t fall far from the tree, you know.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 5:11 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13154)
 
 **ari**
 
-					
-
-		
-
 Just don’t separate us, okay?  We’ll be good.  I promise.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 5:13 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13155)
 
 **urbino**
 
-					
-
-		
-
 And whatever you do, don’t make them eat ice cream for supper.  They _really_ don’t want to eat ice cream for supper.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 5:28 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13156)
 
 **[eric](https://edgeofthewest.wordpress.com/)**
 
-					
-
-		
-
 If you don’t behave, I’ll turn this blog right around, so help me.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 5:29 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13157)
 
 **ari**
 
-					
-
-		
-
 _I’ll turn this blog right around, so help me._
 
 Someone really should.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 5:40 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13159)
 
 **[The AstroDyke](http://astrodyke.blogspot.com)**
-
-					
-
-		
 
 No, you’re kidding, right?  On my past departmental listservs, that example email would return one of the following:
 
@@ -544,202 +224,72 @@ No, you’re kidding, right?  On my past departmental listservs, that example em
 
 Sigh.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 6:19 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13161)
 
 **grackle**
 
-					
-
-		
-
 What’s an LQBST? A lobster?
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 7:37 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13166)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 _No, you’re kidding, right?_
 
 Not only am I not kidding, but when I get tenure, I’m going to publish from my vast archives of supreme idiocy … once I remove all identifying information, of course, since I’m a nice guy and all.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 26, 2008 at 8:20 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13171)
 
 **andrew**
 
-					
-
-		
-
 The problem with “of color” is that it reifies the categorization of “white” as the unmarked marking, colorless and therefore universal. It also resembles the phrase “off color”, commonly used in the phrase “off color joke”, the targets of which are often people “of color.”
 
 Also, my departmental listserv was often taken up for important discussions of what was or was not appropriate to be posted on a departmental listserv. A common counterargument was “how long does it take to press the delete button?”
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 8:52 am](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13208)
 
 **silbey**
 
-					
-
-		
-
 _A common counterargument was “how long does it take to press the delete button?”_
 
 I hate that counter-argument.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 2:12 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13220)
 
 **urbino**
 
-					
-
-		
-
 By the time you know you want to delete it, hasn’t the horse already left the listserv?
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 27, 2008 at 3:42 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13226)
 
 **[Jason B](http://thecynicaldog.blogspot.com)**
 
-					
-
-		
-
 This is one of the reasons why I don’t care if I offend people. You’re offended? Congratulations. That’s your problem. Try to live with it. Some people spend all their time trying to find ways in which to be offended.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 29, 2008 at 10:53 am](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13297)
 
 **[todd.](http://tonguebutnodoor.net)**
 
-					
-
-		
-
 Now [this](http://flagpole.com/Arts/Features/ParkHallPoesy/2008-06-18) is how you use a department listserv.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [June 29, 2008 at 5:15 pm](https://edgeofthewest.wordpress.com/2008/06/26/listserv-etiquette-v-in-which-nothing-is-ever-merely-anything/#comment-13311)
 
 **[Jason B](http://thecynicaldog.blogspot.com)**
 
-					
-
-		
-
 That might be the most awesome listserv ever.
-
-		
-
-		
-
-						
-
-	
-
-	
-
-		
-
-		
-
-	
-
-	  

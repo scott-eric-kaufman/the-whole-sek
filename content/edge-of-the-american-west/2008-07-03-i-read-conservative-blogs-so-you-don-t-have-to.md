@@ -15,7 +15,6 @@ The question will always be, and there really is no avoiding it until we develop
 
 You can’t lead those horses into these waters any faster.  [See](http://michellemalkin.com/2008/07/02/best-comment-on-the-hitchens-waterboarding-stunt/#comment-366370)?
 
-
 The enemy believes that we are weak, & Hitchens & his ilk are to blame. It will come to a point, & soon me thinks, when real force will be required. And then it shall come to pass that the unpleasant realities of preemption need to be replaced with the even more unpleasant realities of vengeance […] & the Hitchens of the world will cease to be relevant.
 
 You have to love the Old Testament rhetoric of what is, really, [Frank Castle](http://en.wikipedia.org/wiki/Punisher) fury.  This commenter _wants_ the day to come to pass when on thee and thou with His flesh-hooks rains carbuncle distemper and harrows everyone who has ever disagreed with him ever.   The only way to prevent — if that’s your bag, which clearly it isn’t some people’s — this disaster?  [Torture fantasies](http://michellemalkin.com/2008/07/02/best-comment-on-the-hitchens-waterboarding-stunt/#comment-366299):
@@ -44,52 +43,11 @@ We, OTOH, try to scare the carp out of the person being interrogated by giving h
 
 But _how_, pray tell, did it get in there?
 
-		
-
-			
-
-				[](https://wordpress.com/about-these-ads/)
-				
-
-					
-				
-
-			
-
-		
-
-### Like this:
-
-Like
-
- 
-Loading...
-
-[]()
-
-### _Related_
-
-	
-
 * * *
-
-		
-
-## 16 comments
-
-		
-
-	
-
-		
 
 [July 3, 2008 at 2:52 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13799)
 
 **[Fontana Labs](http://www.unfogged.com)**
-
-					
-
-		
 
 Propositions so inane that I thought they could not be endorsed as true, until I read Michelle Malkin’s web site:
 
@@ -99,99 +57,43 @@ Propositions so inane that I thought they could not be endorsed as true, until I
 
 (c) psychological harms aren’t really harms
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 3, 2008 at 3:07 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13802)
 
 **[tongue but no door (dot) net » Blog Archive » With Friends Like These](http://tonguebutnodoor.net/?p=170)**
 
-					
-
-		
-
 […] posting it the time. But, lacking anything to add, I passed. Then today Scott Kaufman brought back the reaction from the wingnut frontier, and it included bits like this: The enemy believes that we are weak, & Hitchens & his ilk […]
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 3, 2008 at 4:34 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13808)
 
 **urbino**
 
-					
-
-		
-
 _But this one is really tough, so I’ll need you to help me out._
 
 Don’t you mean, “this one is really _hard_?”
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 3, 2008 at 4:50 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13809)
 
 **Rich Puchalsky**
 
-					
-
-		
-
 One minor annoyance in the whole Hell-pit of torture-as-political-question is the belief of some liberals that Bush somehow fooled America into committing torture.  Let’s just admit the truth: America is a torture state, and Americans, in general, like torture.  It’s not some oddity that only cropped up in Abu Ghraib.  Before that, we were torturing people in Central America.  Before that, Vietnam.  Before that, we were lynching black people.  The whole counterinsurgency strategy that we have is based on torture techniques used in the Phillippines.  Before that, it was slaves and native Americans.  43%!o(MISSING)f Americans said [yay for torture](http://news.yahoo.com/s/pew/20080619/ts\_pew/43torturejustified), and that’s not even counting the ones who said it was “rarely” justified.  We routinely torture prisoners in our jails.
 
 So of course the conservatives get off on torture.  They are in a long American tradition of doing so.  Of course, they’re personally scum as well.  But it’s not just personal, not just something that Bush’s evil corrupted them into doing.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 3, 2008 at 7:13 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13817)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 _Propositions so inane that I thought they could not be endorsed as true, until I read Michelle Malkin’s web site_
 
-Seriously, Labs, this isn’t a list you want to start. 
+Seriously, Labs, this isn’t a list you want to start.
 
 _Don’t you mean, “this one is really hard?”_
 
@@ -201,241 +103,97 @@ _So of course the conservatives get off on torture. They are in a long American 
 
 Let me fix that for you Rich:
 
-_But it’s not just personal, not just something that 
-Bush’s
- evil **terrorists** 
-corrupted
- **forced** them into doing **against their will**._
+_But it’s not just personal, not just something that Bush’s evil **terrorists** corrupted **forced** them into doing **against their will**._
 
 The fact that they so eagerly embraced it is beside the point.  Had circumstances not dictated its urgent necessity, they’d be as appalled as we are.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 3, 2008 at 7:29 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13818)
 
 **urbino**
 
-					
-
-		
-
 _But how, pray tell, did it get in there?_
 
 Jesus put it there.  Duh.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 3, 2008 at 7:50 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13819)
 
 **[SEK](http://acephalous.typepad.com/)**
 
-					
-
-		
-
 I keep forgetting he’s on our side.  Good show, Jesus!
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 3, 2008 at 8:00 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13821)
 
 **urbino**
 
-					
-
-		
-
 Well, I don’t know if he’s on your side so much, but he’s totally on mine.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 3, 2008 at 9:36 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13835)
 
 **Rich Puchalsky**
 
-					
-
-		
-
 “But it’s not just personal, not just something that evil terrorists forced them into doing against their will.”
 
 Oh, right, I forgot about that aspect of the conservatives’ sick sexuality — commission of torture as rape fantasy.  Yes, they wouldn’t have tortured anyone, but the terrorists forced them to torture people against their will.  It wasn’t their fault!  It’s like a demented Reese’s peanut butter cup commerical: hey, you got your sadism in my masochism!  No, you got your masochism in my sadism!
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 3, 2008 at 9:56 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13843)
 
 **urbino**
 
-					
-
-		
-
 Oh, fine.  Ruin a perfectly good candy for me.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 4, 2008 at 2:09 am](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13867)
 
 **[Martin G](http://pen-to-paper.blogspot.com)**
 
-					
-
-		
-
 Rich: _Let’s just admit the truth: America is a torture state, and Americans, in general, like torture._
 
 And then you mention all the actual torture Americans have been doing, but let’s not forget fictitious torture, either! “24” is basically one long justification for torture scenes (which Bauer doesn’t _want_ to do but is merely forced, _forced_, I say, by these extreme and completely unparallelled circumstances (except for the last 5 seasons’ unparallelled circumstances)). Mmmm. Torture.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 4, 2008 at 5:55 am](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13871)
 
 **drip**
 
-					
-
-		
-
 The metaphor of sexual pornograhy is just so apt. Torture is forbidden except to the few, which adds to the pornographic allure. If you satisfy the aim of the torture, you will be part of those allowed to torture and at the same time be protected. The techniques are so dangerous that they, their results and those who master them, must remain forever secret. Such fantastic powers! Its reminiscent of the footnote in Trevanian’s spy thriller spoof Shibumi where the author can’t describe the sex acts because they would kill most people and those it didn’t kill would be too irresponsible to keep the techniques secret.
 
 Here is my bottom line: torturers are emasculated cowards.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 4, 2008 at 11:05 am](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13895)
 
 **[RTO Trainer](http://signaleer.blogspot.com)**
 
-					
-
-		
-
 The trouble with trying to explain anything here, is that any explanation will be characterized, rightly or wrongly as justification of torture whether the person offering explanation states that torture is categorically wrong every single time or not.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 4, 2008 at 11:52 am](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13896)
 
 **Josh**
 
-					
-
-		
-
 _The trouble with trying to explain anything here, is that any explanation will be characterized, rightly or wrongly as justification of torture whether the person offering explanation states that torture is categorically wrong every single time or not._
 
 “What do you mean, the Deutsche Demokratische Republik was a dictatorship?  It said ‘democratic’ right there in the name!”
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 4, 2008 at 12:12 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13898)
 
 **drip**
-
-					
-
-		
 
 Henceforth R-TOT’s discussions of terrorism shall be read to contain the following disclaimer
 
@@ -443,44 +201,12 @@ Torture is categorically illegal, wrong, and immoral under all circumstances. An
 
 So, R-TOT, you don’t have to worry about prefacing your remarks with “I’m against torture.” Or “Some of my best friends are torturers, so I’m not friends with them anymore.” Just go ahead and explain why its OK to take an american and waterboard him until he tells his interrogator something useful, or the other way round, if that’s easier for you. Just remember, every single explanation you offer will be tested by putting my 24 year old son in the interrogator’s custody. Peace brother.
 
-		
-
-		
-
-						
-
-	
-
-	
-
-		
+* * *
 
 [July 4, 2008 at 9:33 pm](https://edgeofthewest.wordpress.com/2008/07/03/i-read-conservative-blogs-so-you-dont-have-to/#comment-13968)
 
 **[RTO Trainer](http://signaleer.blogspot.com)**
 
-					
-
-		
-
 Well.  Not the point I’d hoped to make, but I guess it’ll have to do.
 
 Sorry to take your time, all.
-
-		
-
-		
-
-						
-
-	
-
-	
-
-		
-
-		
-
-	
-
-	  
