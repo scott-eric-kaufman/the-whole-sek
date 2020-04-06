@@ -3,7 +3,7 @@
  * Originally posted at https://edgeofthewest.wordpress.com/2008/06/30/i-hate-barack-hussein-obama-because-he-makes-me-uncomfortable-with-his-words-and-what-he-says/
  * Tuesday, July 01, 2008
 
-(_Hearing Obama’s remark about respecting those who “make us uncomfortable with their words” got me thinking: what would happen if [my irate former student](http://acephalous.typepad.com/acephalous/2007/03/and\_yet\_i\_still.html) got his hands on [Roget’s regnant tome](http://acephalous.typepad.com/acephalous/2006/02/all\_scribes\_uti.html) and started [bloviating about Obama on the Internet](http://www.marchosis.com/showthread.php?p=4028)?)
+_(Hearing Obama’s remark about respecting those who “make us uncomfortable with their words” got me thinking: what would happen if [my irate former student](http://acephalous.typepad.com/acephalous/2007/03/and\_yet\_i\_still.html) got his hands on [Roget’s regnant tome](http://acephalous.typepad.com/acephalous/2006/02/all\_scribes\_uti.html) and started [bloviating about Obama on the Internet](http://www.marchosis.com/showthread.php?p=4028)?)_
 
 First in the foremost if you are stimulated by new ideas because you are the kind of person like me and you can think for yourself rather than simply accept what Obama says as ultimate truth I think you will find this post importantly of interest to you.
 
