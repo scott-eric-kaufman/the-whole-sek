@@ -3,15 +3,13 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2005/03/fry_me_a_steak.html
  * Monday, March 07, 2005
 
-
-
 All those categories, still one topic.  Go figure.
 
 As you can tell by the "currently reading" bar sort of directly to the right of this post--probably a scroll or two down as well--I'm "currently reading" T.H. Williams' biography of Louisiana politician extradorinaire Huey Long.  A couple of years ago, I taught Sinclair Lewis' novel _It Can't Happen Here_, a roman a clef of Huey's life.  What I failed to realize is how poor a roman a clef it was.  It transformed Huey into a dictator of the fascist sort, when he barely resembled the European socialists-in-name-alone-dictators with whom Sinclair compared him.  Wish I could admit to being a homer here, but I'm not: Long was a political enigma, but he was no more a fascist than Gandhi...both genuinely wanted to help as many people as possible...except to do so in America requires a sort of pragmatic dictatorial streak.  Huey had it.  Gandhi didn't.  Should we hold that against the Kingfish?  Since I'm only about 443 pages into the book, maybe I shouldn't make such bold proclamations, but I will anyway.  I'm not afraid of being as wrong as genocide.
 
 So here's a statement typical of the aristocrats Huey opposed:
 
-_"The two worst things that ever happened are universal suffrage and universal education."_
+> The two worst things that ever happened are universal suffrage and universal education."
 
 Huey opposed this.  What a fascist.  Now, for some of the Kingfish's greatest hits:
 
@@ -25,65 +23,27 @@ One of the man's favored stock phrases: "bosses and bosslets."  I know one of t
 
 I could continue, but you ought to read this book.  Especially if you're Some Canadian Guy, since Huey is widely acknowledged as being the first U.S. politician to put expertise above political commitment...because the non-political experts in whom he put his faith respected his ability to defer to their expertise.  Brilliant. 
 
-[Edit:  Another 300 pages into the biography, and I can't help but think that Lewis might not've been as wrong as I initially thought.  Huey might've been a colorful and egalitarian dictator, but I'm becoming convinced that he was one.  More on these pressing developments later.  I know you're waiting with baited breath.]  
-
-		
-
-* * *
+\[Edit:  Another 300 pages into the biography, and I can't help but think that Lewis might not've been as wrong as I initially thought.  Huey might've been a colorful and egalitarian dictator, but I'm becoming convinced that he was one.  More on these pressing developments later.  I know you're waiting with baited breath.\]
 
 ### 3 Comments 
 
-		
-
-                
-[]()
-
-	
-
-		![Jeremy](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/19-50si.gif)
-	
-
-	
-
-		
+![Jeremy](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/19-50si.gif)
 
 The Executioner's Song is fantastic.  Are you reading it for work, or is that a pleasure book?
-
-	
 
 		Posted by:
 		Jeremy |
 		[Tuesday, 08 March 2005 at 11:40 AM](http://acephalous.typepad.com/acephalous/2005/03/fry\_me\_a\_steak.html?cid=4265547#comment-6a00d8341c2df453ef00d8343ceb3c53ef)
 
-[]()
-
-	
-
-		![A. Cephalous](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/17-50si.gif)
-	
-
-	
-
-		
+![A. Cephalous](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/17-50si.gif)
 
 It's for pleasure...and I've had to put it down for the time being because I became a little obsessive reading it.  There I'd be, at 2 a.m. with 7 papers still to grade, reading it.  Or there I'd be, needing to write another couple of dissertation chapters, reading it.  However, as it's almost the end of the quarter, I should be able to pick it back up soon.  I'd love to talk about it from any number of perspectives: as a work of literary and/or new journalism; as a novel; as a work of social history; as that rarest of Mailer works, i.e. not wholly about himself; etc.
-
-	
 
 		Posted by:
 		A. Cephalous |
 		[Tuesday, 08 March 2005 at 02:56 PM](http://acephalous.typepad.com/acephalous/2005/03/fry\_me\_a\_steak.html?cid=4269128#comment-6a00d8341c2df453ef00d8343cef3153ef)
 
-[]()
-
-	
-
-		![Tex Mex](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/06-50si.gif)
-	
-
-	
-
-		
+![Tex Mex](http://static.typepad.com/.shared:vee3ddd0:typepad:en\_us/default-userpics/06-50si.gif)
 
 Huey Long's historical legacy seems to be stuck in permanent paradox.  Was he a power and money obsessed dictator, or a crusading beneficiary for the poor?  How can a man be both?  The answer lies not so much in his politics but in his psychology.  
 

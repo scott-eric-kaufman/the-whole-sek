@@ -3,8 +3,6 @@
  * Originally posted at http://acephalous.typepad.com/acephalous/2005/03/full_metal_jack.html
  * Thursday, March 03, 2005
 
-
-
 Michael Herr's book _Dispatches_, the source of Stanley Kubrick's _Full Metal Jacket_, had a short run as a MUSICAL in 1979. A self-proclaimed "composer-director-playwright" named Elizabeth Swados  put Herr's book to music. According to Mel Gussow's article in the April 8, 1979 Arts and Leisure section of the _New York Times_, "phrases such as 'high on war,' 'quakin and shakin' and 'pucker and submit' took naturally to her rock beat. 'I felt that Herr was writing in rock language -- like a stoned or psychedelic Hemingway....The 20 songs in the score range from 'gospel to hard rock to folk, old-fashioned ballads, ragtime, and Oriental Vietnamese music used to evoke fear and terror.' She emphasized that 'the songs deal with marine life, marine training, drugs, fatigue, fear of death, brutality, defoliation, and prayers for survival.'" "Despite all her doubts," the article concludes, "she felt that this was a project that had to be done, 'a rock opera' that had to be written."
 
 So, in honor of the "rock opera" that would one day share a source with Full Metal Jacket, I want you to imagine the following dialogue set to Whitney Houston's immortal paean to anti-egalitarianism, "The Greatest Love of All":
@@ -14,7 +12,7 @@ You are the lowest forms of life on Earth,
 You're not even human fucking be-e-e-ings,   
 Just unorganized grabastic pieces of amphibian shit...
 
-[chorus]  
+\[chorus\]  
 I do not look down on niggers, kikes, wops or even on greasers,  
 Here you are, all equally  
 Worthless don't you maggots understand that,   
